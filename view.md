@@ -2,8 +2,8 @@
 
 1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](/rehacq_fan/ids/MxSVlnm0qc4 "wikilink")
     -   公開日: 2024-11-17
-    -   視聴数: 3,659,440
-    -   **いいね数: 54,435**
+    -   視聴数: 3,659,918
+    -   **いいね数: 54,431**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](/rehacq_fan/ids/eOz1CzMBmuQ "wikilink")
     -   公開日: 2023-11-25
@@ -42,8 +42,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs日本保守党】河村たかしが激怒！政治屋をぶっつぶす【西田亮介vsリハックマReHacQ】](/rehacq_fan/ids/0ecD5gpE0i8 "wikilink")
     -   公開日: 2024-11-09
-    -   視聴数: 2,379,228
-    -   **いいね数: 32,813**
+    -   視聴数: 2,379,643
+    -   **いいね数: 32,810**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](/rehacq_fan/ids/H_e67-Dxr8o "wikilink")
     -   公開日: 2024-11-18
@@ -132,7 +132,7 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【国民民主vsひろゆき】全部言う！玉木氏が衝撃告白！参院選で重大発表【ReHacQ高橋弘樹】](/rehacq_fan/ids/3WIDjkmg6xY "wikilink")
     -   公開日: 2025-02-02
-    -   視聴数: 1,667,822
+    -   視聴数: 1,668,033
     -   **いいね数: 21,647**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔の推薦】ビジネスと量子力学！超弦理論の謎【野村泰紀と宇宙】](/rehacq_fan/ids/lp7PPFsnQAE "wikilink")
@@ -242,8 +242,8 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs立憲民主党②】小西洋之が激怒…一体なぜ？【中谷一馬vs高橋弘樹vs西田亮介】](/rehacq_fan/ids/jfuZDsUN4JY "wikilink")
     -   公開日: 2024-10-13
-    -   視聴数: 1,332,400
-    -   **いいね数: 7,906**
+    -   視聴数: 1,336,577
+    -   **いいね数: 7,917**
     -   出演者: [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
@@ -262,8 +262,8 @@
     -   出演者: 
 1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](/rehacq_fan/ids/v6K85s-g9Oc "wikilink")
     -   公開日: 2025-02-05
-    -   視聴数: 1,281,356
-    -   **いいね数: 17,597**
+    -   視聴数: 1,281,548
+    -   **いいね数: 17,595**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs銀行の元上司】半沢直樹か否か…銀行時代、上司を詰めた理由とは？【高橋弘樹】](/rehacq_fan/ids/9Ost8DSs1uU "wikilink")
     -   公開日: 2024-09-14
@@ -302,8 +302,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs自民党税調会長】緊急参戦！宮沢洋一がすべて告白！103万の壁…決着の裏側【ReHacQ西田亮介&高橋弘樹】](/rehacq_fan/ids/mf37-gaqcFE "wikilink")
     -   公開日: 2025-04-06
-    -   視聴数: 1,142,255
-    -   **いいね数: 21,386**
+    -   視聴数: 1,142,404
+    -   **いいね数: 21,383**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮沢洋一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](/rehacq_fan/ids/2XMbvuYkbeQ "wikilink")
     -   公開日: 2023-12-28
@@ -465,16 +465,16 @@
     -   視聴数: 974,246
     -   **いいね数: 11,178**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
+1.  [【高橋弘樹vs近藤大介】中国人と日本人は似てると思うと失敗する？習近平はどこへ向かうのか？【ReHacQ中国経済SP】](/rehacq_fan/ids/MBD3k2kLnD8 "wikilink")
+    -   公開日: 2025-09-30
+    -   視聴数: 968,094
+    -   **いいね数: 9,327**
+    -   出演者: 近藤大介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](/rehacq_fan/ids/Lcj1tooXlSk "wikilink")
     -   公開日: 2025-02-18
     -   視聴数: 958,819
     -   **いいね数: 17,050**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs近藤大介】中国人と日本人は似てると思うと失敗する？習近平はどこへ向かうのか？【ReHacQ中国経済SP】](/rehacq_fan/ids/MBD3k2kLnD8 "wikilink")
-    -   公開日: 2025-09-30
-    -   視聴数: 956,127
-    -   **いいね数: 9,243**
-    -   出演者: 近藤大介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs兵庫県議】斎藤知事の側近が告白…なぜ辞職せず？【高橋弘樹】](/rehacq_fan/ids/V2AJCMmVW2I "wikilink")
     -   公開日: 2024-09-19
     -   視聴数: 950,282
