@@ -1,6 +1,6 @@
 ### [【緊急生配信】前橋市長選挙になぜ立候補するんですか？【ReHacQ高橋弘樹vs丸山彬】](https://www.youtube.com/watch?v=_JXbv9eu9l8)
 [![](https://img.youtube.com/vi/_JXbv9eu9l8/sddefault.jpg)](https://www.youtube.com/watch?v=_JXbv9eu9l8)
 -   公開日: 2025-12-28
--   視聴数: 29,562
--   **いいね数: 403**
+-   視聴数: 32,240
+-   **いいね数: 428**
 -   出演者: 
