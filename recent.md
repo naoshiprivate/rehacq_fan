@@ -1,31 +1,31 @@
+1.  [【後藤達也vs地経学】米中覇権争いどうなる…市場に不可欠なものとは【ReHacQvs鈴木一人】](/rehacq_fan/ids/g90mBa3A1PY "wikilink")
+    -   公開日: 2025-12-28
+    -   視聴数: 1,626
+    -   **いいね数: 63**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/g90mBa3A1PY/hqdefault.jpg)](https://www.youtube.com/watch?v=g90mBa3A1PY)
+1.  [【緊急生配信】前橋市長選挙になぜ立候補するんですか？【ReHacQ高橋弘樹vs丸山彬】](/rehacq_fan/ids/JXbv9eu9l8 "wikilink")
+    -   公開日: 2025-12-28
+    -   視聴数: 23,470
+    -   **いいね数: 341**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/_JXbv9eu9l8/hqdefault.jpg)](https://www.youtube.com/watch?v=_JXbv9eu9l8)
 1.  [【ReHacQ生配信】まったり忘年会…落選議員が語る自民党高市政権とは…【ReHacQあつまれ！落選の森】](/rehacq_fan/ids/3Hg4lECcDbc "wikilink")
     -   公開日: 2025-12-27
-    -   視聴数: 118,466
-    -   **いいね数: 1,673**
+    -   視聴数: 142,967
+    -   **いいね数: 1,988**
     -   出演者: 
     - [![](https://img.youtube.com/vi/3Hg4lECcDbc/hqdefault.jpg)](https://www.youtube.com/watch?v=3Hg4lECcDbc)
 1.  [【石丸伸二vs新感覚温泉】球場に温泉!?北海道の新名所＆焼肉で街づくり?【ReHacQ旅②】](/rehacq_fan/ids/F0QqaRDxYO0 "wikilink")
     -   公開日: 2025-12-27
-    -   視聴数: 58,284
-    -   **いいね数: 3,774**
+    -   視聴数: 68,553
+    -   **いいね数: 4,121**
     -   出演者: 
     - [![](https://img.youtube.com/vi/F0QqaRDxYO0/hqdefault.jpg)](https://www.youtube.com/watch?v=F0QqaRDxYO0)
 1.  [【高橋弘樹vs川上量生】大学受験は不要？乱立する大学の役割とは【 ReHacQvs笹川順平vs中村伊知哉】](/rehacq_fan/ids/YHbb-_23uDk "wikilink")
     -   公開日: 2025-12-27
-    -   視聴数: 16,418
-    -   **いいね数: 206**
+    -   視聴数: 19,980
+    -   **いいね数: 249**
     -   出演者: 
     - [![](https://img.youtube.com/vi/YHbb-_23uDk/hqdefault.jpg)](https://www.youtube.com/watch?v=YHbb-_23uDk)
-1.  [【ひろゆきvs山本一太】「知事辞めても良い」なぜ？…投資額100億円！知事の野望とは？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Z-wx3k3CZXs "wikilink")
-    -   公開日: 2025-12-26
-    -   視聴数: 84,154
-    -   **いいね数: 1,245**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [山本一太](/rehacq_fan/people/山本一太 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/Z-wx3k3CZXs/hqdefault.jpg)](https://www.youtube.com/watch?v=Z-wx3k3CZXs)
-1.  [【2026年伸びる企業】テーマ買いは危険？投資の前に見るべきポイントとは？【伊井哲朗&永濱利廣&森本智子&ReHacQ】](/rehacq_fan/ids/vYdgKcJksL0 "wikilink")
-    -   公開日: 2025-12-26
-    -   視聴数: 41,496
-    -   **いいね数: 541**
-    -   出演者: 伊井哲朗, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
-    - [![](https://img.youtube.com/vi/vYdgKcJksL0/hqdefault.jpg)](https://www.youtube.com/watch?v=vYdgKcJksL0)
 

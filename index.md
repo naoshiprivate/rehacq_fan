@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【後藤達也vs地経学】米中覇権争いどうなる…市場に不可欠なものとは【ReHacQvs鈴木一人】](/rehacq_fan/ids/g90mBa3A1PY "wikilink")
+    -   公開日: 2025-12-28
+    -   視聴数: 1,626
+    -   **いいね数: 63**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/g90mBa3A1PY/hqdefault.jpg)](https://www.youtube.com/watch?v=g90mBa3A1PY)
+1.  [【緊急生配信】前橋市長選挙になぜ立候補するんですか？【ReHacQ高橋弘樹vs丸山彬】](/rehacq_fan/ids/JXbv9eu9l8 "wikilink")
+    -   公開日: 2025-12-28
+    -   視聴数: 23,470
+    -   **いいね数: 341**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/_JXbv9eu9l8/hqdefault.jpg)](https://www.youtube.com/watch?v=_JXbv9eu9l8)
 1.  [【ReHacQ生配信】まったり忘年会…落選議員が語る自民党高市政権とは…【ReHacQあつまれ！落選の森】](/rehacq_fan/ids/3Hg4lECcDbc "wikilink")
     -   公開日: 2025-12-27
-    -   視聴数: 118,466
-    -   **いいね数: 1,673**
+    -   視聴数: 142,967
+    -   **いいね数: 1,988**
     -   出演者: 
     - [![](https://img.youtube.com/vi/3Hg4lECcDbc/hqdefault.jpg)](https://www.youtube.com/watch?v=3Hg4lECcDbc)
 1.  [【石丸伸二vs新感覚温泉】球場に温泉!?北海道の新名所＆焼肉で街づくり?【ReHacQ旅②】](/rehacq_fan/ids/F0QqaRDxYO0 "wikilink")
     -   公開日: 2025-12-27
-    -   視聴数: 58,284
-    -   **いいね数: 3,774**
+    -   視聴数: 68,553
+    -   **いいね数: 4,121**
     -   出演者: 
     - [![](https://img.youtube.com/vi/F0QqaRDxYO0/hqdefault.jpg)](https://www.youtube.com/watch?v=F0QqaRDxYO0)
 1.  [【高橋弘樹vs川上量生】大学受験は不要？乱立する大学の役割とは【 ReHacQvs笹川順平vs中村伊知哉】](/rehacq_fan/ids/YHbb-_23uDk "wikilink")
     -   公開日: 2025-12-27
-    -   視聴数: 16,418
-    -   **いいね数: 206**
+    -   視聴数: 19,980
+    -   **いいね数: 249**
     -   出演者: 
     - [![](https://img.youtube.com/vi/YHbb-_23uDk/hqdefault.jpg)](https://www.youtube.com/watch?v=YHbb-_23uDk)
-1.  [【ひろゆきvs山本一太】「知事辞めても良い」なぜ？…投資額100億円！知事の野望とは？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Z-wx3k3CZXs "wikilink")
-    -   公開日: 2025-12-26
-    -   視聴数: 84,154
-    -   **いいね数: 1,245**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [山本一太](/rehacq_fan/people/山本一太 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/Z-wx3k3CZXs/hqdefault.jpg)](https://www.youtube.com/watch?v=Z-wx3k3CZXs)
-1.  [【2026年伸びる企業】テーマ買いは危険？投資の前に見るべきポイントとは？【伊井哲朗&永濱利廣&森本智子&ReHacQ】](/rehacq_fan/ids/vYdgKcJksL0 "wikilink")
-    -   公開日: 2025-12-26
-    -   視聴数: 41,496
-    -   **いいね数: 541**
-    -   出演者: 伊井哲朗, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
-    - [![](https://img.youtube.com/vi/vYdgKcJksL0/hqdefault.jpg)](https://www.youtube.com/watch?v=vYdgKcJksL0)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -64,7 +64,7 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 71, 視聴数: 8,734,263, いいね数: 123,140
+-   動画数: 73, 視聴数: 8,807,576, いいね数: 124,389
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -72,7 +72,7 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,199,639, いいね数: 336,452
+-   動画数: 102, 視聴数: 23,203,395, いいね数: 336,475
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -80,7 +80,7 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,642,432, いいね数: 261,968
+-   動画数: 65, 視聴数: 14,643,575, いいね数: 261,968
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -156,27 +156,27 @@
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,376,593, いいね数: 118,845
+-   動画数: 30, 視聴数: 9,376,894, いいね数: 118,847
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,471,302, いいね数: 121,488
+-   動画数: 30, 視聴数: 9,471,430, いいね数: 121,487
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,339,949, いいね数: 142,959
+-   動画数: 25, 視聴数: 13,343,717, いいね数: 142,968
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,306,670, いいね数: 171,659
+-   動画数: 33, 視聴数: 12,306,945, いいね数: 171,664
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,460,978, いいね数: 86,550
+-   動画数: 27, 視聴数: 6,461,315, いいね数: 86,556
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,590,814, いいね数: 128,085
+-   動画数: 33, 視聴数: 11,593,662, いいね数: 128,091
 
 #### [2023年07月](videos/202307 "wikilink")
 
@@ -199,4 +199,4 @@
 -   動画数: 14, 視聴数: 7,986,197, いいね数: 141,287
 
 ---
-2025-12-28 13:00
+2025-12-28 20:00
