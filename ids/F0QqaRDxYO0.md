@@ -1,6 +1,6 @@
 ### [【石丸伸二vs新感覚温泉】球場に温泉!?北海道の新名所＆焼肉で街づくり?【ReHacQ旅②】](https://www.youtube.com/watch?v=F0QqaRDxYO0)
 [![](https://img.youtube.com/vi/F0QqaRDxYO0/sddefault.jpg)](https://www.youtube.com/watch?v=F0QqaRDxYO0)
 -   公開日: 2025-12-27
--   視聴数: 87,405
--   **いいね数: 4,622**
+-   視聴数: 88,069
+-   **いいね数: 4,637**
 -   出演者: 
