@@ -1,31 +1,31 @@
+1.  [【ひろゆきvs高橋弘樹】「明日植毛です」突撃電話で深夜に衝撃告白…【ReHacQvs西田亮介vs若新雄純vs乙武洋匡】](/rehacq_fan/ids/KeQpXRLJ9Qw "wikilink")
+    -   公開日: 2025-12-29
+    -   視聴数: 13,192
+    -   **いいね数: 343**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/KeQpXRLJ9Qw/hqdefault.jpg)](https://www.youtube.com/watch?v=KeQpXRLJ9Qw)
+1.  [【石丸伸二vs衝撃ホテル】北海道の奇跡!年商50億円！ホテルで街づくりとは【ReHacQ高橋弘樹】](/rehacq_fan/ids/O3dwZwbdqIo "wikilink")
+    -   公開日: 2025-12-29
+    -   視聴数: 43,960
+    -   **いいね数: 2,375**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/O3dwZwbdqIo/hqdefault.jpg)](https://www.youtube.com/watch?v=O3dwZwbdqIo)
 1.  [【後藤達也vs地経学】米中覇権争いどうなる…市場に不可欠なものとは【ReHacQvs鈴木一人】](/rehacq_fan/ids/g90mBa3A1PY "wikilink")
     -   公開日: 2025-12-28
-    -   視聴数: 32,703
-    -   **いいね数: 513**
+    -   視聴数: 43,106
+    -   **いいね数: 630**
     -   出演者: 
     - [![](https://img.youtube.com/vi/g90mBa3A1PY/hqdefault.jpg)](https://www.youtube.com/watch?v=g90mBa3A1PY)
 1.  [【緊急生配信】前橋市長選挙になぜ立候補するんですか？【ReHacQ高橋弘樹vs丸山彬】](/rehacq_fan/ids/JXbv9eu9l8 "wikilink")
     -   公開日: 2025-12-28
-    -   視聴数: 46,290
-    -   **いいね数: 516**
+    -   視聴数: 49,680
+    -   **いいね数: 544**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_JXbv9eu9l8/hqdefault.jpg)](https://www.youtube.com/watch?v=_JXbv9eu9l8)
 1.  [【ReHacQ生配信】まったり忘年会…落選議員が語る自民党高市政権とは…【ReHacQあつまれ！落選の森】](/rehacq_fan/ids/3Hg4lECcDbc "wikilink")
     -   公開日: 2025-12-27
-    -   視聴数: 171,724
-    -   **いいね数: 2,283**
+    -   視聴数: 182,647
+    -   **いいね数: 2,421**
     -   出演者: 
     - [![](https://img.youtube.com/vi/3Hg4lECcDbc/hqdefault.jpg)](https://www.youtube.com/watch?v=3Hg4lECcDbc)
-1.  [【石丸伸二vs新感覚温泉】球場に温泉!?北海道の新名所＆焼肉で街づくり?【ReHacQ旅②】](/rehacq_fan/ids/F0QqaRDxYO0 "wikilink")
-    -   公開日: 2025-12-27
-    -   視聴数: 81,013
-    -   **いいね数: 4,427**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/F0QqaRDxYO0/hqdefault.jpg)](https://www.youtube.com/watch?v=F0QqaRDxYO0)
-1.  [【高橋弘樹vs川上量生】大学受験は不要？乱立する大学の役割とは【 ReHacQvs笹川順平vs中村伊知哉】](/rehacq_fan/ids/YHbb-_23uDk "wikilink")
-    -   公開日: 2025-12-27
-    -   視聴数: 23,807
-    -   **いいね数: 299**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/YHbb-_23uDk/hqdefault.jpg)](https://www.youtube.com/watch?v=YHbb-_23uDk)
 

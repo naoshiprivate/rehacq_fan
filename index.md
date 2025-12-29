@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【ひろゆきvs高橋弘樹】「明日植毛です」突撃電話で深夜に衝撃告白…【ReHacQvs西田亮介vs若新雄純vs乙武洋匡】](/rehacq_fan/ids/KeQpXRLJ9Qw "wikilink")
+    -   公開日: 2025-12-29
+    -   視聴数: 13,192
+    -   **いいね数: 343**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/KeQpXRLJ9Qw/hqdefault.jpg)](https://www.youtube.com/watch?v=KeQpXRLJ9Qw)
+1.  [【石丸伸二vs衝撃ホテル】北海道の奇跡!年商50億円！ホテルで街づくりとは【ReHacQ高橋弘樹】](/rehacq_fan/ids/O3dwZwbdqIo "wikilink")
+    -   公開日: 2025-12-29
+    -   視聴数: 43,960
+    -   **いいね数: 2,375**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/O3dwZwbdqIo/hqdefault.jpg)](https://www.youtube.com/watch?v=O3dwZwbdqIo)
 1.  [【後藤達也vs地経学】米中覇権争いどうなる…市場に不可欠なものとは【ReHacQvs鈴木一人】](/rehacq_fan/ids/g90mBa3A1PY "wikilink")
     -   公開日: 2025-12-28
-    -   視聴数: 32,703
-    -   **いいね数: 513**
+    -   視聴数: 43,106
+    -   **いいね数: 630**
     -   出演者: 
     - [![](https://img.youtube.com/vi/g90mBa3A1PY/hqdefault.jpg)](https://www.youtube.com/watch?v=g90mBa3A1PY)
 1.  [【緊急生配信】前橋市長選挙になぜ立候補するんですか？【ReHacQ高橋弘樹vs丸山彬】](/rehacq_fan/ids/JXbv9eu9l8 "wikilink")
     -   公開日: 2025-12-28
-    -   視聴数: 46,290
-    -   **いいね数: 516**
+    -   視聴数: 49,680
+    -   **いいね数: 544**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_JXbv9eu9l8/hqdefault.jpg)](https://www.youtube.com/watch?v=_JXbv9eu9l8)
 1.  [【ReHacQ生配信】まったり忘年会…落選議員が語る自民党高市政権とは…【ReHacQあつまれ！落選の森】](/rehacq_fan/ids/3Hg4lECcDbc "wikilink")
     -   公開日: 2025-12-27
-    -   視聴数: 171,724
-    -   **いいね数: 2,283**
+    -   視聴数: 182,647
+    -   **いいね数: 2,421**
     -   出演者: 
     - [![](https://img.youtube.com/vi/3Hg4lECcDbc/hqdefault.jpg)](https://www.youtube.com/watch?v=3Hg4lECcDbc)
-1.  [【石丸伸二vs新感覚温泉】球場に温泉!?北海道の新名所＆焼肉で街づくり?【ReHacQ旅②】](/rehacq_fan/ids/F0QqaRDxYO0 "wikilink")
-    -   公開日: 2025-12-27
-    -   視聴数: 81,013
-    -   **いいね数: 4,427**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/F0QqaRDxYO0/hqdefault.jpg)](https://www.youtube.com/watch?v=F0QqaRDxYO0)
-1.  [【高橋弘樹vs川上量生】大学受験は不要？乱立する大学の役割とは【 ReHacQvs笹川順平vs中村伊知哉】](/rehacq_fan/ids/YHbb-_23uDk "wikilink")
-    -   公開日: 2025-12-27
-    -   視聴数: 23,807
-    -   **いいね数: 299**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/YHbb-_23uDk/hqdefault.jpg)](https://www.youtube.com/watch?v=YHbb-_23uDk)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -64,15 +64,15 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 73, 視聴数: 9,003,721, いいね数: 126,816
+-   動画数: 75, 視聴数: 9,096,156, いいね数: 130,034
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,143,751, いいね数: 163,459
+-   動画数: 79, 視聴数: 11,145,887, いいね数: 163,482
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,218,160, いいね数: 336,572
+-   動画数: 102, 視聴数: 23,222,016, いいね数: 336,582
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -88,7 +88,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,796,606, いいね数: 305,826
+-   動画数: 78, 視聴数: 16,796,646, いいね数: 305,825
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -172,31 +172,31 @@
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,461,431, いいね数: 86,556
+-   動画数: 27, 視聴数: 6,462,184, いいね数: 86,555
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,594,163, いいね数: 128,092
+-   動画数: 33, 視聴数: 11,595,008, いいね数: 128,096
 
 #### [2023年07月](videos/202307 "wikilink")
 
--   動画数: 30, 視聴数: 11,586,876, いいね数: 141,029
+-   動画数: 30, 視聴数: 11,586,977, いいね数: 141,026
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,799,487, いいね数: 95,166
+-   動画数: 27, 視聴数: 7,799,704, いいね数: 95,166
 
 #### [2023年05月](videos/202305 "wikilink")
 
--   動画数: 24, 視聴数: 7,319,051, いいね数: 112,142
+-   動画数: 24, 視聴数: 7,319,101, いいね数: 112,141
 
 #### [2023年04月](videos/202304 "wikilink")
 
--   動画数: 28, 視聴数: 6,525,169, いいね数: 103,258
+-   動画数: 28, 視聴数: 6,525,176, いいね数: 103,258
 
 #### [2023年03月](videos/202303 "wikilink")
 
--   動画数: 14, 視聴数: 7,986,882, いいね数: 141,295
+-   動画数: 14, 視聴数: 7,986,930, いいね数: 141,295
 
 ---
-2025-12-29 13:00
+2025-12-29 20:00
