@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【緊急生配信】12月振り返りまったり生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/4MAvb_fOHio "wikilink")
+    -   公開日: 2025-12-30
+    -   視聴数: 10,123
+    -   **いいね数: 348**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/4MAvb_fOHio/hqdefault.jpg)](https://www.youtube.com/watch?v=4MAvb_fOHio)
+1.  [【緊急生配信】12月振り返りまったり生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/8n1mRcPFe6I "wikilink")
+    -   公開日: 2025-12-30
+    -   視聴数: 13,116
+    -   **いいね数: 404**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/8n1mRcPFe6I/hqdefault.jpg)](https://www.youtube.com/watch?v=8n1mRcPFe6I)
 1.  [【緊急生配信】前橋市長選挙になぜ立候補するんですか？【ReHacQ高橋弘樹vsたなはしせつ子】](/rehacq_fan/ids/UFhDhX2rJdQ "wikilink")
     -   公開日: 2025-12-30
-    -   視聴数: 7,143
-    -   **いいね数: 152**
+    -   視聴数: 12,898
+    -   **いいね数: 180**
     -   出演者: 
     - [![](https://img.youtube.com/vi/UFhDhX2rJdQ/hqdefault.jpg)](https://www.youtube.com/watch?v=UFhDhX2rJdQ)
 1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/6VNSEpSv07o "wikilink")
     -   公開日: 2025-12-30
-    -   視聴数: 5,285
-    -   **いいね数: 192**
+    -   視聴数: 7,179
+    -   **いいね数: 229**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6VNSEpSv07o/hqdefault.jpg)](https://www.youtube.com/watch?v=6VNSEpSv07o)
 1.  [【高橋弘樹vs朝日新聞vs毎日新聞vs幻冬舎】どんな報道あった？2025年を本音で激白！まったりメディア忘年会【ReHacQvs田中裕之vs今野忍vs箕輪厚介】](/rehacq_fan/ids/aZ3Bg_WxwYQ "wikilink")
     -   公開日: 2025-12-29
-    -   視聴数: 182,314
-    -   **いいね数: 2,923**
+    -   視聴数: 186,599
+    -   **いいね数: 2,981**
     -   出演者: 今野忍, 田中裕之, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/aZ3Bg_WxwYQ/hqdefault.jpg)](https://www.youtube.com/watch?v=aZ3Bg_WxwYQ)
-1.  [【ひろゆきvs高橋弘樹】「明日植毛です」突撃電話で深夜に衝撃告白…【ReHacQvs西田亮介vs若新雄純vs乙武洋匡】](/rehacq_fan/ids/KeQpXRLJ9Qw "wikilink")
-    -   公開日: 2025-12-29
-    -   視聴数: 130,813
-    -   **いいね数: 1,814**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 乙武洋匡, [若新雄純](/rehacq_fan/people/若新雄純 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/KeQpXRLJ9Qw/hqdefault.jpg)](https://www.youtube.com/watch?v=KeQpXRLJ9Qw)
-1.  [【石丸伸二vs元ゴールドマンサックス】北海道の奇跡!ホテルで街づくりとは【ReHacQ高橋弘樹】](/rehacq_fan/ids/O3dwZwbdqIo "wikilink")
-    -   公開日: 2025-12-29
-    -   視聴数: 87,875
-    -   **いいね数: 3,306**
-    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 舘林真一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/O3dwZwbdqIo/hqdefault.jpg)](https://www.youtube.com/watch?v=O3dwZwbdqIo)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -64,19 +64,19 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 78, 視聴数: 9,637,108, いいね数: 138,451
+-   動画数: 80, 視聴数: 9,685,788, いいね数: 139,448
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,149,778, いいね数: 163,502
+-   動画数: 79, 視聴数: 11,160,820, いいね数: 163,661
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,274,403, いいね数: 336,968
+-   動画数: 102, 視聴数: 23,274,464, いいね数: 336,967
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,311,332, いいね数: 269,335
+-   動画数: 87, 視聴数: 16,311,446, いいね数: 269,335
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -112,11 +112,11 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,617,656, いいね数: 309,841
+-   動画数: 60, 視聴数: 18,617,836, いいね数: 309,841
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 22,405,741, いいね数: 380,291
+-   動画数: 38, 視聴数: 22,405,957, いいね数: 380,293
 
 #### [2024年10月](videos/202410 "wikilink")
 
@@ -136,15 +136,15 @@
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,640,275, いいね数: 142,128
+-   動画数: 31, 視聴数: 10,640,525, いいね数: 142,128
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,735,813, いいね数: 83,443
+-   動画数: 29, 視聴数: 6,739,564, いいね数: 83,465
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,556,306, いいね数: 99,691
+-   動画数: 34, 視聴数: 9,556,406, いいね数: 99,690
 
 #### [2024年03月](videos/202403 "wikilink")
 
@@ -199,4 +199,4 @@
 -   動画数: 14, 視聴数: 7,992,139, いいね数: 141,299
 
 ---
-2025-12-30 22:00
+2025-12-30 23:00
