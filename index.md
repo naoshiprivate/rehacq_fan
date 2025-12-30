@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【緊急生配信】12月振り返りまったり生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/4MAvb_fOHio "wikilink")
     -   公開日: 2025-12-30
-    -   視聴数: 42,316
-    -   **いいね数: 1,085**
+    -   視聴数: 81,559
+    -   **いいね数: 1,357**
     -   出演者: 
     - [![](https://img.youtube.com/vi/4MAvb_fOHio/hqdefault.jpg)](https://www.youtube.com/watch?v=4MAvb_fOHio)
 1.  [【緊急生配信】12月振り返りまったり生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/8n1mRcPFe6I "wikilink")
     -   公開日: 2025-12-30
-    -   視聴数: 18,984
-    -   **いいね数: 471**
+    -   視聴数: 20,564
+    -   **いいね数: 487**
     -   出演者: 
     - [![](https://img.youtube.com/vi/8n1mRcPFe6I/hqdefault.jpg)](https://www.youtube.com/watch?v=8n1mRcPFe6I)
 1.  [【緊急生配信】前橋市長選挙になぜ立候補するんですか？【ReHacQ高橋弘樹vsたなはしせつ子】](/rehacq_fan/ids/UFhDhX2rJdQ "wikilink")
     -   公開日: 2025-12-30
-    -   視聴数: 21,295
-    -   **いいね数: 219**
+    -   視聴数: 25,804
+    -   **いいね数: 249**
     -   出演者: 
     - [![](https://img.youtube.com/vi/UFhDhX2rJdQ/hqdefault.jpg)](https://www.youtube.com/watch?v=UFhDhX2rJdQ)
 1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/6VNSEpSv07o "wikilink")
     -   公開日: 2025-12-30
-    -   視聴数: 11,691
-    -   **いいね数: 283**
+    -   視聴数: 14,796
+    -   **いいね数: 345**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6VNSEpSv07o/hqdefault.jpg)](https://www.youtube.com/watch?v=6VNSEpSv07o)
 1.  [【高橋弘樹vs朝日新聞vs毎日新聞vs幻冬舎】どんな報道あった？2025年を本音で激白！まったりメディア忘年会【ReHacQvs田中裕之vs今野忍vs箕輪厚介】](/rehacq_fan/ids/aZ3Bg_WxwYQ "wikilink")
     -   公開日: 2025-12-29
-    -   視聴数: 197,931
-    -   **いいね数: 3,085**
+    -   視聴数: 207,096
+    -   **いいね数: 3,149**
     -   出演者: 今野忍, 田中裕之, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/aZ3Bg_WxwYQ/hqdefault.jpg)](https://www.youtube.com/watch?v=aZ3Bg_WxwYQ)
 
@@ -44,12 +44,6 @@
     -   **いいね数: 9,473**
     -   出演者: 藤田晋, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/kT34SGVBs6Y/hqdefault.jpg)](https://www.youtube.com/watch?v=kT34SGVBs6Y)
-1.  [【ひろゆきvs蓮舫】なぜ激怒？自民党へ…税のムダは見直せる？【ReHacQ】](/rehacq_fan/ids/k0cjikBMNHI "wikilink")
-    -   公開日: 2025-11-30
-    -   視聴数: 588,923
-    -   **いいね数: 4,719**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 蓮舫, [西田尚史](/rehacq_fan/people/西田尚史 "wikilink")
-    - [![](https://img.youtube.com/vi/k0cjikBMNHI/hqdefault.jpg)](https://www.youtube.com/watch?v=k0cjikBMNHI)
 
 # データ
 ## 出演者別エンゲージメント
@@ -64,23 +58,23 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 80, 視聴数: 9,796,994, いいね数: 141,141
+-   動画数: 80, 視聴数: 9,864,951, いいね数: 141,677
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,160,962, いいね数: 163,664
+-   動画数: 79, 視聴数: 11,162,271, いいね数: 163,670
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,275,966, いいね数: 336,990
+-   動画数: 102, 視聴数: 23,276,183, いいね数: 336,992
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,323,661, いいね数: 269,423
+-   動画数: 87, 視聴数: 16,323,689, いいね数: 269,423
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,677,437, いいね数: 262,238
+-   動画数: 65, 視聴数: 14,682,444, いいね数: 262,248
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -128,11 +122,11 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 20,177,154, いいね数: 327,426
+-   動画数: 43, 視聴数: 20,177,939, いいね数: 327,428
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,939,499, いいね数: 291,093
+-   動画数: 44, 視聴数: 15,942,357, いいね数: 291,093
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -199,4 +193,4 @@
 -   動画数: 14, 視聴数: 7,992,139, いいね数: 141,299
 
 ---
-2025-12-31 02:00
+2025-12-31 07:00
