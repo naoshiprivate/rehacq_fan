@@ -150,16 +150,16 @@
     -   視聴数: 1,536,657
     -   **いいね数: 15,416**
     -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【石丸伸二vs会見入れなかったジャーナリスト】前代未聞の激論…なぜ？取材会見時のジャーナリスト制限に関して【ひろゆきvs横田一vs西田亮介vs箕輪厚介vs高橋弘樹ReHacQ】](/rehacq_fan/ids/23N6ICQ55-c "wikilink")
+    -   公開日: 2025-01-16
+    -   視聴数: 1,490,994
+    -   **いいね数: 25,116**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [横田一](/rehacq_fan/people/横田一 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一の野望【落選４回…なぜ政治家に？】](/rehacq_fan/ids/Ue3JGrtEO3Y "wikilink")
     -   公開日: 2023-11-19
     -   視聴数: 1,486,648
     -   **いいね数: 9,093**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【石丸伸二vs会見入れなかったジャーナリスト】前代未聞の激論…なぜ？取材会見時のジャーナリスト制限に関して【ひろゆきvs横田一vs西田亮介vs箕輪厚介vs高橋弘樹ReHacQ】](/rehacq_fan/ids/23N6ICQ55-c "wikilink")
-    -   公開日: 2025-01-16
-    -   視聴数: 1,486,320
-    -   **いいね数: 25,101**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [横田一](/rehacq_fan/people/横田一 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸市長vs副議長】安芸高田！奥広島のまったり旅…西田亮介【清志会vs毛利元就】](/rehacq_fan/ids/qMR_6XOPwvY "wikilink")
     -   公開日: 2024-01-21
     -   視聴数: 1,482,850
@@ -357,8 +357,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石破茂](/rehacq_fan/people/石破茂 "wikilink")
 1.  [【ガーシーが謝罪】被害者・川上量生に直接…一体なぜ？参議院議員から急転逮捕…真相とは？【なぜN国から立候補？】](/rehacq_fan/ids/mt5tmXdLERs "wikilink")
     -   公開日: 2024-12-26
-    -   視聴数: 1,106,115
-    -   **いいね数: 13,591**
+    -   視聴数: 1,106,596
+    -   **いいね数: 13,594**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 東谷義和
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](/rehacq_fan/ids/arcYBqJcY8w "wikilink")
     -   公開日: 2024-01-27
@@ -410,6 +410,11 @@
     -   視聴数: 1,065,352
     -   **いいね数: 15,997**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
+1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
+    -   公開日: 2025-08-09
+    -   視聴数: 1,064,821
+    -   **いいね数: 16,726**
+    -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】緊迫！石丸伸二が野党に激怒…今後のロードマップは？【高橋弘樹】](/rehacq_fan/ids/Lb9U4acxhs4 "wikilink")
     -   公開日: 2024-09-07
     -   視聴数: 1,055,811
@@ -425,11 +430,6 @@
     -   視聴数: 1,044,559
     -   **いいね数: 12,321**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
-1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
-    -   公開日: 2025-08-09
-    -   視聴数: 1,040,940
-    -   **いいね数: 16,500**
-    -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【カルロス•ゴーン独占取材】日産に激怒！追浜閉鎖…元幹部への苦言…国外脱出の全貌とは？【ReHacQ須賀川拓】](/rehacq_fan/ids/loEb4IWVkAs "wikilink")
     -   公開日: 2025-08-07
     -   視聴数: 1,037,078
@@ -492,8 +492,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink")
 1.  [【ReHacQ×年越し】大晦日！ベロベロ生テレビ【石丸伸二＆ひろゆき＆後藤達也】](/rehacq_fan/ids/kJ2-KHagA8s "wikilink")
     -   公開日: 2024-12-31
-    -   視聴数: 926,207
-    -   **いいね数: 15,242**
+    -   視聴数: 928,722
+    -   **いいね数: 15,245**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs玉木雄一郎】朝まで生玉木！総裁選どうみる？政権どうとる？ガッツリ政策語りまくる【ReHacQ高橋弘樹】](/rehacq_fan/ids/keDkHXJbZEY "wikilink")
     -   公開日: 2025-09-23
