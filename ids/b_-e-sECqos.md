@@ -3,4 +3,4 @@
 -   公開日: 2025-02-11
 -   視聴数: 85,770
 -   **いいね数: 881**
--   出演者: 福山章子, [野沢春日](/rehacq_fan/people/野沢春日 "wikilink"), 鈴木一人
+-   出演者: 福山章子, [野沢春日](/rehacq_fan/people/野沢春日 "wikilink"), [鈴木一人](/rehacq_fan/people/鈴木一人 "wikilink")

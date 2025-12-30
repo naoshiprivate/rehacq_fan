@@ -3,4 +3,4 @@
 -   公開日: 2025-07-31
 -   視聴数: 202,673
 -   **いいね数: 2,901**
--   出演者: おくむらまさよし, おときた駿, たけみ敬三, やながせ裕文, [横田一](/rehacq_fan/people/横田一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: おくむらまさよし, [おときた駿](/rehacq_fan/people/おときた駿 "wikilink"), たけみ敬三, やながせ裕文, [横田一](/rehacq_fan/people/横田一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

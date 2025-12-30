@@ -3,4 +3,4 @@
 -   公開日: 2025-06-19
 -   視聴数: 66,914
 -   **いいね数: 1,424**
--   出演者: おときた駿, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [おときた駿](/rehacq_fan/people/おときた駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
