@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【緊急生配信】前橋市長選挙になぜ立候補するんですか？【ReHacQ高橋弘樹vsたなはしせつ子】](/rehacq_fan/ids/UFhDhX2rJdQ "wikilink")
+    -   公開日: 2025-12-30
+    -   視聴数: 3,724
+    -   **いいね数: 66**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/UFhDhX2rJdQ/hqdefault.jpg)](https://www.youtube.com/watch?v=UFhDhX2rJdQ)
 1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/6VNSEpSv07o "wikilink")
     -   公開日: 2025-12-30
-    -   視聴数: 1,695
-    -   **いいね数: 96**
+    -   視聴数: 2,953
+    -   **いいね数: 151**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6VNSEpSv07o/hqdefault.jpg)](https://www.youtube.com/watch?v=6VNSEpSv07o)
 1.  [【高橋弘樹vs朝日新聞vs毎日新聞vs幻冬舎】どんな報道あった？2025年を本音で激白！まったりメディア忘年会【ReHacQvs田中裕之vs今野忍vs箕輪厚介】](/rehacq_fan/ids/aZ3Bg_WxwYQ "wikilink")
     -   公開日: 2025-12-29
-    -   視聴数: 174,189
-    -   **いいね数: 2,798**
+    -   視聴数: 178,237
+    -   **いいね数: 2,867**
     -   出演者: 今野忍, 田中裕之, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/aZ3Bg_WxwYQ/hqdefault.jpg)](https://www.youtube.com/watch?v=aZ3Bg_WxwYQ)
 1.  [【ひろゆきvs高橋弘樹】「明日植毛です」突撃電話で深夜に衝撃告白…【ReHacQvs西田亮介vs若新雄純vs乙武洋匡】](/rehacq_fan/ids/KeQpXRLJ9Qw "wikilink")
     -   公開日: 2025-12-29
-    -   視聴数: 125,667
-    -   **いいね数: 1,738**
+    -   視聴数: 128,375
+    -   **いいね数: 1,785**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 乙武洋匡, [若新雄純](/rehacq_fan/people/若新雄純 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/KeQpXRLJ9Qw/hqdefault.jpg)](https://www.youtube.com/watch?v=KeQpXRLJ9Qw)
 1.  [【石丸伸二vs元ゴールドマンサックス】北海道の奇跡!ホテルで街づくりとは【ReHacQ高橋弘樹】](/rehacq_fan/ids/O3dwZwbdqIo "wikilink")
     -   公開日: 2025-12-29
-    -   視聴数: 85,706
-    -   **いいね数: 3,263**
+    -   視聴数: 86,873
+    -   **いいね数: 3,288**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 舘林真一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/O3dwZwbdqIo/hqdefault.jpg)](https://www.youtube.com/watch?v=O3dwZwbdqIo)
-1.  [【後藤達也vs地経学】米中覇権争いどうなる…市場に不可欠なものとは【ReHacQvs鈴木一人】](/rehacq_fan/ids/g90mBa3A1PY "wikilink")
-    -   公開日: 2025-12-28
-    -   視聴数: 57,370
-    -   **いいね数: 750**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [鈴木一人](/rehacq_fan/people/鈴木一人 "wikilink")
-    - [![](https://img.youtube.com/vi/g90mBa3A1PY/hqdefault.jpg)](https://www.youtube.com/watch?v=g90mBa3A1PY)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -64,19 +64,19 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 77, 視聴数: 9,607,143, いいね数: 137,921
+-   動画数: 78, 視聴数: 9,621,860, いいね数: 138,203
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,149,764, いいね数: 163,502
+-   動画数: 79, 視聴数: 11,149,778, いいね数: 163,502
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,268,036, いいね数: 336,909
+-   動画数: 102, 視聴数: 23,274,148, いいね数: 336,967
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,310,602, いいね数: 269,333
+-   動画数: 87, 視聴数: 16,311,332, いいね数: 269,335
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -84,7 +84,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 21,152,570, いいね数: 364,212
+-   動画数: 76, 視聴数: 21,152,649, いいね数: 364,211
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -104,11 +104,11 @@
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,459,873, いいね数: 298,833
+-   動画数: 47, 視聴数: 16,461,680, いいね数: 298,834
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 18,026,221, いいね数: 294,021
+-   動画数: 48, 視聴数: 18,032,389, いいね数: 294,027
 
 #### [2024年12月](videos/202412 "wikilink")
 
@@ -120,11 +120,11 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,747,479, いいね数: 342,205
+-   動画数: 72, 視聴数: 22,747,820, いいね数: 342,208
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,797,400, いいね数: 221,621
+-   動画数: 50, 視聴数: 14,798,422, いいね数: 221,621
 
 #### [2024年08月](videos/202408 "wikilink")
 
@@ -199,4 +199,4 @@
 -   動画数: 14, 視聴数: 7,992,139, いいね数: 141,299
 
 ---
-2025-12-30 20:00
+2025-12-30 21:00
