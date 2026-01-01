@@ -47,8 +47,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](/rehacq_fan/ids/H_e67-Dxr8o "wikilink")
     -   公開日: 2024-11-18
-    -   視聴数: 2,334,943
-    -   **いいね数: 58,898**
+    -   視聴数: 2,353,612
+    -   **いいね数: 58,946**
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](/rehacq_fan/ids/hio2XdBPW5Y "wikilink")
     -   公開日: 2024-02-24
@@ -67,8 +67,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【石丸伸二vs玉木雄一郎】再びの生対談！石丸新党立ち上げ…国民民主躍進.兵庫県知事選…本音激論【ReHacQ高橋弘樹】](/rehacq_fan/ids/6Vww3vD7jHg "wikilink")
     -   公開日: 2024-11-19
-    -   視聴数: 2,198,262
-    -   **いいね数: 43,467**
+    -   視聴数: 2,202,459
+    -   **いいね数: 43,465**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【Google賞金4.5億】睡眠革命！「朝型がいい」はウソ!?最新研究【柳沢正史】](/rehacq_fan/ids/IWqndzRAJnQ "wikilink")
     -   公開日: 2023-11-07
@@ -142,8 +142,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ討論会】兵庫県知事選挙【候補者7人vs高橋弘樹】](/rehacq_fan/ids/b-bNBgMhpNM "wikilink")
     -   公開日: 2024-11-01
-    -   視聴数: 1,547,464
-    -   **いいね数: 32,423**
+    -   視聴数: 1,548,142
+    -   **いいね数: 32,426**
     -   出演者: 大澤芳清, [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), 木島洋嗣, 清水貴之, 福本繁幸, 稲村和美, [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン】毎年20%がクビ！激烈…エリート投資銀行の生存者とは？【ReHacQキャリア】](/rehacq_fan/ids/SEqkSNRqrUE "wikilink")
     -   公開日: 2025-01-06
@@ -257,7 +257,7 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】ちょっとだけ大切なお知らせ…兵庫県知事選に関して【神戸新聞さん…ランチしましょう】](/rehacq_fan/ids/0P-1c-mn2mc "wikilink")
     -   公開日: 2024-12-08
-    -   視聴数: 1,294,886
+    -   視聴数: 1,294,926
     -   **いいね数: 23,377**
     -   出演者: 
 1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](/rehacq_fan/ids/v6K85s-g9Oc "wikilink")
@@ -387,8 +387,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森永卓郎
 1.  [【石丸伸二vs吉村洋文】石丸新党の構想判明！国民民主vs維新…解決策は？【ReHacQ・高橋弘樹】](/rehacq_fan/ids/DQkpV-2rV3I "wikilink")
     -   公開日: 2024-12-23
-    -   視聴数: 1,080,015
-    -   **いいね数: 24,681**
+    -   視聴数: 1,081,462
+    -   **いいね数: 24,684**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【玉木雄一郎vs後藤達也】緊急対談！103万の壁が崩壊…経済政策に地殻変動【国民民主党の野望2024/11/20】](/rehacq_fan/ids/F4WmVdF4M8c "wikilink")
     -   公開日: 2024-11-21
