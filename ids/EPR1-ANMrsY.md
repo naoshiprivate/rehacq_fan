@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/EPR1-ANMrsY/sddefault.jpg)](https://www.youtube.com/watch?v=EPR1-ANMrsY)
 -   公開日: 2026-01-01
 -   視聴数: 1
--   **いいね数: 17**
+-   **いいね数: 27**
 -   出演者: 
