@@ -1,6 +1,6 @@
 ### [【ReHacQvs地方議員】衝撃転身！なぜフリーターから政治家へ？議会の闇激白…【音喜多駿vs三次ゆりかvs小林あすかvs入江あゆみ】](https://www.youtube.com/watch?v=WPRuarAU0jA)
 [![](https://img.youtube.com/vi/WPRuarAU0jA/sddefault.jpg)](https://www.youtube.com/watch?v=WPRuarAU0jA)
 -   公開日: 2025-12-31
--   視聴数: 29,616
--   **いいね数: 500**
+-   視聴数: 30,070
+-   **いいね数: 511**
 -   出演者: 
