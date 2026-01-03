@@ -47,8 +47,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【後藤達也と新NISA】投資のシンプルな真実！赤裸々告白【S&P500とオルカン】](/rehacq_fan/ids/MXBsHbF603U "wikilink")
     -   公開日: 2023-12-21
-    -   視聴数: 2,709,324
-    -   **いいね数: 33,463**
+    -   視聴数: 2,715,644
+    -   **いいね数: 33,507**
     -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [東京都知事選2024！公開討論会【小池百合子vs石丸伸二vs田母神俊雄vs蓮舫】](/rehacq_fan/ids/QoFBeE9_9n4 "wikilink")
     -   公開日: 2024-06-24
@@ -207,8 +207,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](/rehacq_fan/ids/2XMbvuYkbeQ "wikilink")
     -   公開日: 2023-12-28
-    -   視聴数: 1,136,383
-    -   **いいね数: 21,287**
+    -   視聴数: 1,138,038
+    -   **いいね数: 21,311**
     -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【高橋弘樹vs 斎藤知事に激怒の議員】兵庫県告発文書！百条委員会の委員長の本音【ReHacQ】](/rehacq_fan/ids/uY0Jmw4wR7Y "wikilink")
     -   公開日: 2024-10-04
@@ -435,16 +435,16 @@
     -   視聴数: 753,044
     -   **いいね数: 15,755**
     -   出演者: [川松真一朗](/rehacq_fan/people/川松真一朗 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【後藤達也vsインデックスファンド】パックン式！世界最強の「投資思考術」とは【アメリカ株】](/rehacq_fan/ids/xcbxnXpIizM "wikilink")
+    -   公開日: 2023-12-07
+    -   視聴数: 1,459,917
+    -   **いいね数: 15,628**
+    -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【石丸伸二vsメディア】なぜ揉める？安芸高田市長と本音雑談【㊙︎ゲストも登場】](/rehacq_fan/ids/3rx30yJXsLs "wikilink")
     -   公開日: 2023-10-01
     -   視聴数: 1,013,859
     -   **いいね数: 15,616**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【後藤達也vsインデックスファンド】パックン式！世界最強の「投資思考術」とは【アメリカ株】](/rehacq_fan/ids/xcbxnXpIizM "wikilink")
-    -   公開日: 2023-12-07
-    -   視聴数: 1,458,199
-    -   **いいね数: 15,616**
-    -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【玉木雄一郎vs後藤達也】緊急対談！103万の壁が崩壊…経済政策に地殻変動【国民民主党の野望2024/11/20】](/rehacq_fan/ids/F4WmVdF4M8c "wikilink")
     -   公開日: 2024-11-21
     -   視聴数: 1,071,468
