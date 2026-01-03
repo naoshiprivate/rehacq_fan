@@ -1,6 +1,6 @@
-### [【肝臓リスクvs天才物理学者】知られざる脂肪肝の恐怖！そして酒好き加藤シルビアアナに衝撃通告！？【ReHacQ】](https://www.youtube.com/watch?v=EPR1-ANMrsY)
+### [【肝臓リスク徹底解説】知られざる脂肪肝の恐怖！そして酒好き加藤シルビアアナに衝撃通告！？【ReHacQ】](https://www.youtube.com/watch?v=EPR1-ANMrsY)
 [![](https://img.youtube.com/vi/EPR1-ANMrsY/sddefault.jpg)](https://www.youtube.com/watch?v=EPR1-ANMrsY)
 -   公開日: 2026-01-02
--   視聴数: 24,418
--   **いいね数: 331**
+-   視聴数: 29,007
+-   **いいね数: 362**
 -   出演者: 加藤シルビア, 米田正人, [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
