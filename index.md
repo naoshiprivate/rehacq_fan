@@ -1,33 +1,33 @@
 # 最近の動画
 1.  [【野村泰紀vs宇宙最大の謎】暗黒物質がついに見えた！？世界が注目する衝撃発表とは【戸谷友則vsReHacQ】](/rehacq_fan/ids/6ZBE5fQAZXM "wikilink")
     -   公開日: 2026-01-02
-    -   視聴数: 65,224
-    -   **いいね数: 1,689**
-    -   出演者: 
+    -   視聴数: 68,255
+    -   **いいね数: 1,732**
+    -   出演者: 戸谷友則, [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
     - [![](https://img.youtube.com/vi/6ZBE5fQAZXM/hqdefault.jpg)](https://www.youtube.com/watch?v=6ZBE5fQAZXM)
 1.  [【肝臓リスクvs天才物理学者】知られざる脂肪肝の恐怖！そして酒好き加藤シルビアアナに衝撃通告！？【ReHacQ】](/rehacq_fan/ids/EPR1-ANMrsY "wikilink")
     -   公開日: 2026-01-02
-    -   視聴数: 23,899
-    -   **いいね数: 328**
-    -   出演者: 
+    -   視聴数: 24,418
+    -   **いいね数: 331**
+    -   出演者: 加藤シルビア, 米田正人, [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
     - [![](https://img.youtube.com/vi/EPR1-ANMrsY/hqdefault.jpg)](https://www.youtube.com/watch?v=EPR1-ANMrsY)
 1.  [【ひろゆきvs石川県知事】初告白…能登半島地震から２年…復興の真実【ReHacQvs馳浩】](/rehacq_fan/ids/pZLc90HK9Ak "wikilink")
     -   公開日: 2026-01-01
-    -   視聴数: 60,262
-    -   **いいね数: 1,026**
-    -   出演者: 
+    -   視聴数: 61,592
+    -   **いいね数: 1,034**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 馳浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/pZLc90HK9Ak/hqdefault.jpg)](https://www.youtube.com/watch?v=pZLc90HK9Ak)
 1.  [【高橋弘樹vsテクノロジー】人生の時間を3倍にする方法を家電オタクが徹底解説【ReHacQvs勝間和代】](/rehacq_fan/ids/F8FMA0d-fHU "wikilink")
     -   公開日: 2026-01-01
-    -   視聴数: 172,010
-    -   **いいね数: 4,057**
-    -   出演者: 
+    -   視聴数: 175,463
+    -   **いいね数: 4,121**
+    -   出演者: 勝間和代, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/F8FMA0d-fHU/hqdefault.jpg)](https://www.youtube.com/watch?v=F8FMA0d-fHU)
 1.  [【ReHacQ生配信】2026年はどうする？大晦日！深夜のまったり年越し【高橋弘樹vs石丸伸二vs後藤達也】](/rehacq_fan/ids/JBIKTt0y7Xg "wikilink")
     -   公開日: 2025-12-31
-    -   視聴数: 306,049
-    -   **いいね数: 6,541**
-    -   出演者: 
+    -   視聴数: 306,856
+    -   **いいね数: 6,553**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 林尚弘, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [馬場伸幸](/rehacq_fan/people/馬場伸幸 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/JBIKTt0y7Xg/hqdefault.jpg)](https://www.youtube.com/watch?v=JBIKTt0y7Xg)
 
 # ReHacQの人気動画
@@ -58,19 +58,19 @@
 ## 時系列データ
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 4, 視聴数: 321,395, いいね数: 7,100
+-   動画数: 4, 視聴数: 329,728, いいね数: 7,218
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 10,965,096, いいね数: 156,178
+-   動画数: 83, 視聴数: 10,966,734, いいね数: 156,203
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,261,911, いいね数: 164,451
+-   動画数: 79, 視聴数: 11,262,094, いいね数: 164,453
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,307,653, いいね数: 337,193
+-   動画数: 102, 視聴数: 23,309,316, いいね数: 337,204
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -86,7 +86,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,836,583, いいね数: 306,214
+-   動画数: 78, 視聴数: 16,848,778, いいね数: 306,331
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -166,23 +166,23 @@
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,322,643, いいね数: 171,747
+-   動画数: 33, 視聴数: 12,329,533, いいね数: 171,761
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,464,383, いいね数: 86,566
+-   動画数: 27, 視聴数: 6,465,469, いいね数: 86,574
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,599,585, いいね数: 128,110
+-   動画数: 33, 視聴数: 11,600,897, いいね数: 128,108
 
 #### [2023年07月](videos/202307 "wikilink")
 
--   動画数: 30, 視聴数: 11,595,162, いいね数: 141,059
+-   動画数: 30, 視聴数: 11,595,293, いいね数: 141,057
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,801,329, いいね数: 95,171
+-   動画数: 27, 視聴数: 7,801,589, いいね数: 95,171
 
 #### [2023年05月](videos/202305 "wikilink")
 
@@ -194,7 +194,7 @@
 
 #### [2023年03月](videos/202303 "wikilink")
 
--   動画数: 14, 視聴数: 7,997,680, いいね数: 141,303
+-   動画数: 14, 視聴数: 7,997,725, いいね数: 141,301
 
 ---
-2026-01-03 12:00
+2026-01-03 13:00
