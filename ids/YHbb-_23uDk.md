@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs川上量生】大学受験は不要？乱立する大学の役割とは【 ReHacQvs笹川順平vs中村伊知哉】](https://www.youtube.com/watch?v=YHbb-_23uDk)
 [![](https://img.youtube.com/vi/YHbb-_23uDk/sddefault.jpg)](https://www.youtube.com/watch?v=YHbb-_23uDk)
 -   公開日: 2025-12-27
--   視聴数: 27,808
--   **いいね数: 352**
+-   視聴数: 34,225
+-   **いいね数: 412**
 -   出演者: 中村伊知哉, [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 笹川順平
