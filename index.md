@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
+1.  [【後藤達也vs地経学②】中国が覇権取る？核保有に変わる日本の戦略とは？【ReHacQvs鈴木一人】](/rehacq_fan/ids/0ab18XjFT74 "wikilink")
+    -   公開日: 2026-01-05
+    -   視聴数: 3,484
+    -   **いいね数: 106**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/0ab18XjFT74/hqdefault.jpg)](https://www.youtube.com/watch?v=0ab18XjFT74)
 1.  [【高橋弘樹vs老化】衝撃研究！寿命を伸ばす栄養素？健康的な食事量とは【ReHacQvs小幡史明】](/rehacq_fan/ids/NU5BsXYOTC4 "wikilink")
     -   公開日: 2026-01-05
-    -   視聴数: 3,451
-    -   **いいね数: 142**
+    -   視聴数: 6,804
+    -   **いいね数: 266**
     -   出演者: 
     - [![](https://img.youtube.com/vi/NU5BsXYOTC4/hqdefault.jpg)](https://www.youtube.com/watch?v=NU5BsXYOTC4)
 1.  [【ベネズエラ空爆の衝撃】目的は原油か？トランプ大統領が「斬首作戦」決行！大統領拘束…真意を探る【ReHacQ戦場ジャーナリストvs前嶋和弘vs坂口安紀】](/rehacq_fan/ids/tpMNbPkFCKA "wikilink")
     -   公開日: 2026-01-04
-    -   視聴数: 221,753
-    -   **いいね数: 3,080**
+    -   視聴数: 227,195
+    -   **いいね数: 3,154**
     -   出演者: 
     - [![](https://img.youtube.com/vi/tpMNbPkFCKA/hqdefault.jpg)](https://www.youtube.com/watch?v=tpMNbPkFCKA)
 1.  [【石丸伸二vs元ゴールドマンサックス②】なぜ渋谷から北海道の田舎へ？一蓮托生！新しい街の作り方【ReHacQvs舘林真一】](/rehacq_fan/ids/w7afTaYuxVs "wikilink")
     -   公開日: 2026-01-04
-    -   視聴数: 45,650
-    -   **いいね数: 2,781**
+    -   視聴数: 46,828
+    -   **いいね数: 2,809**
     -   出演者: 
     - [![](https://img.youtube.com/vi/w7afTaYuxVs/hqdefault.jpg)](https://www.youtube.com/watch?v=w7afTaYuxVs)
-1.  [【後藤達也vs地経学②】中国が覇権取る？核保有に変わる日本の戦略とは？【ReHacQvs鈴木一人】](/rehacq_fan/ids/0ab18XjFT74 "wikilink")
-    -   公開日: 2026-01-04
-    -   視聴数: 1
-    -   **いいね数: 12**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/0ab18XjFT74/hqdefault.jpg)](https://www.youtube.com/watch?v=0ab18XjFT74)
 1.  [【高橋弘樹vs辞めフジテレビ】なぜ退社？悩みを告白…コンプラ推進局の葛藤とは？笹木泰斗【ReHacQ】](/rehacq_fan/ids/PI7q6EjEWcE "wikilink")
     -   公開日: 2026-01-04
-    -   視聴数: 242,767
-    -   **いいね数: 3,021**
+    -   視聴数: 246,389
+    -   **いいね数: 3,039**
     -   出演者: 
     - [![](https://img.youtube.com/vi/PI7q6EjEWcE/hqdefault.jpg)](https://www.youtube.com/watch?v=PI7q6EjEWcE)
 
@@ -58,15 +58,15 @@
 ## 時系列データ
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 8, 視聴数: 1,098,521, いいね数: 19,785
+-   動画数: 9, 視聴数: 1,117,921, いいね数: 20,170
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 11,152,083, いいね数: 158,632
+-   動画数: 83, 視聴数: 11,152,579, いいね数: 158,639
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,283,278, いいね数: 164,721
+-   動画数: 79, 視聴数: 11,284,994, いいね数: 164,732
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -74,11 +74,11 @@
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,399,209, いいね数: 269,941
+-   動画数: 87, 視聴数: 16,400,682, いいね数: 269,975
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,732,144, いいね数: 262,609
+-   動画数: 65, 視聴数: 14,742,030, いいね数: 262,639
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -126,11 +126,11 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 20,194,727, いいね数: 327,509
+-   動画数: 43, 視聴数: 20,198,017, いいね数: 327,543
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,953,942, いいね数: 291,118
+-   動画数: 44, 視聴数: 15,956,820, いいね数: 291,117
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -197,4 +197,4 @@
 -   動画数: 14, 視聴数: 8,002,919, いいね数: 141,307
 
 ---
-2026-01-05 21:00
+2026-01-05 22:00
