@@ -1,6 +1,6 @@
 ### [【肝臓リスクvs天才物理学者】専門医が忠告する肝臓NG行動TOP５！年末年始は危険信号？酒好き加藤シルビアアナも…【ReHacQ】](https://www.youtube.com/watch?v=gPvOaONwAxk)
 [![](https://img.youtube.com/vi/gPvOaONwAxk/sddefault.jpg)](https://www.youtube.com/watch?v=gPvOaONwAxk)
 -   公開日: 2025-12-23
--   視聴数: 49,695
--   **いいね数: 715**
+-   視聴数: 54,884
+-   **いいね数: 784**
 -   出演者: 加藤シルビア, 米田正人, [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
