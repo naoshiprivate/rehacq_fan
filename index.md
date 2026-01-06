@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【後藤達也vs地経学②】中国が覇権取る？核保有に変わる日本の戦略とは？【ReHacQvs鈴木一人】](/rehacq_fan/ids/0ab18XjFT74 "wikilink")
     -   公開日: 2026-01-05
-    -   視聴数: 22,786
-    -   **いいね数: 378**
+    -   視聴数: 30,529
+    -   **いいね数: 485**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [鈴木一人](/rehacq_fan/people/鈴木一人 "wikilink")
     - [![](https://img.youtube.com/vi/0ab18XjFT74/hqdefault.jpg)](https://www.youtube.com/watch?v=0ab18XjFT74)
 1.  [【高橋弘樹vs老化】衝撃研究！寿命を伸ばす栄養素？健康的な食事量とは【ReHacQvs小幡史明】](/rehacq_fan/ids/NU5BsXYOTC4 "wikilink")
     -   公開日: 2026-01-05
-    -   視聴数: 48,303
-    -   **いいね数: 854**
+    -   視聴数: 79,266
+    -   **いいね数: 1,290**
     -   出演者: 小幡史明, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/NU5BsXYOTC4/hqdefault.jpg)](https://www.youtube.com/watch?v=NU5BsXYOTC4)
 1.  [【ベネズエラ空爆の衝撃】目的は原油か？トランプ大統領が「斬首作戦」決行！大統領拘束…真意を探る【ReHacQ戦場ジャーナリストvs前嶋和弘vs坂口安紀】](/rehacq_fan/ids/tpMNbPkFCKA "wikilink")
     -   公開日: 2026-01-04
-    -   視聴数: 259,055
-    -   **いいね数: 3,421**
+    -   視聴数: 269,736
+    -   **いいね数: 3,532**
     -   出演者: [前嶋和弘](/rehacq_fan/people/前嶋和弘 "wikilink"), 坂口安紀, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/tpMNbPkFCKA/hqdefault.jpg)](https://www.youtube.com/watch?v=tpMNbPkFCKA)
 1.  [【石丸伸二vs元ゴールドマンサックス②】なぜ渋谷から北海道の田舎へ？一蓮托生！新しい街の作り方【ReHacQvs舘林真一】](/rehacq_fan/ids/w7afTaYuxVs "wikilink")
     -   公開日: 2026-01-04
-    -   視聴数: 51,512
-    -   **いいね数: 2,879**
+    -   視聴数: 53,346
+    -   **いいね数: 2,948**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 舘林真一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/w7afTaYuxVs/hqdefault.jpg)](https://www.youtube.com/watch?v=w7afTaYuxVs)
 1.  [【高橋弘樹vs辞めフジテレビ】なぜ退社？悩みを告白…コンプラ推進局の葛藤とは？笹木泰斗【ReHacQ】](/rehacq_fan/ids/PI7q6EjEWcE "wikilink")
     -   公開日: 2026-01-04
-    -   視聴数: 268,739
-    -   **いいね数: 3,171**
+    -   視聴数: 278,759
+    -   **いいね数: 3,244**
     -   出演者: 笹木泰斗, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/PI7q6EjEWcE/hqdefault.jpg)](https://www.youtube.com/watch?v=PI7q6EjEWcE)
 
@@ -40,8 +40,8 @@
     - [![](https://img.youtube.com/vi/H6ZVuj7IGOM/hqdefault.jpg)](https://www.youtube.com/watch?v=H6ZVuj7IGOM)
 1.  [【藤田晋が緊急出演】「人生は不平等、だから…」メディア最後の出演！全ビジネスパーソンに伝えたい事【ReHacQ高橋弘樹】](/rehacq_fan/ids/kT34SGVBs6Y "wikilink")
     -   公開日: 2025-12-13
-    -   視聴数: 771,924
-    -   **いいね数: 9,619**
+    -   視聴数: 789,846
+    -   **いいね数: 9,723**
     -   出演者: 藤田晋, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/kT34SGVBs6Y/hqdefault.jpg)](https://www.youtube.com/watch?v=kT34SGVBs6Y)
 
@@ -58,15 +58,15 @@
 ## 時系列データ
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 9, 視聴数: 1,252,761, いいね数: 21,654
+-   動画数: 9, 視聴数: 1,320,953, いいね数: 22,580
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 11,233,205, いいね数: 159,420
+-   動画数: 83, 視聴数: 11,256,033, いいね数: 159,568
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,309,511, いいね数: 164,888
+-   動画数: 79, 視聴数: 11,310,352, いいね数: 164,895
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -78,7 +78,7 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,746,720, いいね数: 262,644
+-   動画数: 65, 視聴数: 14,747,952, いいね数: 262,655
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -174,27 +174,27 @@
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,601,429, いいね数: 128,109
+-   動画数: 33, 視聴数: 11,601,993, いいね数: 128,107
 
 #### [2023年07月](videos/202307 "wikilink")
 
--   動画数: 30, 視聴数: 11,595,683, いいね数: 141,059
+-   動画数: 30, 視聴数: 11,595,772, いいね数: 141,059
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,802,160, いいね数: 95,174
+-   動画数: 27, 視聴数: 7,802,443, いいね数: 95,173
 
 #### [2023年05月](videos/202305 "wikilink")
 
--   動画数: 24, 視聴数: 7,320,696, いいね数: 112,142
+-   動画数: 24, 視聴数: 7,321,053, いいね数: 112,143
 
 #### [2023年04月](videos/202304 "wikilink")
 
--   動画数: 28, 視聴数: 6,527,115, いいね数: 103,264
+-   動画数: 28, 視聴数: 6,527,258, いいね数: 103,263
 
 #### [2023年03月](videos/202303 "wikilink")
 
--   動画数: 14, 視聴数: 8,003,341, いいね数: 141,310
+-   動画数: 14, 視聴数: 8,007,650, いいね数: 141,298
 
 ---
-2026-01-06 07:00
+2026-01-06 12:00
