@@ -1,6 +1,6 @@
 ### [【野村泰紀vs宇宙最大の謎】暗黒物質がついに見えた！？世界が注目する衝撃発表とは【戸谷友則vsReHacQ】](https://www.youtube.com/watch?v=6ZBE5fQAZXM)
 [![](https://img.youtube.com/vi/6ZBE5fQAZXM/sddefault.jpg)](https://www.youtube.com/watch?v=6ZBE5fQAZXM)
 -   公開日: 2026-01-02
--   視聴数: 191,542
--   **いいね数: 3,344**
+-   視聴数: 194,952
+-   **いいね数: 3,390**
 -   出演者: 戸谷友則, [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
