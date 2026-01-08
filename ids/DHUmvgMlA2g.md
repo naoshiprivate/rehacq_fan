@@ -1,6 +1,6 @@
 ### [【生配信】チームみらい・安野代表定例会見1月8日（木）【ReHacQ】](https://www.youtube.com/watch?v=DHUmvgMlA2g)
 [![](https://img.youtube.com/vi/DHUmvgMlA2g/sddefault.jpg)](https://www.youtube.com/watch?v=DHUmvgMlA2g)
 -   公開日: 2026-01-08
--   視聴数: 5,705
--   **いいね数: 163**
+-   視聴数: 19,017
+-   **いいね数: 391**
 -   出演者: 
