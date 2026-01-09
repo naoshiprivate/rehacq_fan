@@ -1,6 +1,6 @@
 ### [【緊急生配信】アメリカがベネズエラを攻撃…トランプ大統領の狙いは？【ReHacQ】](https://www.youtube.com/watch?v=agRsHyHwqY4)
 [![](https://img.youtube.com/vi/agRsHyHwqY4/sddefault.jpg)](https://www.youtube.com/watch?v=agRsHyHwqY4)
 -   公開日: 2026-01-06
--   視聴数: 89,825
--   **いいね数: 1,139**
+-   視聴数: 90,566
+-   **いいね数: 1,147**
 -   出演者: 
