@@ -3,4 +3,4 @@
 -   公開日: 2025-03-13
 -   視聴数: 283,494
 -   **いいね数: 3,827**
--   出演者: ドズル, [宇内梨沙](/rehacq_fan/people/宇内梨沙 "wikilink")
+-   出演者: [ドズル](/rehacq_fan/people/ドズル "wikilink"), [宇内梨沙](/rehacq_fan/people/宇内梨沙 "wikilink")

@@ -3,4 +3,4 @@
 -   公開日: 2024-02-08
 -   視聴数: 254,577
 -   **いいね数: 3,763**
--   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 竹中平蔵
+-   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [竹中平蔵](/rehacq_fan/people/竹中平蔵 "wikilink")

@@ -3,4 +3,4 @@
 -   公開日: 2025-10-09
 -   視聴数: 2,012,483
 -   **いいね数: 13,547**
--   出演者: 近藤大介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [近藤大介](/rehacq_fan/people/近藤大介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

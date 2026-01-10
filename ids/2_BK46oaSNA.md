@@ -3,4 +3,4 @@
 -   公開日: 2025-12-31
 -   視聴数: 3
 -   **いいね数: 33**
--   出演者: 
+-   出演者: [ドズル](/rehacq_fan/people/ドズル "wikilink"), [片野秀樹](/rehacq_fan/people/片野秀樹 "wikilink")
