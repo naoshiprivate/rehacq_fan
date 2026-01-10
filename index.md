@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【ReHacQ緊急生配信】電撃解散か？高市政権の今後はどうなる【高橋弘樹vs今野忍vs西田亮介】](/rehacq_fan/ids/oB8a46J5zl0 "wikilink")
     -   公開日: 2026-01-10
-    -   視聴数: 40,100
-    -   **いいね数: 1,592**
+    -   視聴数: 159,864
+    -   **いいね数: 2,653**
     -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), 今野忍, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/oB8a46J5zl0/hqdefault.jpg)](https://www.youtube.com/watch?v=oB8a46J5zl0)
 1.  [【辞めフジテレビ激白】兵庫県知事選の裏側…「めざまし8」なぜ訂正なし？高市政権は…衝撃告白【 ReHacQ高橋弘樹&笹木泰斗】](/rehacq_fan/ids/OrmOGNVjAsk "wikilink")
     -   公開日: 2026-01-10
-    -   視聴数: 47,580
-    -   **いいね数: 923**
+    -   視聴数: 79,231
+    -   **いいね数: 1,185**
     -   出演者: 笹木泰斗, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/OrmOGNVjAsk/hqdefault.jpg)](https://www.youtube.com/watch?v=OrmOGNVjAsk)
 1.  [【元自衛隊最高幹部vs須賀川拓】極限のリアル…全米大ヒット『シビル・ウォー』監督最新作『ウォーフェア 戦地最前線』を読み解く【ReHacQエンタメFUKABORIN】](/rehacq_fan/ids/xhM9WwPyHPE "wikilink")
     -   公開日: 2026-01-10
-    -   視聴数: 31,548
-    -   **いいね数: 525**
+    -   視聴数: 35,056
+    -   **いいね数: 552**
     -   出演者: 河野克俊, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/xhM9WwPyHPE/hqdefault.jpg)](https://www.youtube.com/watch?v=xhM9WwPyHPE)
 1.  [【石丸伸二vsベネズエラ】中国は何を得た？ベネズエラ原油の裏側【ReHacQ須賀川vs近藤大介vs原田大輔】](/rehacq_fan/ids/P5ESOlVw8VY "wikilink")
     -   公開日: 2026-01-09
-    -   視聴数: 163,584
-    -   **いいね数: 5,100**
+    -   視聴数: 170,910
+    -   **いいね数: 5,194**
     -   出演者: 原田大輔, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [近藤大介](/rehacq_fan/people/近藤大介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/P5ESOlVw8VY/hqdefault.jpg)](https://www.youtube.com/watch?v=P5ESOlVw8VY)
 1.  [【竹中平蔵vs永濱利廣】新・旧 経済財政諮問会議メンバーが直接対談！成長戦略の核心に迫る【森本智子＆ReHacQ】](/rehacq_fan/ids/Jx88QzUn3Jw "wikilink")
     -   公開日: 2026-01-09
-    -   視聴数: 37,616
-    -   **いいね数: 695**
+    -   視聴数: 39,135
+    -   **いいね数: 707**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [竹中平蔵](/rehacq_fan/people/竹中平蔵 "wikilink")
     - [![](https://img.youtube.com/vi/Jx88QzUn3Jw/hqdefault.jpg)](https://www.youtube.com/watch?v=Jx88QzUn3Jw)
 
@@ -58,23 +58,23 @@
 ## 時系列データ
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 23, 視聴数: 2,601,424, いいね数: 49,813
+-   動画数: 23, 視聴数: 2,773,555, いいね数: 51,362
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 11,860,264, いいね数: 165,928
+-   動画数: 83, 視聴数: 11,869,461, いいね数: 165,988
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,396,197, いいね数: 165,664
+-   動画数: 79, 視聴数: 11,419,480, いいね数: 165,999
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,491,554, いいね数: 338,542
+-   動画数: 102, 視聴数: 23,491,612, いいね数: 338,541
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,481,032, いいね数: 270,471
+-   動画数: 87, 視聴数: 16,481,156, いいね数: 270,472
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -110,11 +110,11 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,659,045, いいね数: 310,045
+-   動画数: 60, 視聴数: 18,659,223, いいね数: 310,045
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 22,481,040, いいね数: 380,523
+-   動画数: 38, 視聴数: 22,481,552, いいね数: 380,522
 
 #### [2024年10月](videos/202410 "wikilink")
 
@@ -134,15 +134,15 @@
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,675,005, いいね数: 142,485
+-   動画数: 31, 視聴数: 10,675,124, いいね数: 142,487
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,752,327, いいね数: 83,512
+-   動画数: 29, 視聴数: 6,755,225, いいね数: 83,536
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,584,157, いいね数: 99,814
+-   動画数: 34, 視聴数: 9,584,247, いいね数: 99,814
 
 #### [2024年03月](videos/202403 "wikilink")
 
@@ -197,4 +197,4 @@
 -   動画数: 14, 視聴数: 8,014,761, いいね数: 141,313
 
 ---
-2026-01-11 01:00
+2026-01-11 07:00
