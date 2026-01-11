@@ -1,31 +1,31 @@
+1.  [【石丸伸二vs地方の未来】人口減少…地方で仕事を創出するには【ReHacQ高橋弘樹vs今川勝照】](/rehacq_fan/ids/xrAgZM_Ruog "wikilink")
+    -   公開日: 2026-01-11
+    -   視聴数: 14,221
+    -   **いいね数: 1,798**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/xrAgZM_Ruog/hqdefault.jpg)](https://www.youtube.com/watch?v=xrAgZM_Ruog)
 1.  [【ReHacQ緊急生配信】電撃解散か？高市政権の今後はどうなる【高橋弘樹vs今野忍vs西田亮介】](/rehacq_fan/ids/oB8a46J5zl0 "wikilink")
     -   公開日: 2026-01-10
-    -   視聴数: 240,625
-    -   **いいね数: 4,000**
+    -   視聴数: 332,305
+    -   **いいね数: 5,076**
     -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), 今野忍, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/oB8a46J5zl0/hqdefault.jpg)](https://www.youtube.com/watch?v=oB8a46J5zl0)
 1.  [【辞めフジテレビ激白】兵庫県知事選の裏側…「めざまし8」なぜ訂正なし？高市政権は…衝撃告白【 ReHacQ高橋弘樹&笹木泰斗】](/rehacq_fan/ids/OrmOGNVjAsk "wikilink")
     -   公開日: 2026-01-10
-    -   視聴数: 111,082
-    -   **いいね数: 1,606**
+    -   視聴数: 141,430
+    -   **いいね数: 1,964**
     -   出演者: 笹木泰斗, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/OrmOGNVjAsk/hqdefault.jpg)](https://www.youtube.com/watch?v=OrmOGNVjAsk)
+1.  [【石川県知事vsひろゆき】人が住まない地域が抱える国防的な危機…被災地の未来【ReHacQvs馳浩】](/rehacq_fan/ids/Ohn-Vt902cY "wikilink")
+    -   公開日: 2026-01-10
+    -   視聴数: 4
+    -   **いいね数: 22**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/Ohn-Vt902cY/hqdefault.jpg)](https://www.youtube.com/watch?v=Ohn-Vt902cY)
 1.  [【元自衛隊最高幹部vs須賀川拓】極限のリアル…全米大ヒット『シビル・ウォー』監督最新作『ウォーフェア 戦地最前線』を読み解く【ReHacQエンタメFUKABORIN】](/rehacq_fan/ids/xhM9WwPyHPE "wikilink")
     -   公開日: 2026-01-10
-    -   視聴数: 37,942
-    -   **いいね数: 604**
+    -   視聴数: 43,231
+    -   **いいね数: 670**
     -   出演者: 河野克俊, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/xhM9WwPyHPE/hqdefault.jpg)](https://www.youtube.com/watch?v=xhM9WwPyHPE)
-1.  [【石丸伸二vsベネズエラ】中国は何を得た？ベネズエラ原油の裏側【ReHacQ須賀川vs近藤大介vs原田大輔】](/rehacq_fan/ids/P5ESOlVw8VY "wikilink")
-    -   公開日: 2026-01-09
-    -   視聴数: 177,188
-    -   **いいね数: 5,366**
-    -   出演者: 原田大輔, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [近藤大介](/rehacq_fan/people/近藤大介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
-    - [![](https://img.youtube.com/vi/P5ESOlVw8VY/hqdefault.jpg)](https://www.youtube.com/watch?v=P5ESOlVw8VY)
-1.  [【竹中平蔵vs永濱利廣】新・旧 経済財政諮問会議メンバーが直接対談！成長戦略の核心に迫る【森本智子＆ReHacQ】](/rehacq_fan/ids/Jx88QzUn3Jw "wikilink")
-    -   公開日: 2026-01-09
-    -   視聴数: 40,629
-    -   **いいね数: 743**
-    -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [竹中平蔵](/rehacq_fan/people/竹中平蔵 "wikilink")
-    - [![](https://img.youtube.com/vi/Jx88QzUn3Jw/hqdefault.jpg)](https://www.youtube.com/watch?v=Jx88QzUn3Jw)
 
