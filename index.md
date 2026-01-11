@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
+1.  [【石川県知事vsひろゆき】人が住まない地域が抱える国防的な危機…被災地の未来【ReHacQvs馳浩】](/rehacq_fan/ids/Ohn-Vt902cY "wikilink")
+    -   公開日: 2026-01-11
+    -   視聴数: 4,311
+    -   **いいね数: 171**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/Ohn-Vt902cY/hqdefault.jpg)](https://www.youtube.com/watch?v=Ohn-Vt902cY)
 1.  [【石丸伸二vs地方の未来】人口減少…地方で仕事を創出するには【ReHacQ高橋弘樹vs今川勝照】](/rehacq_fan/ids/xrAgZM_Ruog "wikilink")
     -   公開日: 2026-01-11
-    -   視聴数: 14,221
-    -   **いいね数: 1,798**
+    -   視聴数: 22,048
+    -   **いいね数: 2,549**
     -   出演者: 
     - [![](https://img.youtube.com/vi/xrAgZM_Ruog/hqdefault.jpg)](https://www.youtube.com/watch?v=xrAgZM_Ruog)
 1.  [【ReHacQ緊急生配信】電撃解散か？高市政権の今後はどうなる【高橋弘樹vs今野忍vs西田亮介】](/rehacq_fan/ids/oB8a46J5zl0 "wikilink")
     -   公開日: 2026-01-10
-    -   視聴数: 332,305
-    -   **いいね数: 5,076**
+    -   視聴数: 340,091
+    -   **いいね数: 5,159**
     -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), 今野忍, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/oB8a46J5zl0/hqdefault.jpg)](https://www.youtube.com/watch?v=oB8a46J5zl0)
 1.  [【辞めフジテレビ激白】兵庫県知事選の裏側…「めざまし8」なぜ訂正なし？高市政権は…衝撃告白【 ReHacQ高橋弘樹&笹木泰斗】](/rehacq_fan/ids/OrmOGNVjAsk "wikilink")
     -   公開日: 2026-01-10
-    -   視聴数: 141,430
-    -   **いいね数: 1,964**
+    -   視聴数: 144,367
+    -   **いいね数: 1,988**
     -   出演者: 笹木泰斗, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/OrmOGNVjAsk/hqdefault.jpg)](https://www.youtube.com/watch?v=OrmOGNVjAsk)
-1.  [【石川県知事vsひろゆき】人が住まない地域が抱える国防的な危機…被災地の未来【ReHacQvs馳浩】](/rehacq_fan/ids/Ohn-Vt902cY "wikilink")
-    -   公開日: 2026-01-10
-    -   視聴数: 4
-    -   **いいね数: 22**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/Ohn-Vt902cY/hqdefault.jpg)](https://www.youtube.com/watch?v=Ohn-Vt902cY)
 1.  [【元自衛隊最高幹部vs須賀川拓】極限のリアル…全米大ヒット『シビル・ウォー』監督最新作『ウォーフェア 戦地最前線』を読み解く【ReHacQエンタメFUKABORIN】](/rehacq_fan/ids/xhM9WwPyHPE "wikilink")
     -   公開日: 2026-01-10
-    -   視聴数: 43,231
-    -   **いいね数: 670**
+    -   視聴数: 43,759
+    -   **いいね数: 675**
     -   出演者: 河野克俊, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/xhM9WwPyHPE/hqdefault.jpg)](https://www.youtube.com/watch?v=xhM9WwPyHPE)
 
@@ -58,7 +58,7 @@
 ## 時系列データ
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 24, 視聴数: 3,081,999, いいね数: 57,547
+-   動画数: 25, 視聴数: 3,108,616, いいね数: 58,637
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -66,19 +66,19 @@
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,419,623, いいね数: 166,001
+-   動画数: 79, 視聴数: 11,420,884, いいね数: 166,010
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,494,248, いいね数: 338,581
+-   動画数: 102, 視聴数: 23,494,626, いいね数: 338,586
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,501,504, いいね数: 270,648
+-   動画数: 87, 視聴数: 16,501,547, いいね数: 270,648
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,788,289, いいね数: 262,938
+-   動画数: 65, 視聴数: 14,797,147, いいね数: 262,940
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -126,11 +126,11 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 20,220,524, いいね数: 327,727
+-   動画数: 43, 視聴数: 20,221,425, いいね数: 327,730
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,974,200, いいね数: 291,187
+-   動画数: 44, 視聴数: 15,976,931, いいね数: 291,180
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -197,4 +197,4 @@
 -   動画数: 14, 視聴数: 8,014,761, いいね数: 141,313
 
 ---
-2026-01-11 21:00
+2026-01-11 22:00
