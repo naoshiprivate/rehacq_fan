@@ -202,8 +202,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮沢洋一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸市長vs副議長】安芸高田！奥広島のまったり旅…西田亮介【清志会vs毛利元就】](/rehacq_fan/ids/qMR_6XOPwvY "wikilink")
     -   公開日: 2024-01-21
-    -   視聴数: 1,483,244
-    -   **いいね数: 21,366**
+    -   視聴数: 1,483,470
+    -   **いいね数: 21,364**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](/rehacq_fan/ids/2XMbvuYkbeQ "wikilink")
     -   公開日: 2023-12-28
@@ -415,16 +415,16 @@
     -   視聴数: 807,268
     -   **いいね数: 16,083**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
+1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](/rehacq_fan/ids/xVW1qk9pj9s "wikilink")
+    -   公開日: 2025-01-22
+    -   視聴数: 1,184,824
+    -   **いいね数: 16,083**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsボビー・オロゴン】兄弟34人！父のスパルタ教育とは？【ガチの一夫多妻制】](/rehacq_fan/ids/hvJ0lBxFILU "wikilink")
     -   公開日: 2024-08-04
     -   視聴数: 1,067,059
     -   **いいね数: 16,000**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
-1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](/rehacq_fan/ids/xVW1qk9pj9s "wikilink")
-    -   公開日: 2025-01-22
-    -   視聴数: 1,166,033
-    -   **いいね数: 15,898**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](/rehacq_fan/ids/LyfcqUBmBlc "wikilink")
     -   公開日: 2024-06-15
     -   視聴数: 1,236,893
@@ -482,8 +482,8 @@
     -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【神谷宗幣vs高橋弘樹】参政党にNG無し質問！【西田亮介vs参政党】](/rehacq_fan/ids/sXNTlkaZOYo "wikilink")
     -   公開日: 2025-07-15
-    -   視聴数: 737,649
-    -   **いいね数: 15,298**
+    -   視聴数: 737,848
+    -   **いいね数: 15,299**
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ×年越し】大晦日！ベロベロ生テレビ【石丸伸二＆ひろゆき＆後藤達也】](/rehacq_fan/ids/kJ2-KHagA8s "wikilink")
     -   公開日: 2024-12-31

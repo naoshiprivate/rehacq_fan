@@ -167,8 +167,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸市長vs副議長】安芸高田！奥広島のまったり旅…西田亮介【清志会vs毛利元就】](/rehacq_fan/ids/qMR_6XOPwvY "wikilink")
     -   公開日: 2024-01-21
-    -   視聴数: 1,483,244
-    -   **いいね数: 21,366**
+    -   視聴数: 1,483,470
+    -   **いいね数: 21,364**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔が推薦の天才】シン量子力学！6歳にわかるように説明してみよう！【ReHacQvs野村泰紀】](/rehacq_fan/ids/DEG9OZoYzIU "wikilink")
     -   公開日: 2024-03-02
@@ -292,8 +292,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](/rehacq_fan/ids/xVW1qk9pj9s "wikilink")
     -   公開日: 2025-01-22
-    -   視聴数: 1,166,033
-    -   **いいね数: 15,898**
+    -   視聴数: 1,184,824
+    -   **いいね数: 16,083**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](/rehacq_fan/ids/-67Yfoti-W0 "wikilink")
     -   公開日: 2024-08-07
