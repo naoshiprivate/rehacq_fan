@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【疲労の抑制方法】放置は危険！疲労の本当の原因＆対策を知ればストレス社会を乗り切れる！？【ドズル＆片野秀樹&ReHacQ】](/rehacq_fan/ids/eEoOchr_jdk "wikilink")
     -   公開日: 2026-01-12
-    -   視聴数: 5,709
-    -   **いいね数: 159**
+    -   視聴数: 8,197
+    -   **いいね数: 180**
     -   出演者: [ドズル](/rehacq_fan/people/ドズル "wikilink"), [片野秀樹](/rehacq_fan/people/片野秀樹 "wikilink")
     - [![](https://img.youtube.com/vi/eEoOchr_jdk/hqdefault.jpg)](https://www.youtube.com/watch?v=eEoOchr_jdk)
 1.  [【野村泰紀vs戸谷友則】大暴露！暗黒物質研究の裏側！白熱する研究者ガチトーク【フェルミvsReHacQ】](/rehacq_fan/ids/p30fgjFrAtY "wikilink")
     -   公開日: 2026-01-12
-    -   視聴数: 13,306
-    -   **いいね数: 534**
+    -   視聴数: 16,726
+    -   **いいね数: 587**
     -   出演者: 戸谷友則, [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
     - [![](https://img.youtube.com/vi/p30fgjFrAtY/hqdefault.jpg)](https://www.youtube.com/watch?v=p30fgjFrAtY)
 1.  [【石川県知事vsひろゆき】人が住まない地域が抱える国防的な危機…被災地の未来【ReHacQvs馳浩】](/rehacq_fan/ids/Ohn-Vt902cY "wikilink")
     -   公開日: 2026-01-11
-    -   視聴数: 53,342
-    -   **いいね数: 884**
+    -   視聴数: 54,322
+    -   **いいね数: 892**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 馳浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/Ohn-Vt902cY/hqdefault.jpg)](https://www.youtube.com/watch?v=Ohn-Vt902cY)
 1.  [【石丸伸二vs地方の未来】人口減少…地方で仕事を創出するには【ReHacQ高橋弘樹vs今川勝照】](/rehacq_fan/ids/xrAgZM_Ruog "wikilink")
     -   公開日: 2026-01-11
-    -   視聴数: 155,062
-    -   **いいね数: 5,165**
+    -   視聴数: 157,055
+    -   **いいね数: 5,184**
     -   出演者: 今川勝照, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/xrAgZM_Ruog/hqdefault.jpg)](https://www.youtube.com/watch?v=xrAgZM_Ruog)
 1.  [【ReHacQ緊急生配信】電撃解散か？高市政権の今後はどうなる【高橋弘樹vs今野忍vs西田亮介】](/rehacq_fan/ids/oB8a46J5zl0 "wikilink")
     -   公開日: 2026-01-10
-    -   視聴数: 448,274
-    -   **いいね数: 6,143**
+    -   視聴数: 451,848
+    -   **いいね数: 6,167**
     -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), 今野忍, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/oB8a46J5zl0/hqdefault.jpg)](https://www.youtube.com/watch?v=oB8a46J5zl0)
 
@@ -64,23 +64,23 @@
 ## 時系列データ
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 28, 視聴数: 3,686,386, いいね数: 68,570
+-   動画数: 28, 視聴数: 3,702,774, いいね数: 68,734
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 12,130,843, いいね数: 168,576
+-   動画数: 83, 視聴数: 12,153,451, いいね数: 168,800
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,454,869, いいね数: 166,237
+-   動画数: 79, 視聴数: 11,458,411, いいね数: 166,259
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,501,325, いいね数: 338,671
+-   動画数: 102, 視聴数: 23,501,411, いいね数: 338,668
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,516,293, いいね数: 270,771
+-   動画数: 87, 視聴数: 16,516,350, いいね数: 270,772
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -88,11 +88,11 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 21,277,549, いいね数: 365,415
+-   動画数: 76, 視聴数: 21,277,655, いいね数: 365,418
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,951,330, いいね数: 307,403
+-   動画数: 78, 視聴数: 16,953,069, いいね数: 307,456
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -120,11 +120,11 @@
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 22,531,987, いいね数: 380,696
+-   動画数: 38, 視聴数: 22,532,968, いいね数: 380,696
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,817,526, いいね数: 342,513
+-   動画数: 72, 視聴数: 22,822,498, いいね数: 342,508
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -203,4 +203,4 @@
 -   動画数: 14, 視聴数: 8,019,452, いいね数: 141,318
 
 ---
-2026-01-13 00:00
+2026-01-13 01:00
