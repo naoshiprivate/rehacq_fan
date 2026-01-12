@@ -1,31 +1,31 @@
+1.  [【野村泰紀vs戸谷友則】大暴露！暗黒物質研究の裏側！白熱する研究者ガチトーク【フェルミvsReHacQ】](/rehacq_fan/ids/p30fgjFrAtY "wikilink")
+    -   公開日: 2026-01-12
+    -   視聴数: 3,000
+    -   **いいね数: 199**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/p30fgjFrAtY/hqdefault.jpg)](https://www.youtube.com/watch?v=p30fgjFrAtY)
+1.  [【疲労の抑制方法】放置は危険！疲労の本当の原因＆対策を知ればストレス社会を乗り切れる！？【ドズル＆片野秀樹&ReHacQ】](/rehacq_fan/ids/eEoOchr_jdk "wikilink")
+    -   公開日: 2026-01-12
+    -   視聴数: 2
+    -   **いいね数: 14**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/eEoOchr_jdk/hqdefault.jpg)](https://www.youtube.com/watch?v=eEoOchr_jdk)
 1.  [【石川県知事vsひろゆき】人が住まない地域が抱える国防的な危機…被災地の未来【ReHacQvs馳浩】](/rehacq_fan/ids/Ohn-Vt902cY "wikilink")
     -   公開日: 2026-01-11
-    -   視聴数: 38,698
-    -   **いいね数: 683**
+    -   視聴数: 50,267
+    -   **いいね数: 849**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Ohn-Vt902cY/hqdefault.jpg)](https://www.youtube.com/watch?v=Ohn-Vt902cY)
 1.  [【石丸伸二vs地方の未来】人口減少…地方で仕事を創出するには【ReHacQ高橋弘樹vs今川勝照】](/rehacq_fan/ids/xrAgZM_Ruog "wikilink")
     -   公開日: 2026-01-11
-    -   視聴数: 124,414
-    -   **いいね数: 4,574**
+    -   視聴数: 148,501
+    -   **いいね数: 5,062**
     -   出演者: 
     - [![](https://img.youtube.com/vi/xrAgZM_Ruog/hqdefault.jpg)](https://www.youtube.com/watch?v=xrAgZM_Ruog)
 1.  [【ReHacQ緊急生配信】電撃解散か？高市政権の今後はどうなる【高橋弘樹vs今野忍vs西田亮介】](/rehacq_fan/ids/oB8a46J5zl0 "wikilink")
     -   公開日: 2026-01-10
-    -   視聴数: 410,493
-    -   **いいね数: 5,777**
+    -   視聴数: 439,211
+    -   **いいね数: 6,049**
     -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), 今野忍, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/oB8a46J5zl0/hqdefault.jpg)](https://www.youtube.com/watch?v=oB8a46J5zl0)
-1.  [【辞めフジテレビ激白】兵庫県知事選の裏側…「めざまし8」なぜ訂正なし？高市政権は…衝撃告白【 ReHacQ高橋弘樹&笹木泰斗】](/rehacq_fan/ids/OrmOGNVjAsk "wikilink")
-    -   公開日: 2026-01-10
-    -   視聴数: 175,517
-    -   **いいね数: 2,330**
-    -   出演者: 笹木泰斗, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/OrmOGNVjAsk/hqdefault.jpg)](https://www.youtube.com/watch?v=OrmOGNVjAsk)
-1.  [【元自衛隊最高幹部vs須賀川拓】極限のリアル…全米大ヒット『シビル・ウォー』監督最新作『ウォーフェア 戦地最前線』を読み解く【ReHacQエンタメFUKABORIN】](/rehacq_fan/ids/xhM9WwPyHPE "wikilink")
-    -   公開日: 2026-01-10
-    -   視聴数: 50,083
-    -   **いいね数: 766**
-    -   出演者: 河野克俊, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
-    - [![](https://img.youtube.com/vi/xhM9WwPyHPE/hqdefault.jpg)](https://www.youtube.com/watch?v=xhM9WwPyHPE)
 
