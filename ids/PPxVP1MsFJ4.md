@@ -1,6 +1,6 @@
-### [【生配信】国民民主党・玉木代表定例会見 1月13日（火）【ReHacQ】](https://www.youtube.com/watch?v=PPxVP1MsFJ4)
+### [【生配信・国民民主党】高市政権の解散にクギ「信頼が揺らぐ」【ReHacQ記者会見 1月13日(火)】](https://www.youtube.com/watch?v=PPxVP1MsFJ4)
 [![](https://img.youtube.com/vi/PPxVP1MsFJ4/sddefault.jpg)](https://www.youtube.com/watch?v=PPxVP1MsFJ4)
 -   公開日: 2026-01-13
--   視聴数: 10,547
--   **いいね数: 195**
+-   視聴数: 21,460
+-   **いいね数: 301**
 -   出演者: 
