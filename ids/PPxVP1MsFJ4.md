@@ -1,6 +1,6 @@
 ### [【生配信・国民民主党】高市政権の解散にクギ「信頼が揺らぐ」【ReHacQ記者会見 1月13日(火)】](https://www.youtube.com/watch?v=PPxVP1MsFJ4)
 [![](https://img.youtube.com/vi/PPxVP1MsFJ4/sddefault.jpg)](https://www.youtube.com/watch?v=PPxVP1MsFJ4)
 -   公開日: 2026-01-13
--   視聴数: 27,925
+-   視聴数: 28,104
 -   **いいね数: 341**
 -   出演者: 
