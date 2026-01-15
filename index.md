@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【ReHacQ生配信】立憲と公明が「中道」掲げ新党結成へ…どうなる？【今野忍vs青柳陽一郎vs山岸一生】](/rehacq_fan/ids/b_bpJI4Jd7I "wikilink")
     -   公開日: 2026-01-15
-    -   視聴数: 83,148
-    -   **いいね数: 1,368**
+    -   視聴数: 216,413
+    -   **いいね数: 2,155**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 山岸一生, 青柳陽一郎
     - [![](https://img.youtube.com/vi/b_bpJI4Jd7I/hqdefault.jpg)](https://www.youtube.com/watch?v=b_bpJI4Jd7I)
 1.  [【生配信・日本維新の会】日本維新の会・藤田文武共同代表 記者会見【ReHacQ】](/rehacq_fan/ids/lmkw8WbwPDA "wikilink")
     -   公開日: 2026-01-15
-    -   視聴数: 19,541
-    -   **いいね数: 200**
+    -   視聴数: 21,909
+    -   **いいね数: 210**
     -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
     - [![](https://img.youtube.com/vi/lmkw8WbwPDA/hqdefault.jpg)](https://www.youtube.com/watch?v=lmkw8WbwPDA)
 1.  [【最新！推薦入試情報】先に知った者勝ち？推薦増加で混乱！？“情報戦”に取り残されるな！【トマホーク＆孫辰洋＆ReHacQ】](/rehacq_fan/ids/RPIvxn76-Uw "wikilink")
     -   公開日: 2026-01-15
-    -   視聴数: 6,458
-    -   **いいね数: 134**
+    -   視聴数: 9,472
+    -   **いいね数: 143**
     -   出演者: [孫辰洋](/rehacq_fan/people/孫辰洋 "wikilink"), 平山任真
     - [![](https://img.youtube.com/vi/RPIvxn76-Uw/hqdefault.jpg)](https://www.youtube.com/watch?v=RPIvxn76-Uw)
 1.  [【ReHacQ生配信】高市政権ついに解散決定！？まったり生配信【高橋弘樹vs土田しんvs小西ひろゆきvs中谷一馬vs足立康史vsいさ進一vs今野忍vs西田亮介】](/rehacq_fan/ids/g29iT4kgF4w "wikilink")
     -   公開日: 2026-01-14
-    -   視聴数: 465,218
-    -   **いいね数: 7,168**
+    -   視聴数: 487,027
+    -   **いいね数: 7,262**
     -   出演者: いさ進一, [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [土田しん](/rehacq_fan/people/土田しん "wikilink"), [小西ひろゆき](/rehacq_fan/people/小西ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [足立康史](/rehacq_fan/people/足立康史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/g29iT4kgF4w/hqdefault.jpg)](https://www.youtube.com/watch?v=g29iT4kgF4w)
 1.  [【高橋弘樹vs進化生物学者】他人の不幸は蜜の味…なぜ？嫉妬と裏切りの戦略とは？【ReHacQ】](/rehacq_fan/ids/DQcgucDiy3Q "wikilink")
     -   公開日: 2026-01-14
-    -   視聴数: 36,755
-    -   **いいね数: 945**
+    -   視聴数: 40,437
+    -   **いいね数: 999**
     -   出演者: 小林佳世子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/DQcgucDiy3Q/hqdefault.jpg)](https://www.youtube.com/watch?v=DQcgucDiy3Q)
 
@@ -70,11 +70,11 @@
 ## 時系列データ
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 37, 視聴数: 5,048,000, いいね数: 87,650
+-   動画数: 37, 視聴数: 5,238,641, いいね数: 88,756
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 12,424,967, いいね数: 171,240
+-   動画数: 83, 視聴数: 12,426,252, いいね数: 171,244
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -82,11 +82,11 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,551,198, いいね数: 338,888
+-   動画数: 102, 視聴数: 23,553,731, いいね数: 338,923
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,580,719, いいね数: 271,207
+-   動画数: 87, 視聴数: 16,581,289, いいね数: 271,216
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -94,7 +94,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 21,295,127, いいね数: 365,489
+-   動画数: 76, 視聴数: 21,299,560, いいね数: 365,555
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -102,7 +102,7 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 15,603,933, いいね数: 199,330
+-   動画数: 63, 視聴数: 15,605,657, いいね数: 199,345
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -166,19 +166,19 @@
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,394,463, いいね数: 118,900
+-   動画数: 30, 視聴数: 9,394,501, いいね数: 118,899
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,519,910, いいね数: 121,804
+-   動画数: 30, 視聴数: 9,519,988, いいね数: 121,803
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,374,287, いいね数: 143,069
+-   動画数: 25, 視聴数: 13,374,335, いいね数: 143,069
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,363,485, いいね数: 171,924
+-   動画数: 33, 視聴数: 12,363,509, いいね数: 171,924
 
 #### [2023年09月](videos/202309 "wikilink")
 
@@ -209,4 +209,4 @@
 -   動画数: 14, 視聴数: 8,021,756, いいね数: 141,335
 
 ---
-2026-01-16 01:00
+2026-01-16 07:00
