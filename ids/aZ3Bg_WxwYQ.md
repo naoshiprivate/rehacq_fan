@@ -3,4 +3,4 @@
 -   公開日: 2025-12-29
 -   視聴数: 339,699
 -   **いいね数: 4,435**
--   出演者: 今野忍, 田中裕之, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 田中裕之, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

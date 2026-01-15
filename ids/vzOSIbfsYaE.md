@@ -3,4 +3,4 @@
 -   公開日: 2025-12-16
 -   視聴数: 145,643
 -   **いいね数: 1,695**
--   出演者: 孫辰洋, [河村真木子](/rehacq_fan/people/河村真木子 "wikilink")
+-   出演者: [孫辰洋](/rehacq_fan/people/孫辰洋 "wikilink"), [河村真木子](/rehacq_fan/people/河村真木子 "wikilink")
