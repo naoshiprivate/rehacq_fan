@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】立憲と公明が「中道」掲げ新党結成へ…どうなる？【今野忍vs青柳陽一郎vs山岸一生】](https://www.youtube.com/watch?v=b_bpJI4Jd7I)
 [![](https://img.youtube.com/vi/b_bpJI4Jd7I/sddefault.jpg)](https://www.youtube.com/watch?v=b_bpJI4Jd7I)
 -   公開日: 2026-01-15
--   視聴数: 216,413
--   **いいね数: 2,155**
+-   視聴数: 267,858
+-   **いいね数: 2,720**
 -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 山岸一生, 青柳陽一郎
