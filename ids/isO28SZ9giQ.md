@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/isO28SZ9giQ/sddefault.jpg)](https://www.youtube.com/watch?v=isO28SZ9giQ)
 -   公開日: 2023-03-11
 -   視聴数: 183,347
--   **いいね数: 3,718**
+-   **いいね数: 3,717**
 -   出演者: 鈴木美穂
