@@ -1,41 +1,41 @@
 # ReHacQ 最近の動画
+1.  [【ReHacQ討論会】福井県知事選ネット討論会 【高橋弘樹】](/rehacq_fan/ids/ODRmMdSeu9w "wikilink")
+    -   公開日: 2026-01-17
+    -   視聴数: 4,109
+    -   **いいね数: 114**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/ODRmMdSeu9w/hqdefault.jpg)](https://www.youtube.com/watch?v=ODRmMdSeu9w)
 1.  [【ReHacQ生配信】チームみらい安野貴博党首【高橋弘樹】](/rehacq_fan/ids/xvxvCvMgn_w "wikilink")
     -   公開日: 2026-01-17
-    -   視聴数: 30,760
-    -   **いいね数: 1,275**
+    -   視聴数: 59,379
+    -   **いいね数: 1,821**
     -   出演者: 
     - [![](https://img.youtube.com/vi/xvxvCvMgn_w/hqdefault.jpg)](https://www.youtube.com/watch?v=xvxvCvMgn_w)
 1.  [【高橋弘樹vs髭男爵・山田ルイ53世】「人生に夢がないとダメ...？」引きこもり6年経験、社交・趣味・夢全部なし！キラキラしない人生の送り方とは？【ReHacQ】](/rehacq_fan/ids/ECMC_0Y2zmg "wikilink")
     -   公開日: 2026-01-17
-    -   視聴数: 74,764
-    -   **いいね数: 1,783**
+    -   視聴数: 79,361
+    -   **いいね数: 1,836**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ECMC_0Y2zmg/hqdefault.jpg)](https://www.youtube.com/watch?v=ECMC_0Y2zmg)
 1.  [【米国景気の影響】2026年は減速or再加速？マーケットの主役企業どうなる？日本への影響は？【宮嵜 浩&永濱利廣&森本智子&ReHacQ】](/rehacq_fan/ids/O_dcjhb_PFU "wikilink")
     -   公開日: 2026-01-16
-    -   視聴数: 35,258
-    -   **いいね数: 340**
+    -   視聴数: 35,516
+    -   **いいね数: 343**
     -   出演者: 
     - [![](https://img.youtube.com/vi/O_dcjhb_PFU/hqdefault.jpg)](https://www.youtube.com/watch?v=O_dcjhb_PFU)
 1.  [【ReHacQ生配信】立憲と公明が「中道」掲げ新党結成へ…どうなる？【高橋弘樹vs今野忍vs青柳陽一郎vs山岸一生】](/rehacq_fan/ids/b_bpJI4Jd7I "wikilink")
     -   公開日: 2026-01-15
-    -   視聴数: 392,348
-    -   **いいね数: 3,707**
+    -   視聴数: 393,849
+    -   **いいね数: 3,715**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 山岸一生, 青柳陽一郎
     - [![](https://img.youtube.com/vi/b_bpJI4Jd7I/hqdefault.jpg)](https://www.youtube.com/watch?v=b_bpJI4Jd7I)
-1.  [【生配信・日本維新の会】日本維新の会・藤田文武共同代表 記者会見【ReHacQ】](/rehacq_fan/ids/lmkw8WbwPDA "wikilink")
-    -   公開日: 2026-01-15
-    -   視聴数: 26,915
-    -   **いいね数: 250**
-    -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
-    - [![](https://img.youtube.com/vi/lmkw8WbwPDA/hqdefault.jpg)](https://www.youtube.com/watch?v=lmkw8WbwPDA)
 
 # ReHacQの人気動画
 ## 最近の人気動画
 1.  [【ReHacQ生配信】高市政権ついに解散決定！？まったり生配信【高橋弘樹vs土田しんvs小西ひろゆきvs中谷一馬vs足立康史vsいさ進一vs今野忍vs西田亮介】](/rehacq_fan/ids/g29iT4kgF4w "wikilink")
     -   公開日: 2026-01-14
-    -   視聴数: 570,033
-    -   **いいね数: 7,893**
+    -   視聴数: 571,481
+    -   **いいね数: 7,905**
     -   出演者: いさ進一, [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [土田しん](/rehacq_fan/people/土田しん "wikilink"), [小西ひろゆき](/rehacq_fan/people/小西ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [足立康史](/rehacq_fan/people/足立康史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/g29iT4kgF4w/hqdefault.jpg)](https://www.youtube.com/watch?v=g29iT4kgF4w)
 1.  [【ReHacQ緊急生配信】電撃解散か？高市政権の今後はどうなる【高橋弘樹vs今野忍vs西田亮介】](/rehacq_fan/ids/oB8a46J5zl0 "wikilink")
@@ -76,7 +76,7 @@
 ## 時系列データ
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 40, 視聴数: 5,866,932, いいね数: 97,862
+-   動画数: 41, 視聴数: 5,909,019, いいね数: 98,626
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -84,7 +84,7 @@
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,551,416, いいね数: 167,149
+-   動画数: 79, 視聴数: 11,552,640, いいね数: 167,155
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -92,11 +92,11 @@
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,600,129, いいね数: 271,368
+-   動画数: 87, 視聴数: 16,602,190, いいね数: 271,386
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,839,062, いいね数: 263,173
+-   動画数: 65, 視聴数: 14,846,051, いいね数: 263,188
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -144,11 +144,11 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 20,244,122, いいね数: 327,905
+-   動画数: 43, 視聴数: 20,245,145, いいね数: 327,907
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,991,423, いいね数: 291,223
+-   動画数: 44, 視聴数: 15,993,503, いいね数: 291,217
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -215,4 +215,4 @@
 -   動画数: 14, 視聴数: 8,025,437, いいね数: 141,338
 
 ---
-2026-01-17 22:00
+2026-01-17 23:00
