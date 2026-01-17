@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/7NXiwGwdQNc/sddefault.jpg)](https://www.youtube.com/watch?v=7NXiwGwdQNc)
 -   公開日: 2024-07-04
 -   視聴数: 52,019
--   **いいね数: 1,054**
+-   **いいね数: 1,053**
 -   出演者: [奥井奈南](/rehacq_fan/people/奥井奈南 "wikilink"), [安野たかひろ](/rehacq_fan/people/安野たかひろ "wikilink")
