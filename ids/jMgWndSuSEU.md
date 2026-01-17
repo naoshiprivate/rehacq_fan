@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/jMgWndSuSEU/sddefault.jpg)](https://www.youtube.com/watch?v=jMgWndSuSEU)
 -   公開日: 2024-03-28
 -   視聴数: 33,976
--   **いいね数: 1,030**
+-   **いいね数: 1,029**
 -   出演者: 青木栄美子
