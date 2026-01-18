@@ -3,4 +3,4 @@
 -   公開日: 2024-09-13
 -   視聴数: 152,285
 -   **いいね数: 2,208**
--   出演者: 岸博幸, 萩生田光一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: 岸博幸, [萩生田光一](/rehacq_fan/people/萩生田光一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
