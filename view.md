@@ -102,8 +102,8 @@
     -   出演者: [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【安芸高田市長vs不信任案提出の議員】石丸伸二の野望とは？【本音トーク】](/rehacq_fan/ids/TkJRmw7WPeI "wikilink")
     -   公開日: 2023-10-10
-    -   視聴数: 1,831,276
-    -   **いいね数: 23,708**
+    -   視聴数: 1,831,412
+    -   **いいね数: 23,704**
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【岡田斗司夫vs後藤達也】ひろゆきとホリエモンも尊敬！価値観が変わる「評価経済社会」とは【緊急出演】](/rehacq_fan/ids/oHDV4qfKJSw "wikilink")
     -   公開日: 2024-08-08
@@ -352,8 +352,8 @@
     -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs東出昌大】夏の夜！まったり雑談【アフリカ旅】](/rehacq_fan/ids/yfbTb_WzSTM "wikilink")
     -   公開日: 2023-08-20
-    -   視聴数: 1,113,656
-    -   **いいね数: 12,541**
+    -   視聴数: 1,113,936
+    -   **いいね数: 12,543**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【兵庫県知事選でも問題】公職選挙法の闇！なぜ逮捕？【石丸伸二を生んだ男】](/rehacq_fan/ids/smDf7a0Z_-w "wikilink")
     -   公開日: 2024-11-29
@@ -452,7 +452,7 @@
     -   出演者: [近藤大介](/rehacq_fan/people/近藤大介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vsメディア】なぜ揉める？安芸高田市長と本音雑談【㊙︎ゲストも登場】](/rehacq_fan/ids/3rx30yJXsLs "wikilink")
     -   公開日: 2023-10-01
-    -   視聴数: 1,014,020
+    -   視聴数: 1,014,086
     -   **いいね数: 15,621**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
@@ -480,16 +480,16 @@
     -   視聴数: 964,878
     -   **いいね数: 17,054**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
+    -   公開日: 2025-11-21
+    -   視聴数: 957,250
+    -   **いいね数: 18,203**
+    -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs兵庫県議】斎藤知事の側近が告白…なぜ辞職せず？【高橋弘樹】](/rehacq_fan/ids/V2AJCMmVW2I "wikilink")
     -   公開日: 2024-09-19
     -   視聴数: 950,932
     -   **いいね数: 15,177**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 門隆志
-1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
-    -   公開日: 2025-11-21
-    -   視聴数: 947,056
-    -   **いいね数: 18,127**
-    -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ×年越し】大晦日！ベロベロ生テレビ【石丸伸二＆ひろゆき＆後藤達也】](/rehacq_fan/ids/kJ2-KHagA8s "wikilink")
     -   公開日: 2024-12-31
     -   視聴数: 937,341
