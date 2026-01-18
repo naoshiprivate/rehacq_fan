@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/l0O-55Lnark/sddefault.jpg)](https://www.youtube.com/watch?v=l0O-55Lnark)
 -   公開日: 2025-10-16
 -   視聴数: 151,810
--   **いいね数: 1,267**
+-   **いいね数: 1,265**
 -   出演者: , [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
