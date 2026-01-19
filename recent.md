@@ -1,31 +1,31 @@
 1.  [【ReHacQ生配信】高市政権ついに解散決定！！まったり生配信【今野忍vs斎藤幸平vs石丸伸二vs西田 亮介vs高橋弘樹】](/rehacq_fan/ids/YGHeNFILGeg "wikilink")
     -   公開日: 2026-01-19
-    -   視聴数: 78,298
-    -   **いいね数: 4,480**
+    -   視聴数: 237,521
+    -   **いいね数: 6,496**
     -   出演者: 
     - [![](https://img.youtube.com/vi/YGHeNFILGeg/hqdefault.jpg)](https://www.youtube.com/watch?v=YGHeNFILGeg)
 1.  [【ReHacQ生配信】「話したいことがある」なぜ？まったり緊急生配信【石丸伸二vs音喜多駿vs高橋弘樹】](/rehacq_fan/ids/c2O6J0BoH4w "wikilink")
     -   公開日: 2026-01-19
-    -   視聴数: 202,756
-    -   **いいね数: 7,839**
+    -   視聴数: 251,078
+    -   **いいね数: 8,646**
     -   出演者: 
     - [![](https://img.youtube.com/vi/c2O6J0BoH4w/hqdefault.jpg)](https://www.youtube.com/watch?v=c2O6J0BoH4w)
 1.  [【高橋弘樹vs財政学者】緊急提言！日本の危機…地方が生き残る新戦略とは？【田中秀明vsReHacQ】](/rehacq_fan/ids/gStL_grQINw "wikilink")
     -   公開日: 2026-01-18
-    -   視聴数: 77,187
-    -   **いいね数: 1,051**
+    -   視聴数: 79,873
+    -   **いいね数: 1,078**
     -   出演者: 田中秀明, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/gStL_grQINw/hqdefault.jpg)](https://www.youtube.com/watch?v=gStL_grQINw)
 1.  [【萩生田光一vs高橋弘樹】解散について...2026重要政策...大激論【岩田明子vsReHacQ】](/rehacq_fan/ids/4ZaGVNifSJk "wikilink")
     -   公開日: 2026-01-18
-    -   視聴数: 327,052
-    -   **いいね数: 5,749**
+    -   視聴数: 331,635
+    -   **いいね数: 5,773**
     -   出演者: [岩田明子](/rehacq_fan/people/岩田明子 "wikilink"), [萩生田光一](/rehacq_fan/people/萩生田光一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/4ZaGVNifSJk/hqdefault.jpg)](https://www.youtube.com/watch?v=4ZaGVNifSJk)
 1.  [【須賀川拓vsヨシダナギ】イジメからの逆転人生！29年間感じた生き辛さ...突然なぜアフリカへ？【ReHacQ】](/rehacq_fan/ids/pCr8Ybc9T8g "wikilink")
     -   公開日: 2026-01-18
-    -   視聴数: 37,297
-    -   **いいね数: 601**
+    -   視聴数: 38,455
+    -   **いいね数: 616**
     -   出演者: ヨシダナギ, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/pCr8Ybc9T8g/hqdefault.jpg)](https://www.youtube.com/watch?v=pCr8Ybc9T8g)
 
