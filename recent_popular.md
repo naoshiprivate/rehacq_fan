@@ -1,7 +1,13 @@
+1.  [【ReHacQ生配信】玉木雄一郎がガチ回答…！解散し…次の選挙どうする？【ReHacQ高橋弘樹】](/rehacq_fan/ids/94q8yb8xQKI "wikilink")
+    -   公開日: 2026-01-20
+    -   視聴数: 507,119
+    -   **いいね数: 10,355**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/94q8yb8xQKI/hqdefault.jpg)](https://www.youtube.com/watch?v=94q8yb8xQKI)
 1.  [【ReHacQ生配信】高市政権ついに解散決定！！まったり生配信【今野忍vs斎藤幸平vs石丸伸二vs西田 亮介vs高橋弘樹】](/rehacq_fan/ids/YGHeNFILGeg "wikilink")
     -   公開日: 2026-01-19
-    -   視聴数: 576,024
-    -   **いいね数: 12,647**
+    -   視聴数: 587,375
+    -   **いいね数: 12,701**
     -   出演者: 
     - [![](https://img.youtube.com/vi/YGHeNFILGeg/hqdefault.jpg)](https://www.youtube.com/watch?v=YGHeNFILGeg)
 1.  [【ReHacQ生配信】高市政権ついに解散決定！？まったり生配信【高橋弘樹vs土田しんvs小西ひろゆきvs中谷一馬vs足立康史vsいさ進一vs今野忍vs西田亮介】](/rehacq_fan/ids/g29iT4kgF4w "wikilink")
@@ -22,10 +28,4 @@
     -   **いいね数: 5,854**
     -   出演者: 呉座勇一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/QkOnCrQTkE0/hqdefault.jpg)](https://www.youtube.com/watch?v=QkOnCrQTkE0)
-1.  [【群馬県知事が激白】前橋市長の辞職について【ひろゆきvsReHacQ高橋弘樹vs横田一】](/rehacq_fan/ids/dnHrcIM4BVA "wikilink")
-    -   公開日: 2025-12-24
-    -   視聴数: 543,261
-    -   **いいね数: 5,412**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [山本一太](/rehacq_fan/people/山本一太 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/dnHrcIM4BVA/hqdefault.jpg)](https://www.youtube.com/watch?v=dnHrcIM4BVA)
 
