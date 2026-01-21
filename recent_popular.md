@@ -1,7 +1,7 @@
 1.  [【ReHacQ生配信】高市政権ついに解散決定！！まったり生配信【今野忍vs斎藤幸平vs石丸伸二vs西田 亮介vs高橋弘樹】](/rehacq_fan/ids/YGHeNFILGeg "wikilink")
     -   公開日: 2026-01-19
-    -   視聴数: 538,370
-    -   **いいね数: 12,115**
+    -   視聴数: 561,508
+    -   **いいね数: 12,447**
     -   出演者: 
     - [![](https://img.youtube.com/vi/YGHeNFILGeg/hqdefault.jpg)](https://www.youtube.com/watch?v=YGHeNFILGeg)
 1.  [【ReHacQ生配信】高市政権ついに解散決定！？まったり生配信【高橋弘樹vs土田しんvs小西ひろゆきvs中谷一馬vs足立康史vsいさ進一vs今野忍vs西田亮介】](/rehacq_fan/ids/g29iT4kgF4w "wikilink")
