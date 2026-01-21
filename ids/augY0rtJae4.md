@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】解散前に…「中道改革連合」とは何か？【野田佳彦vs斉藤鉄夫vs高橋弘樹】](https://www.youtube.com/watch?v=augY0rtJae4)
 [![](https://img.youtube.com/vi/augY0rtJae4/sddefault.jpg)](https://www.youtube.com/watch?v=augY0rtJae4)
 -   公開日: 2026-01-21
--   視聴数: 117,978
--   **いいね数: 3,103**
+-   視聴数: 163,642
+-   **いいね数: 3,452**
 -   出演者: 
