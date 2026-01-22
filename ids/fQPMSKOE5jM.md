@@ -1,6 +1,6 @@
 ### [【参政党】衆院選160選挙区へ擁立へ 「自民党と正面からガチンコで戦う」【ReHacQ記者会見 1月21日(水)】](https://www.youtube.com/watch?v=fQPMSKOE5jM)
 [![](https://img.youtube.com/vi/fQPMSKOE5jM/sddefault.jpg)](https://www.youtube.com/watch?v=fQPMSKOE5jM)
 -   公開日: 2026-01-22
--   視聴数: 10,252
--   **いいね数: 274**
+-   視聴数: 17,238
+-   **いいね数: 366**
 -   出演者: 
