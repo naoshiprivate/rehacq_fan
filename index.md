@@ -1,41 +1,41 @@
 # ReHacQ 最近の動画
+1.  [【石丸伸二vs北海道民】変化を嫌う、地方行政の声…本当に危機感を抱いているのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/m5T2zu-Al00 "wikilink")
+    -   公開日: 2026-01-22
+    -   視聴数: 17,179
+    -   **いいね数: 1,825**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/m5T2zu-Al00/hqdefault.jpg)](https://www.youtube.com/watch?v=m5T2zu-Al00)
 1.  [【高橋弘樹vsダイエット】衝撃事実！肥満のリスクとは？科学的に正しい痩せ方【ReHacQvs髙倉一樹】](/rehacq_fan/ids/16qbDJM9YJU "wikilink")
     -   公開日: 2026-01-22
-    -   視聴数: 6,744
-    -   **いいね数: 239**
+    -   視聴数: 12,102
+    -   **いいね数: 487**
     -   出演者: 
     - [![](https://img.youtube.com/vi/16qbDJM9YJU/hqdefault.jpg)](https://www.youtube.com/watch?v=16qbDJM9YJU)
 1.  [【生配信・国民民主党】「もっと手取りを増やす」社会保険料軽減・消費税5％減税を公約【ReHacQ記者会見 1月22日(木)](/rehacq_fan/ids/J4xqZwVLdPU "wikilink")
     -   公開日: 2026-01-22
-    -   視聴数: 19,063
-    -   **いいね数: 537**
+    -   視聴数: 21,267
+    -   **いいね数: 605**
     -   出演者: 
     - [![](https://img.youtube.com/vi/J4xqZwVLdPU/hqdefault.jpg)](https://www.youtube.com/watch?v=J4xqZwVLdPU)
 1.  [【チームみらい】「5議席目指す」公約&公認候補予定者発表【ReHacQ記者会見1月22日（木）】](/rehacq_fan/ids/lQ8BvUcqXDA "wikilink")
     -   公開日: 2026-01-22
-    -   視聴数: 15,647
-    -   **いいね数: 370**
+    -   視聴数: 16,373
+    -   **いいね数: 376**
     -   出演者: 
     - [![](https://img.youtube.com/vi/lQ8BvUcqXDA/hqdefault.jpg)](https://www.youtube.com/watch?v=lQ8BvUcqXDA)
 1.  [【参政党】衆院選160選挙区へ擁立へ 「自民党と正面からガチンコで戦う」【ReHacQ記者会見 1月21日(水)】](/rehacq_fan/ids/fQPMSKOE5jM "wikilink")
     -   公開日: 2026-01-22
-    -   視聴数: 18,158
-    -   **いいね数: 375**
+    -   視聴数: 18,821
+    -   **いいね数: 379**
     -   出演者: 
     - [![](https://img.youtube.com/vi/fQPMSKOE5jM/hqdefault.jpg)](https://www.youtube.com/watch?v=fQPMSKOE5jM)
-1.  [【高橋弘樹vsテスラジャパン社長】外資系10社渡り歩くガチのエリート...なぜ成果出せる？テスラが描く自動車とロボットの未来【ReHacQ】](/rehacq_fan/ids/BBcWJKJLmJ4 "wikilink")
-    -   公開日: 2026-01-21
-    -   視聴数: 95,703
-    -   **いいね数: 1,106**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/BBcWJKJLmJ4/hqdefault.jpg)](https://www.youtube.com/watch?v=BBcWJKJLmJ4)
 
 # ReHacQの人気動画
 ## 最近の人気動画
 1.  [【ReHacQ生配信】玉木雄一郎がガチ回答…！解散し…次の選挙どうする？【ReHacQ高橋弘樹】](/rehacq_fan/ids/94q8yb8xQKI "wikilink")
     -   公開日: 2026-01-20
-    -   視聴数: 542,569
-    -   **いいね数: 10,906**
+    -   視聴数: 544,898
+    -   **いいね数: 10,942**
     -   出演者: 
     - [![](https://img.youtube.com/vi/94q8yb8xQKI/hqdefault.jpg)](https://www.youtube.com/watch?v=94q8yb8xQKI)
 1.  [【ReHacQ生配信】高市政権ついに解散決定！！まったり生配信【今野忍vs斎藤幸平vs石丸伸二vs西田 亮介vs高橋弘樹】](/rehacq_fan/ids/YGHeNFILGeg "wikilink")
@@ -76,23 +76,23 @@
 ## 時系列データ
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 55, 視聴数: 9,271,275, いいね数: 161,028
+-   動画数: 56, 視聴数: 9,306,734, いいね数: 163,293
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 12,922,450, いいね数: 176,197
+-   動画数: 83, 視聴数: 12,922,625, いいね数: 176,197
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,632,687, いいね数: 167,762
+-   動画数: 79, 視聴数: 11,632,689, いいね数: 167,762
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,653,556, いいね数: 339,690
+-   動画数: 102, 視聴数: 23,658,089, いいね数: 339,739
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,661,944, いいね数: 271,692
+-   動画数: 87, 視聴数: 16,662,100, いいね数: 271,692
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -100,7 +100,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 21,367,990, いいね数: 366,287
+-   動画数: 76, 視聴数: 21,367,995, いいね数: 366,287
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -124,7 +124,7 @@
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 18,188,501, いいね数: 294,995
+-   動画数: 48, 視聴数: 18,197,361, いいね数: 295,003
 
 #### [2024年12月](videos/202412 "wikilink")
 
@@ -140,7 +140,7 @@
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,914,217, いいね数: 222,240
+-   動画数: 50, 視聴数: 14,914,503, いいね数: 222,239
 
 #### [2024年08月](videos/202408 "wikilink")
 
@@ -148,7 +148,7 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 16,005,939, いいね数: 291,281
+-   動画数: 44, 視聴数: 16,006,022, いいね数: 291,282
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -215,4 +215,4 @@
 -   動画数: 14, 視聴数: 8,036,217, いいね数: 141,371
 
 ---
-2026-01-22 21:00
+2026-01-22 22:00
