@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【本田悦朗＆永濱利廣】高市早苗の見通しは！？日本経済の持続的成長への道筋を考える【馬渕磨理子＆ReHacQ】](/rehacq_fan/ids/S8wvc9a8xck "wikilink")
+    -   公開日: 2026-01-23
+    -   視聴数: 5
+    -   **いいね数: 9**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/S8wvc9a8xck/hqdefault.jpg)](https://www.youtube.com/watch?v=S8wvc9a8xck)
+1.  [【ReHacQ生配信】国会王子が緊急出演...改めて本意を…総選挙の争点は？【高橋弘樹vs武田一顯】](/rehacq_fan/ids/gjiqdjQ1ypI "wikilink")
+    -   公開日: 2026-01-23
+    -   視聴数: 7,739
+    -   **いいね数: 238**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/gjiqdjQ1ypI/hqdefault.jpg)](https://www.youtube.com/watch?v=gjiqdjQ1ypI)
+1.  [【生配信・参政党】衆院選キャッチコピー マニフェスト発表！ 豊田真由子元衆議院議員 比例で出馬へ【ReHacQ記者会見 1月23日(金)】](/rehacq_fan/ids/aO8Is4tuFBQ "wikilink")
+    -   公開日: 2026-01-23
+    -   視聴数: 2,590
+    -   **いいね数: 157**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/aO8Is4tuFBQ/hqdefault.jpg)](https://www.youtube.com/watch?v=aO8Is4tuFBQ)
 1.  [【中道改革連合】「中道のうねりを作る」野田佳彦・斉藤鉄夫共同代表、政策発表会見【ReHacQ記者会見 1月22日(木)】](/rehacq_fan/ids/M7fTm4Yt_g8 "wikilink")
     -   公開日: 2026-01-22
-    -   視聴数: 11,763
-    -   **いいね数: 212**
+    -   視聴数: 14,592
+    -   **いいね数: 232**
     -   出演者: 
     - [![](https://img.youtube.com/vi/M7fTm4Yt_g8/hqdefault.jpg)](https://www.youtube.com/watch?v=M7fTm4Yt_g8)
 1.  [【石丸伸二vs北海道民】変化を嫌う、地方行政の声…本当に危機感を抱いているのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/m5T2zu-Al00 "wikilink")
     -   公開日: 2026-01-22
-    -   視聴数: 149,374
-    -   **いいね数: 5,126**
+    -   視聴数: 182,421
+    -   **いいね数: 5,671**
     -   出演者: 
     - [![](https://img.youtube.com/vi/m5T2zu-Al00/hqdefault.jpg)](https://www.youtube.com/watch?v=m5T2zu-Al00)
-1.  [【高橋弘樹vsダイエット】衝撃事実！肥満のリスクとは？科学的に正しい痩せ方【ReHacQvs髙倉一樹】](/rehacq_fan/ids/16qbDJM9YJU "wikilink")
-    -   公開日: 2026-01-22
-    -   視聴数: 122,942
-    -   **いいね数: 2,181**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/16qbDJM9YJU/hqdefault.jpg)](https://www.youtube.com/watch?v=16qbDJM9YJU)
-1.  [【生配信・国民民主党】「もっと手取りを増やす」社会保険料軽減・消費税5％減税を公約【ReHacQ記者会見 1月22日(木)](/rehacq_fan/ids/J4xqZwVLdPU "wikilink")
-    -   公開日: 2026-01-22
-    -   視聴数: 34,160
-    -   **いいね数: 775**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/J4xqZwVLdPU/hqdefault.jpg)](https://www.youtube.com/watch?v=J4xqZwVLdPU)
-1.  [【チームみらい】「5議席目指す」公約&公認候補予定者発表【ReHacQ記者会見1月22日（木）】](/rehacq_fan/ids/lQ8BvUcqXDA "wikilink")
-    -   公開日: 2026-01-22
-    -   視聴数: 20,135
-    -   **いいね数: 427**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/lQ8BvUcqXDA/hqdefault.jpg)](https://www.youtube.com/watch?v=lQ8BvUcqXDA)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -76,7 +76,7 @@
 ## 時系列データ
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 57, 視聴数: 9,742,655, いいね数: 170,215
+-   動画数: 59, 視聴数: 9,830,536, いいね数: 171,725
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -84,23 +84,23 @@
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,644,066, いいね数: 167,902
+-   動画数: 79, 視聴数: 11,644,786, いいね数: 167,912
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,660,353, いいね数: 339,773
+-   動画数: 102, 視聴数: 23,660,688, いいね数: 339,775
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,674,116, いいね数: 271,791
+-   動画数: 87, 視聴数: 16,674,124, いいね数: 271,791
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,877,928, いいね数: 263,350
+-   動画数: 65, 視聴数: 14,880,228, いいね数: 263,338
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 21,379,764, いいね数: 366,410
+-   動画数: 76, 視聴数: 21,379,946, いいね数: 366,409
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -144,11 +144,11 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 20,262,508, いいね数: 328,016
+-   動画数: 43, 視聴数: 20,263,026, いいね数: 328,015
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 16,006,181, いいね数: 291,282
+-   動画数: 44, 視聴数: 16,009,032, いいね数: 291,265
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -215,4 +215,4 @@
 -   動画数: 14, 視聴数: 8,036,217, いいね数: 141,371
 
 ---
-2026-01-23 13:00
+2026-01-23 20:00
