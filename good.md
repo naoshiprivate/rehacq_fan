@@ -7,8 +7,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](/rehacq_fan/ids/H_e67-Dxr8o "wikilink")
     -   公開日: 2024-11-18
-    -   視聴数: 2,446,288
-    -   **いいね数: 59,148**
+    -   視聴数: 2,491,855
+    -   **いいね数: 59,222**
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](/rehacq_fan/ids/MxSVlnm0qc4 "wikilink")
     -   公開日: 2024-11-17
@@ -17,8 +17,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs玉木雄一郎】再びの生対談！石丸新党立ち上げ…国民民主躍進.兵庫県知事選…本音激論【ReHacQ高橋弘樹】](/rehacq_fan/ids/6Vww3vD7jHg "wikilink")
     -   公開日: 2024-11-19
-    -   視聴数: 2,218,037
-    -   **いいね数: 43,463**
+    -   視聴数: 2,223,377
+    -   **いいね数: 43,462**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【衝撃の最終兵器】「政治と金」問題に激震…岸田総理は1.8億円！玉木雄一郎代表は…？政治家のお金の流れ全部サクッと検索！衝撃ツールとは!?【自民党&国民民主党&立憲民主党&維新…ReHacQ】](/rehacq_fan/ids/3Hfpr-_7Ykg "wikilink")
     -   公開日: 2025-04-13
@@ -62,8 +62,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ReHacQ討論会】兵庫県知事選挙【候補者7人vs高橋弘樹】](/rehacq_fan/ids/b-bNBgMhpNM "wikilink")
     -   公開日: 2024-11-01
-    -   視聴数: 1,550,478
-    -   **いいね数: 32,415**
+    -   視聴数: 1,550,965
+    -   **いいね数: 32,409**
     -   出演者: 大澤芳清, [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), 木島洋嗣, 清水貴之, 福本繁幸, 稲村和美, [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
@@ -137,8 +137,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [横田一](/rehacq_fan/people/横田一 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】石丸新党の構想判明！国民民主vs維新…解決策は？【ReHacQ・高橋弘樹】](/rehacq_fan/ids/DQkpV-2rV3I "wikilink")
     -   公開日: 2024-12-23
-    -   視聴数: 1,083,492
-    -   **いいね数: 24,680**
+    -   視聴数: 1,083,780
+    -   **いいね数: 24,675**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【なぜ高市早苗と連立？】維新・吉村代表に聞く！自民党は約束を守るのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Rx4U0L9SK9w "wikilink")
     -   公開日: 2025-10-17
@@ -157,8 +157,8 @@
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【緊急生配信】ちょっとだけ大切なお知らせ…兵庫県知事選に関して【神戸新聞さん…ランチしましょう】](/rehacq_fan/ids/0P-1c-mn2mc "wikilink")
     -   公開日: 2024-12-08
-    -   視聴数: 1,295,057
-    -   **いいね数: 23,369**
+    -   視聴数: 1,295,117
+    -   **いいね数: 23,366**
     -   出演者: 
 1.  [【ひろゆきvsデヴィ夫人】激怒‥国家観なき政治家は去れ？！ガチ放談【リハックマ】](/rehacq_fan/ids/XJbgK1m8j2Q "wikilink")
     -   公開日: 2024-06-23
@@ -302,8 +302,8 @@
     -   出演者: 百田尚樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【兵庫県知事を刑事告発…なぜ？】告発者・郷原信郎vs否定的・福永活也…弁護士同士の激論【公職選挙法とは…ReHacQ】](/rehacq_fan/ids/EmOGwtR3x6I "wikilink")
     -   公開日: 2024-12-07
-    -   視聴数: 922,617
-    -   **いいね数: 18,138**
+    -   視聴数: 922,651
+    -   **いいね数: 18,134**
     -   出演者: 福永活也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔の推薦】ビジネスと量子力学！超弦理論の謎【野村泰紀と宇宙】](/rehacq_fan/ids/lp7PPFsnQAE "wikilink")
     -   公開日: 2023-07-14
@@ -432,8 +432,8 @@
     -   出演者: 暇空茜, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs自民党都議】裏金で大荒れ！赤裸々トーク…東京都議会で何が？【ReHacQSP】](/rehacq_fan/ids/V9X86suY1Xs "wikilink")
     -   公開日: 2024-12-17
-    -   視聴数: 761,914
-    -   **いいね数: 15,754**
+    -   視聴数: 763,132
+    -   **いいね数: 15,753**
     -   出演者: [川松真一朗](/rehacq_fan/people/川松真一朗 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
     -   公開日: 2024-09-10
