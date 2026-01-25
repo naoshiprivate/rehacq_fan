@@ -3,4 +3,4 @@
 -   公開日: 2026-01-22
 -   視聴数: 19,507
 -   **いいね数: 256**
--   出演者: 
+-   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink"), [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")

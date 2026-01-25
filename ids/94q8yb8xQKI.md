@@ -3,4 +3,4 @@
 -   公開日: 2026-01-20
 -   視聴数: 565,228
 -   **いいね数: 11,119**
--   出演者: 
+-   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
