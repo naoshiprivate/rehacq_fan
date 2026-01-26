@@ -192,8 +192,8 @@
     -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【成田悠輔vs泉 前明石市長】172億はどこから？退任直前…赤裸々告白【市町村のやるべき事】](/rehacq_fan/ids/WyDR8GuPC_k "wikilink")
     -   公開日: 2023-05-06
-    -   視聴数: 1,465,225
-    -   **いいね数: 20,491**
+    -   視聴数: 1,465,252
+    -   **いいね数: 20,490**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【後藤達也vs鈴木おさむ】SMAP生んだ天才・謎のP！初めて明かされる仕事術【リスクマネジメントの鬼】](/rehacq_fan/ids/7PgJY5fY5NY "wikilink")
     -   公開日: 2024-04-26
@@ -372,8 +372,8 @@
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 東谷義和
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](/rehacq_fan/ids/arcYBqJcY8w "wikilink")
     -   公開日: 2024-01-27
-    -   視聴数: 1,106,483
-    -   **いいね数: 14,444**
+    -   視聴数: 1,106,929
+    -   **いいね数: 14,448**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
 1.  [【成田悠輔が推薦】動きに注目！天才物理学者の楽しすぎる量子力学入門【野村泰紀・宇宙とは？】](/rehacq_fan/ids/5iuWBR80ZWs "wikilink")
     -   公開日: 2023-07-07
@@ -447,8 +447,8 @@
     -   出演者: [近藤大介](/rehacq_fan/people/近藤大介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](/rehacq_fan/ids/w-ToOG5rMTc "wikilink")
     -   公開日: 2023-10-01
-    -   視聴数: 1,030,016
-    -   **いいね数: 10,599**
+    -   視聴数: 1,030,997
+    -   **いいね数: 10,608**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
     -   公開日: 2025-10-08
