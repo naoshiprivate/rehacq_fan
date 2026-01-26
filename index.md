@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【ReHacQ討論会】川口市長選ネット討論会 【高橋弘樹】](/rehacq_fan/ids/EBgos6no73Q "wikilink")
+    -   公開日: 2026-01-26
+    -   視聴数: 6,469
+    -   **いいね数: 192**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/EBgos6no73Q/hqdefault.jpg)](https://www.youtube.com/watch?v=EBgos6no73Q)
 1.  [【高橋弘樹vs財政学者】衝撃！年金制度の罠...人口減少社会で地方が生き残る方法とは？【田中秀明vsReHacQ】](/rehacq_fan/ids/9ekua6nPeMw "wikilink")
     -   公開日: 2026-01-26
-    -   視聴数: 6,236
-    -   **いいね数: 338**
+    -   視聴数: 10,740
+    -   **いいね数: 495**
     -   出演者: 
     - [![](https://img.youtube.com/vi/9ekua6nPeMw/hqdefault.jpg)](https://www.youtube.com/watch?v=9ekua6nPeMw)
 1.  [【ひろゆきvs徳川家】徳川慶喜・明治天皇の玄孫が語る…家宝の歴史的価値、現在のお金事情とは？【ReHacQ高橋弘樹vs山岸美喜vs竹田恒泰】](/rehacq_fan/ids/GBWLEsCykyo "wikilink")
     -   公開日: 2026-01-25
-    -   視聴数: 256,930
-    -   **いいね数: 5,993**
+    -   視聴数: 269,764
+    -   **いいね数: 6,212**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 山岸美喜, 竹田恒泰, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/GBWLEsCykyo/hqdefault.jpg)](https://www.youtube.com/watch?v=GBWLEsCykyo)
 1.  [【高橋弘樹vs山田ルイ53世】「楽しく生きなきゃダメ？」欲を捨て競争から降りた？髭男爵・山田ルイ53世のキラキラしない人生とは【ReHacQ】](/rehacq_fan/ids/UlFQeKbFhJs "wikilink")
     -   公開日: 2026-01-25
-    -   視聴数: 87,818
-    -   **いいね数: 1,808**
+    -   視聴数: 89,780
+    -   **いいね数: 1,841**
     -   出演者: 山田ルイ53世, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/UlFQeKbFhJs/hqdefault.jpg)](https://www.youtube.com/watch?v=UlFQeKbFhJs)
 1.  [【高橋弘樹vs民俗学者】都市伝説から学ぶ陰謀論！なぜ陰謀論は生まれるのか？【ReHacQvs島村恭則】](/rehacq_fan/ids/TwDEd_WZgKo "wikilink")
     -   公開日: 2026-01-25
-    -   視聴数: 54,612
-    -   **いいね数: 1,101**
+    -   視聴数: 55,501
+    -   **いいね数: 1,118**
     -   出演者: 島村恭則, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/TwDEd_WZgKo/hqdefault.jpg)](https://www.youtube.com/watch?v=TwDEd_WZgKo)
-1.  [【石丸伸二vs北海道ドラッグストア】年商1,000億円！厳しい環境で成功する意外すぎる戦略とは【ReHacQ高橋弘樹vs富山浩樹】](/rehacq_fan/ids/Z7BQMlFXCdg "wikilink")
-    -   公開日: 2026-01-24
-    -   視聴数: 121,897
-    -   **いいね数: 3,931**
-    -   出演者: 富山浩樹, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/Z7BQMlFXCdg/hqdefault.jpg)](https://www.youtube.com/watch?v=Z7BQMlFXCdg)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -70,11 +70,11 @@
 ## 時系列データ
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 68, 視聴数: 11,721,057, いいね数: 201,283
+-   動画数: 69, 視聴数: 11,751,320, いいね数: 201,950
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 13,095,644, いいね数: 177,753
+-   動画数: 83, 視聴数: 13,113,110, いいね数: 177,964
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -82,7 +82,7 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,680,465, いいね数: 339,867
+-   動画数: 102, 視聴数: 23,680,654, いいね数: 339,869
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -90,15 +90,15 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,890,992, いいね数: 263,390
+-   動画数: 65, 視聴数: 14,894,006, いいね数: 263,412
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 21,392,823, いいね数: 366,476
+-   動画数: 76, 視聴数: 21,402,362, いいね数: 366,588
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 17,040,953, いいね数: 308,264
+-   動画数: 78, 視聴数: 17,041,100, いいね数: 308,265
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -110,19 +110,19 @@
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 14,957,408, いいね数: 255,771
+-   動画数: 61, 視聴数: 14,960,259, いいね数: 255,779
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,559,973, いいね数: 299,100
+-   動画数: 47, 視聴数: 16,565,723, いいね数: 299,117
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 18,202,299, いいね数: 295,009
+-   動画数: 48, 視聴数: 18,208,386, いいね数: 295,059
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,697,741, いいね数: 310,113
+-   動画数: 60, 視聴数: 18,697,796, いいね数: 310,113
 
 #### [2024年11月](videos/202411 "wikilink")
 
@@ -209,4 +209,4 @@
 -   動画数: 14, 視聴数: 8,040,201, いいね数: 141,375
 
 ---
-2026-01-26 20:00
+2026-01-26 21:00
