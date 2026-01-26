@@ -87,8 +87,8 @@
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink")
 1.  [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](/rehacq_fan/ids/iDPwEX2A73Y "wikilink")
     -   公開日: 2024-07-18
-    -   視聴数: 1,809,817
-    -   **いいね数: 28,058**
+    -   視聴数: 1,810,028
+    -   **いいね数: 28,051**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【緊急生配信】兵庫県・百条委員会にて秘密会音声データ流出のすべて「私がやった…なぜなら」【日本維新の会・増山誠vsReHacQ高橋弘樹】](/rehacq_fan/ids/LyTuLE37l4A "wikilink")
     -   公開日: 2025-02-19
@@ -222,8 +222,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs森永卓郎】投資ブームに警鐘…父から学んだ真の「ジャーナリズム」とは【小池百合子に...】](/rehacq_fan/ids/qWE1MsRmb7k "wikilink")
     -   公開日: 2024-07-25
-    -   視聴数: 1,089,368
-    -   **いいね数: 20,757**
+    -   視聴数: 1,089,495
+    -   **いいね数: 20,755**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森永卓郎
 1.  [【成田悠輔vs泉 前明石市長】172億はどこから？退任直前…赤裸々告白【市町村のやるべき事】](/rehacq_fan/ids/WyDR8GuPC_k "wikilink")
     -   公開日: 2023-05-06
@@ -462,8 +462,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【玉木雄一郎vs後藤達也】緊急対談！103万の壁が崩壊…経済政策に地殻変動【国民民主党の野望2024/11/20】](/rehacq_fan/ids/F4WmVdF4M8c "wikilink")
     -   公開日: 2024-11-21
-    -   視聴数: 1,073,331
-    -   **いいね数: 15,566**
+    -   視聴数: 1,073,481
+    -   **いいね数: 15,563**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【石丸伸二vs都県議会議員】激論！どうなる地方議会の未来【緊急生配信】](/rehacq_fan/ids/5NWCvCutc8 "wikilink")
     -   公開日: 2025-02-21
@@ -497,6 +497,6 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 門隆志
 1.  [【後藤達也vs岡田斗司夫】AI出現！人類は老害化？過剰ホワイト社会の弊害【宮崎駿】](/rehacq_fan/ids/aHfLArP4Q_8 "wikilink")
     -   公開日: 2024-08-15
-    -   視聴数: 779,327
-    -   **いいね数: 15,143**
+    -   視聴数: 780,407
+    -   **いいね数: 15,152**
     -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
