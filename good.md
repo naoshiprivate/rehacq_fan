@@ -122,8 +122,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【西田亮介vs米山隆一】SNSと政治についてガチ討論！デマや誹謗中傷など課題山積...これからどうなる？【ReHacQ高橋弘樹】](/rehacq_fan/ids/B5-KBz_t3wU "wikilink")
     -   公開日: 2025-04-29
-    -   視聴数: 1,910,573
-    -   **いいね数: 25,975**
+    -   視聴数: 1,915,611
+    -   **いいね数: 25,993**
     -   出演者: [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](/rehacq_fan/ids/eOz1CzMBmuQ "wikilink")
     -   公開日: 2023-11-25
@@ -342,8 +342,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs西田亮介】「再生の道」の行く末とは？代表の思考をガチ解読！日本再生なるか...【ReHacQvs編集者箕輪厚介】](/rehacq_fan/ids/T6-FWvACzn8 "wikilink")
     -   公開日: 2025-04-30
-    -   視聴数: 920,548
-    -   **いいね数: 16,918**
+    -   視聴数: 921,142
+    -   **いいね数: 16,917**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】緊急生配信！代表退任…「で、今後どうする？」まったりしつこく聞いてみる【ReHacQ 】](/rehacq_fan/ids/o9Ymcad1RXE "wikilink")
     -   公開日: 2025-08-27
@@ -367,8 +367,8 @@
     -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】「再生の道」会見…参院選について【ReHacQ】](/rehacq_fan/ids/yiiG5BdgrW0 "wikilink")
     -   公開日: 2025-04-25
-    -   視聴数: 380,732
-    -   **いいね数: 16,596**
+    -   視聴数: 380,901
+    -   **いいね数: 16,595**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆきvs玉木雄一郎】５兆円！○○国債を！【野党の存在意義は？】](/rehacq_fan/ids/vJ2MS0ZjLdA "wikilink")
     -   公開日: 2023-05-23
