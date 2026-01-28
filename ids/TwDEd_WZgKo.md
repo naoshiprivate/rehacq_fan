@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs民俗学者】都市伝説から学ぶ陰謀論！なぜ陰謀論は生まれるのか？【ReHacQvs島村恭則】](https://www.youtube.com/watch?v=TwDEd_WZgKo)
 [![](https://img.youtube.com/vi/TwDEd_WZgKo/sddefault.jpg)](https://www.youtube.com/watch?v=TwDEd_WZgKo)
 -   公開日: 2026-01-25
--   視聴数: 77,085
--   **いいね数: 1,435**
+-   視聴数: 79,677
+-   **いいね数: 1,486**
 -   出演者: 島村恭則, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
