@@ -142,8 +142,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン】毎年20%がクビ！激烈…エリート投資銀行の生存者とは？【ReHacQキャリア】](/rehacq_fan/ids/SEqkSNRqrUE "wikilink")
     -   公開日: 2025-01-06
-    -   視聴数: 1,563,768
-    -   **いいね数: 15,603**
+    -   視聴数: 1,570,865
+    -   **いいね数: 15,650**
     -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ討論会】兵庫県知事選挙【候補者7人vs高橋弘樹】](/rehacq_fan/ids/b-bNBgMhpNM "wikilink")
     -   公開日: 2024-11-01
@@ -427,8 +427,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン】年収1億円…行く人、行かない人違いは？【ReHacQ】](/rehacq_fan/ids/Ipck99H_vjU "wikilink")
     -   公開日: 2025-01-13
-    -   視聴数: 1,064,324
-    -   **いいね数: 14,409**
+    -   視聴数: 1,068,459
+    -   **いいね数: 14,440**
     -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】緊迫！石丸伸二が野党に激怒…今後のロードマップは？【高橋弘樹】](/rehacq_fan/ids/Lb9U4acxhs4 "wikilink")
     -   公開日: 2024-09-07
