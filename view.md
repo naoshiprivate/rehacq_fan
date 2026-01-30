@@ -210,6 +210,11 @@
     -   視聴数: 1,433,129
     -   **いいね数: 33,418**
     -   出演者: 
+1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
+    -   公開日: 2024-09-10
+    -   視聴数: 1,428,745
+    -   **いいね数: 15,844**
+    -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
     -   公開日: 2024-07-27
     -   視聴数: 1,428,712
@@ -220,11 +225,6 @@
     -   視聴数: 1,425,926
     -   **いいね数: 13,727**
     -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
-    -   公開日: 2024-09-10
-    -   視聴数: 1,422,376
-    -   **いいね数: 15,777**
-    -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs呉座勇一】戦国時代のウソ！豊臣秀吉の正体とは？歴史に騙されない方法【ReHacQvs織田信長の真実】](/rehacq_fan/ids/H6ZVuj7IGOM "wikilink")
     -   公開日: 2025-12-18
     -   視聴数: 1,393,412
@@ -477,8 +477,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](/rehacq_fan/ids/Lcj1tooXlSk "wikilink")
     -   公開日: 2025-02-18
-    -   視聴数: 969,210
-    -   **いいね数: 17,059**
+    -   視聴数: 970,553
+    -   **いいね数: 17,061**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
     -   公開日: 2025-11-21
