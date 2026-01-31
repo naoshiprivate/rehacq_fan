@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】日本維新の会にガチ質問...衆院選2026【吉村洋文vs高橋弘樹】](https://www.youtube.com/watch?v=Jv_FsClMBQk)
 [![](https://img.youtube.com/vi/Jv_FsClMBQk/sddefault.jpg)](https://www.youtube.com/watch?v=Jv_FsClMBQk)
 -   公開日: 2026-01-31
--   視聴数: 98,604
--   **いいね数: 4,205**
+-   視聴数: 160,787
+-   **いいね数: 5,028**
 -   出演者: 

@@ -287,8 +287,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](/rehacq_fan/ids/KihRlwlSPCI "wikilink")
     -   公開日: 2025-07-12
-    -   視聴数: 615,458
-    -   **いいね数: 18,500**
+    -   視聴数: 615,522
+    -   **いいね数: 18,498**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
     -   公開日: 2025-11-21
@@ -462,8 +462,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【玉木雄一郎vs後藤達也】緊急対談！103万の壁が崩壊…経済政策に地殻変動【国民民主党の野望2024/11/20】](/rehacq_fan/ids/F4WmVdF4M8c "wikilink")
     -   公開日: 2024-11-21
-    -   視聴数: 1,073,481
-    -   **いいね数: 15,563**
+    -   視聴数: 1,073,526
+    -   **いいね数: 15,558**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【石丸伸二vs都県議会議員】激論！どうなる地方議会の未来【緊急生配信】](/rehacq_fan/ids/5NWCvCutc8 "wikilink")
     -   公開日: 2025-02-21

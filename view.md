@@ -382,7 +382,7 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【参院選2025】自公大敗…どうなる？まったり雑談【ReHacQ】](/rehacq_fan/ids/nqXDm5gzm7g "wikilink")
     -   公開日: 2025-07-20
-    -   視聴数: 1,102,388
+    -   視聴数: 1,102,487
     -   **いいね数: 8,126**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs森永卓郎】投資ブームに警鐘…父から学んだ真の「ジャーナリズム」とは【小池百合子に...】](/rehacq_fan/ids/qWE1MsRmb7k "wikilink")
@@ -402,8 +402,8 @@
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【玉木雄一郎vs後藤達也】緊急対談！103万の壁が崩壊…経済政策に地殻変動【国民民主党の野望2024/11/20】](/rehacq_fan/ids/F4WmVdF4M8c "wikilink")
     -   公開日: 2024-11-21
-    -   視聴数: 1,073,481
-    -   **いいね数: 15,563**
+    -   視聴数: 1,073,526
+    -   **いいね数: 15,558**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
     -   公開日: 2023-11-01
