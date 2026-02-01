@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/ALbaHprLnos/sddefault.jpg)](https://www.youtube.com/watch?v=ALbaHprLnos)
 -   公開日: 2025-05-20
 -   視聴数: 54,158
--   **いいね数: 734**
+-   **いいね数: 733**
 -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
