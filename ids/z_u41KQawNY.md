@@ -1,6 +1,6 @@
 ### [【石丸伸二vs夜パフェ】-4℃深夜の北海道に謎の行列…いったいなぜ？【ReHacQ旅高橋弘樹】](https://www.youtube.com/watch?v=z_u41KQawNY)
 [![](https://img.youtube.com/vi/z_u41KQawNY/sddefault.jpg)](https://www.youtube.com/watch?v=z_u41KQawNY)
 -   公開日: 2026-02-02
--   視聴数: 29,666
--   **いいね数: 3,506**
+-   視聴数: 38,518
+-   **いいね数: 3,819**
 -   出演者: 
