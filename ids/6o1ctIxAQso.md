@@ -1,6 +1,6 @@
-### [【ReHacQ討論会】衆議院選挙 東京13区（足立区）ネット討論会【高橋弘樹vs土田しんvs沢田しんごvs森ようすけ】](https://www.youtube.com/watch?v=6o1ctIxAQso)
+### [【ReHacQ衆院選2026】消費税減税で激論！イジメ問題どうする？原発政策は？【自由民主党・土田しんvs日本共産党・沢田しんごvs国民民主党・森ようすけ】](https://www.youtube.com/watch?v=6o1ctIxAQso)
 [![](https://img.youtube.com/vi/6o1ctIxAQso/sddefault.jpg)](https://www.youtube.com/watch?v=6o1ctIxAQso)
 -   公開日: 2026-02-02
--   視聴数: 46,391
--   **いいね数: 1,150**
+-   視聴数: 65,614
+-   **いいね数: 1,347**
 -   出演者: 
