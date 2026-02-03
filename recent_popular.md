@@ -18,8 +18,8 @@
     - [![](https://img.youtube.com/vi/XHwaG-Dl_jo/hqdefault.jpg)](https://www.youtube.com/watch?v=XHwaG-Dl_jo)
 1.  [【ReHacQ生配信】玉木雄一郎がガチ回答…！解散し…次の選挙どうする？【ReHacQ高橋弘樹】](/rehacq_fan/ids/94q8yb8xQKI "wikilink")
     -   公開日: 2026-01-20
-    -   視聴数: 627,057
-    -   **いいね数: 11,618**
+    -   視聴数: 645,853
+    -   **いいね数: 11,738**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/94q8yb8xQKI/hqdefault.jpg)](https://www.youtube.com/watch?v=94q8yb8xQKI)
 1.  [【ReHacQ生配信】高市政権ついに解散決定！！まったり生配信【今野忍vs斎藤幸平vs石丸伸二vs西田 亮介vs高橋弘樹】](/rehacq_fan/ids/YGHeNFILGeg "wikilink")
