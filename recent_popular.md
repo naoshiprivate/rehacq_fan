@@ -6,8 +6,8 @@
     - [![](https://img.youtube.com/vi/SlXGU2JMlFE/hqdefault.jpg)](https://www.youtube.com/watch?v=SlXGU2JMlFE)
 1.  [【ひろゆきvs徳川家】徳川慶喜・明治天皇の玄孫が語る…家宝の歴史的価値、現在のお金事情とは？【ReHacQ高橋弘樹vs山岸美喜vs竹田恒泰】](/rehacq_fan/ids/GBWLEsCykyo "wikilink")
     -   公開日: 2026-01-25
-    -   視聴数: 591,989
-    -   **いいね数: 10,425**
+    -   視聴数: 780,540
+    -   **いいね数: 12,782**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 山岸美喜, 竹田恒泰, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/GBWLEsCykyo/hqdefault.jpg)](https://www.youtube.com/watch?v=GBWLEsCykyo)
 1.  [【ReHacQ生配信】ついに高市総理が衆院解散...まったり緊急生配信【滝波宏文&小西ひろゆき&新実彰平&山添拓&奥村祥大&西田亮介&今野忍&高橋弘樹】](/rehacq_fan/ids/XHwaG-Dl_jo "wikilink")
