@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/cq6ZCwPtI-w/sddefault.jpg)](https://www.youtube.com/watch?v=cq6ZCwPtI-w)
 -   公開日: 2023-06-12
 -   視聴数: 58,446
--   **いいね数: 854**
+-   **いいね数: 853**
 -   出演者: 田中章雄, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
