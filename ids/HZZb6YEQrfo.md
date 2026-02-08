@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs今村翔吾】『イクサガミ』大ヒットの裏側 衝撃告白!地方で書店経営...なぜ？AI時代の生き残り戦略とは【ReHacQ】](https://www.youtube.com/watch?v=HZZb6YEQrfo)
 [![](https://img.youtube.com/vi/HZZb6YEQrfo/sddefault.jpg)](https://www.youtube.com/watch?v=HZZb6YEQrfo)
 -   公開日: 2026-02-08
--   視聴数: 1,646
--   **いいね数: 83**
+-   視聴数: 3,081
+-   **いいね数: 157**
 -   出演者: 
