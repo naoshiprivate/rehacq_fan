@@ -1,3 +1,9 @@
+1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs西田亮介vs今野忍】](/rehacq_fan/ids/zOPuLO0qgUQ "wikilink")
+    -   公開日: 2026-02-07
+    -   視聴数: 532,037
+    -   **いいね数: 7,240**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/zOPuLO0qgUQ/hqdefault.jpg)](https://www.youtube.com/watch?v=zOPuLO0qgUQ)
 1.  [【ReHacQ生配信】選挙の見方は？衆議院選挙2026！まったり緊急生配信【今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/SlXGU2JMlFE "wikilink")
     -   公開日: 2026-01-27
     -   視聴数: 803,551
@@ -22,10 +28,4 @@
     -   **いいね数: 11,738**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/94q8yb8xQKI/hqdefault.jpg)](https://www.youtube.com/watch?v=94q8yb8xQKI)
-1.  [【ReHacQ生配信】高市政権ついに解散決定！！まったり生配信【今野忍vs斎藤幸平vs石丸伸二vs西田 亮介vs高橋弘樹】](/rehacq_fan/ids/YGHeNFILGeg "wikilink")
-    -   公開日: 2026-01-19
-    -   視聴数: 747,776
-    -   **いいね数: 13,965**
-    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/YGHeNFILGeg/hqdefault.jpg)](https://www.youtube.com/watch?v=YGHeNFILGeg)
 
