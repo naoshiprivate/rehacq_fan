@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs西田亮介vs今野忍】](https://www.youtube.com/watch?v=zOPuLO0qgUQ)
 [![](https://img.youtube.com/vi/zOPuLO0qgUQ/sddefault.jpg)](https://www.youtube.com/watch?v=zOPuLO0qgUQ)
 -   公開日: 2026-02-07
--   視聴数: 563,236
--   **いいね数: 7,275**
+-   視聴数: 569,564
+-   **いいね数: 7,294**
 -   出演者: 
