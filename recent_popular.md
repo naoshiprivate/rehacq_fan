@@ -1,7 +1,13 @@
+1.  [【衆院選2026】開票速報！結果は如何に…まったり緊急生配信【今野忍vs西田亮介vs石丸伸二vsひろゆきvs高橋弘樹】](/rehacq_fan/ids/OSAjuZ4h9KM "wikilink")
+    -   公開日: 2026-02-08
+    -   視聴数: 516,109
+    -   **いいね数: 11,391**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/OSAjuZ4h9KM/hqdefault.jpg)](https://www.youtube.com/watch?v=OSAjuZ4h9KM)
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs西田亮介vs今野忍】](/rehacq_fan/ids/zOPuLO0qgUQ "wikilink")
     -   公開日: 2026-02-07
-    -   視聴数: 569,564
-    -   **いいね数: 7,294**
+    -   視聴数: 574,158
+    -   **いいね数: 7,316**
     -   出演者: 
     - [![](https://img.youtube.com/vi/zOPuLO0qgUQ/hqdefault.jpg)](https://www.youtube.com/watch?v=zOPuLO0qgUQ)
 1.  [【ReHacQ生配信】選挙の見方は？衆議院選挙2026！まったり緊急生配信【今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/SlXGU2JMlFE "wikilink")
@@ -22,10 +28,4 @@
     -   **いいね数: 4,337**
     -   出演者: [にいみ彰平](/rehacq_fan/people/にいみ彰平 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 奥村祥大, [小西ひろゆき](/rehacq_fan/people/小西ひろゆき "wikilink"), 山添拓, 滝波宏文, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/XHwaG-Dl_jo/hqdefault.jpg)](https://www.youtube.com/watch?v=XHwaG-Dl_jo)
-1.  [【ReHacQ生配信】玉木雄一郎がガチ回答…！解散し…次の選挙どうする？【ReHacQ高橋弘樹】](/rehacq_fan/ids/94q8yb8xQKI "wikilink")
-    -   公開日: 2026-01-20
-    -   視聴数: 645,853
-    -   **いいね数: 11,738**
-    -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/94q8yb8xQKI/hqdefault.jpg)](https://www.youtube.com/watch?v=94q8yb8xQKI)
 
