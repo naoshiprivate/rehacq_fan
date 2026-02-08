@@ -1,7 +1,7 @@
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs西田亮介vs今野忍】](/rehacq_fan/ids/zOPuLO0qgUQ "wikilink")
     -   公開日: 2026-02-07
-    -   視聴数: 544,486
-    -   **いいね数: 7,265**
+    -   視聴数: 556,646
+    -   **いいね数: 7,270**
     -   出演者: 
     - [![](https://img.youtube.com/vi/zOPuLO0qgUQ/hqdefault.jpg)](https://www.youtube.com/watch?v=zOPuLO0qgUQ)
 1.  [【ReHacQ生配信】選挙の見方は？衆議院選挙2026！まったり緊急生配信【今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/SlXGU2JMlFE "wikilink")
