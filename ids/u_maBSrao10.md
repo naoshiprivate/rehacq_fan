@@ -3,4 +3,4 @@
 -   公開日: 2025-07-01
 -   視聴数: 113,822
 -   **いいね数: 1,098**
--   出演者: 木原誠二, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [木原誠二](/rehacq_fan/people/木原誠二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

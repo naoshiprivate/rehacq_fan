@@ -3,4 +3,4 @@
 -   公開日: 2024-10-21
 -   視聴数: 111,711
 -   **いいね数: 1,953**
--   出演者: 今村翔吾, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [今村翔吾](/rehacq_fan/people/今村翔吾 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

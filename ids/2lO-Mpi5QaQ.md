@@ -3,4 +3,4 @@
 -   公開日: 2026-01-30
 -   視聴数: 22,141
 -   **いいね数: 218**
--   出演者: 
+-   出演者: [上武康亮](/rehacq_fan/people/上武康亮 "wikilink"), [村上愛花](/rehacq_fan/people/村上愛花 "wikilink")

@@ -3,4 +3,4 @@
 -   公開日: 2025-04-29
 -   視聴数: 94,750
 -   **いいね数: 1,087**
--   出演者: 上武康亮, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [上武康亮](/rehacq_fan/people/上武康亮 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

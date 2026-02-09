@@ -3,4 +3,4 @@
 -   公開日: 2025-05-19
 -   視聴数: 204,696
 -   **いいね数: 3,405**
--   出演者: 高井たかし, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [高井たかし](/rehacq_fan/people/高井たかし "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

@@ -3,4 +3,4 @@
 -   公開日: 2026-02-05
 -   視聴数: 81,280
 -   **いいね数: 2,879**
--   出演者: 
+-   出演者: [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

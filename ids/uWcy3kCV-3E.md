@@ -3,4 +3,4 @@
 -   公開日: 2025-08-06
 -   視聴数: 346,524
 -   **いいね数: 5,155**
--   出演者: [にいみ彰平](/rehacq_fan/people/にいみ彰平 "wikilink"), 大空こうき, [安野たかひろ](/rehacq_fan/people/安野たかひろ "wikilink"), 森ようすけ, 水沼ひでゆき
+-   出演者: [にいみ彰平](/rehacq_fan/people/にいみ彰平 "wikilink"), [大空こうき](/rehacq_fan/people/大空こうき "wikilink"), [安野たかひろ](/rehacq_fan/people/安野たかひろ "wikilink"), [森ようすけ](/rehacq_fan/people/森ようすけ "wikilink"), 水沼ひでゆき

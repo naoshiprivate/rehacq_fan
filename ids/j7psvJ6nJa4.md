@@ -3,4 +3,4 @@
 -   公開日: 2025-06-19
 -   視聴数: 9,830
 -   **いいね数: 73**
--   出演者: 落合貴之, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [落合貴之](/rehacq_fan/people/落合貴之 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
