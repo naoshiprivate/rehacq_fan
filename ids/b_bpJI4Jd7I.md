@@ -3,4 +3,4 @@
 -   公開日: 2026-01-15
 -   視聴数: 454,546
 -   **いいね数: 4,006**
--   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 山岸一生, 青柳陽一郎
+-   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [山岸一生](/rehacq_fan/people/山岸一生 "wikilink"), 青柳陽一郎

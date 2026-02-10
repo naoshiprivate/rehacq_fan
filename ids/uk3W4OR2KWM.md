@@ -3,4 +3,4 @@
 -   公開日: 2025-04-22
 -   視聴数: 60,565
 -   **いいね数: 788**
--   出演者: くらま, 河合雅司, [福田典子](/rehacq_fan/people/福田典子 "wikilink")
+-   出演者: [くらま](/rehacq_fan/people/くらま "wikilink"), 河合雅司, [福田典子](/rehacq_fan/people/福田典子 "wikilink")
