@@ -1,6 +1,6 @@
 ### [【整形に2600万】“別人級”の変化で人生はどう変わる？本人が語るリアルな全貌とは！？【平瀬あいり＆妹尾ユウカ＆ReHacQ】](https://www.youtube.com/watch?v=qFRYw8QGEl0)
 [![](https://img.youtube.com/vi/qFRYw8QGEl0/sddefault.jpg)](https://www.youtube.com/watch?v=qFRYw8QGEl0)
 -   公開日: 2026-02-10
--   視聴数: 6,699
--   **いいね数: 140**
+-   視聴数: 8,858
+-   **いいね数: 159**
 -   出演者: 

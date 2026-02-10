@@ -1,19 +1,19 @@
 1.  [【衆院選2026】あつまれ！落選の森...今後どうする？まったり緊急生配信【中谷一馬vs川上りゅうせいvs吉田あやvs今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/HEsGRg73oiw "wikilink")
     -   公開日: 2026-02-09
-    -   視聴数: 886,476
-    -   **いいね数: 14,443**
+    -   視聴数: 899,548
+    -   **いいね数: 14,614**
     -   出演者: 
     - [![](https://img.youtube.com/vi/HEsGRg73oiw/hqdefault.jpg)](https://www.youtube.com/watch?v=HEsGRg73oiw)
 1.  [【衆院選2026】開票速報！結果は如何に…まったり緊急生配信【今野忍vs西田亮介vs石丸伸二vsひろゆきvs高橋弘樹】](/rehacq_fan/ids/OSAjuZ4h9KM "wikilink")
     -   公開日: 2026-02-08
-    -   視聴数: 2,422,175
-    -   **いいね数: 21,439**
+    -   視聴数: 2,428,238
+    -   **いいね数: 21,480**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/OSAjuZ4h9KM/hqdefault.jpg)](https://www.youtube.com/watch?v=OSAjuZ4h9KM)
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs西田亮介vs今野忍】](/rehacq_fan/ids/zOPuLO0qgUQ "wikilink")
     -   公開日: 2026-02-07
-    -   視聴数: 609,016
-    -   **いいね数: 7,466**
+    -   視聴数: 609,253
+    -   **いいね数: 7,467**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/zOPuLO0qgUQ/hqdefault.jpg)](https://www.youtube.com/watch?v=zOPuLO0qgUQ)
 1.  [【ReHacQ生配信】選挙の見方は？衆議院選挙2026！まったり緊急生配信【今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/SlXGU2JMlFE "wikilink")
