@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【衆院選2026】あつまれ！落選の森...今後どうする？まったり緊急生配信【中谷一馬vs川上りゅうせいvs吉田あやvs今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/HEsGRg73oiw "wikilink")
     -   公開日: 2026-02-09
-    -   視聴数: 717,006
-    -   **いいね数: 11,765**
+    -   視聴数: 739,031
+    -   **いいね数: 12,190**
     -   出演者: 
     - [![](https://img.youtube.com/vi/HEsGRg73oiw/hqdefault.jpg)](https://www.youtube.com/watch?v=HEsGRg73oiw)
 1.  [【自民戦後最多議席】高市相場第二幕で日経平均の高騰はどこまで続く？【朝倉慶&くらま&ReHacQ】](/rehacq_fan/ids/BbuUWiinKZI "wikilink")
     -   公開日: 2026-02-09
-    -   視聴数: 81,039
-    -   **いいね数: 1,272**
+    -   視聴数: 81,763
+    -   **いいね数: 1,291**
     -   出演者: 
     - [![](https://img.youtube.com/vi/BbuUWiinKZI/hqdefault.jpg)](https://www.youtube.com/watch?v=BbuUWiinKZI)
 1.  [【衆院選2026】開票速報！結果は如何に…まったり緊急生配信【今野忍vs西田亮介vs石丸伸二vsひろゆきvs高橋弘樹】](/rehacq_fan/ids/OSAjuZ4h9KM "wikilink")
     -   公開日: 2026-02-08
-    -   視聴数: 2,364,844
-    -   **いいね数: 20,974**
+    -   視聴数: 2,369,928
+    -   **いいね数: 21,039**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/OSAjuZ4h9KM/hqdefault.jpg)](https://www.youtube.com/watch?v=OSAjuZ4h9KM)
 1.  [【高橋弘樹vs民俗学者】妖怪の発生条件...子守唄に隠された真実とは？【ReHacQvs島村恭則】](/rehacq_fan/ids/9wUxPOLPUIo "wikilink")
     -   公開日: 2026-02-08
-    -   視聴数: 64,695
-    -   **いいね数: 1,196**
+    -   視聴数: 66,076
+    -   **いいね数: 1,231**
     -   出演者: 島村恭則, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/9wUxPOLPUIo/hqdefault.jpg)](https://www.youtube.com/watch?v=9wUxPOLPUIo)
 1.  [【高橋弘樹vs今村翔吾】『イクサガミ』大ヒットの裏側 衝撃告白!地方で書店経営...なぜ？AI時代の生き残り戦略とは【ReHacQ】](/rehacq_fan/ids/HZZb6YEQrfo "wikilink")
     -   公開日: 2026-02-08
-    -   視聴数: 39,608
-    -   **いいね数: 704**
+    -   視聴数: 39,889
+    -   **いいね数: 711**
     -   出演者: [今村翔吾](/rehacq_fan/people/今村翔吾 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/HZZb6YEQrfo/hqdefault.jpg)](https://www.youtube.com/watch?v=HZZb6YEQrfo)
 
@@ -34,20 +34,20 @@
 ## 最近の人気動画
 1.  [【衆院選2026】あつまれ！落選の森...今後どうする？まったり緊急生配信【中谷一馬vs川上りゅうせいvs吉田あやvs今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/HEsGRg73oiw "wikilink")
     -   公開日: 2026-02-09
-    -   視聴数: 717,006
-    -   **いいね数: 11,765**
+    -   視聴数: 739,031
+    -   **いいね数: 12,190**
     -   出演者: 
     - [![](https://img.youtube.com/vi/HEsGRg73oiw/hqdefault.jpg)](https://www.youtube.com/watch?v=HEsGRg73oiw)
 1.  [【衆院選2026】開票速報！結果は如何に…まったり緊急生配信【今野忍vs西田亮介vs石丸伸二vsひろゆきvs高橋弘樹】](/rehacq_fan/ids/OSAjuZ4h9KM "wikilink")
     -   公開日: 2026-02-08
-    -   視聴数: 2,364,844
-    -   **いいね数: 20,974**
+    -   視聴数: 2,369,928
+    -   **いいね数: 21,039**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/OSAjuZ4h9KM/hqdefault.jpg)](https://www.youtube.com/watch?v=OSAjuZ4h9KM)
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs西田亮介vs今野忍】](/rehacq_fan/ids/zOPuLO0qgUQ "wikilink")
     -   公開日: 2026-02-07
-    -   視聴数: 606,719
-    -   **いいね数: 7,443**
+    -   視聴数: 606,891
+    -   **いいね数: 7,445**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/zOPuLO0qgUQ/hqdefault.jpg)](https://www.youtube.com/watch?v=zOPuLO0qgUQ)
 1.  [【ReHacQ生配信】選挙の見方は？衆議院選挙2026！まったり緊急生配信【今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/SlXGU2JMlFE "wikilink")
@@ -76,23 +76,23 @@
 ## 時系列データ
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 42, 視聴数: 7,070,628, いいね数: 131,288
+-   動画数: 42, 視聴数: 7,100,761, いいね数: 131,856
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 17,284,578, いいね数: 286,192
+-   動画数: 90, 視聴数: 17,285,013, いいね数: 286,194
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 13,579,997, いいね数: 182,848
+-   動画数: 83, 視聴数: 13,584,437, いいね数: 182,868
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,834,537, いいね数: 169,579
+-   動画数: 79, 視聴数: 11,834,587, いいね数: 169,579
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,886,499, いいね数: 341,984
+-   動画数: 102, 視聴数: 23,887,194, いいね数: 341,987
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -104,11 +104,11 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 21,573,737, いいね数: 368,531
+-   動画数: 76, 視聴数: 21,574,052, いいね数: 368,534
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 17,157,798, いいね数: 308,826
+-   動画数: 78, 視聴数: 17,157,809, いいね数: 308,826
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -120,35 +120,35 @@
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 14,995,259, いいね数: 255,953
+-   動画数: 61, 視聴数: 14,995,541, いいね数: 255,956
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,605,011, いいね数: 299,253
+-   動画数: 47, 視聴数: 16,605,184, いいね数: 299,245
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 18,283,126, いいね数: 295,412
+-   動画数: 48, 視聴数: 18,284,112, いいね数: 295,414
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,727,200, いいね数: 310,207
+-   動画数: 60, 視聴数: 18,727,687, いいね数: 310,198
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 22,837,551, いいね数: 381,437
+-   動画数: 38, 視聴数: 22,837,750, いいね数: 381,431
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,943,706, いいね数: 343,067
+-   動画数: 72, 視聴数: 22,944,027, いいね数: 343,068
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,973,632, いいね数: 222,652
+-   動画数: 50, 視聴数: 14,973,691, いいね数: 222,654
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 20,352,902, いいね数: 328,855
+-   動画数: 43, 視聴数: 20,352,905, いいね数: 328,855
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -219,4 +219,4 @@
 -   動画数: 14, 視聴数: 8,058,065, いいね数: 141,422
 
 ---
-2026-02-10 12:00
+2026-02-10 13:00

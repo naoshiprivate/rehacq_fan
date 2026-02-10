@@ -1,31 +1,31 @@
 1.  [【衆院選2026】あつまれ！落選の森...今後どうする？まったり緊急生配信【中谷一馬vs川上りゅうせいvs吉田あやvs今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/HEsGRg73oiw "wikilink")
     -   公開日: 2026-02-09
-    -   視聴数: 717,006
-    -   **いいね数: 11,765**
+    -   視聴数: 739,031
+    -   **いいね数: 12,190**
     -   出演者: 
     - [![](https://img.youtube.com/vi/HEsGRg73oiw/hqdefault.jpg)](https://www.youtube.com/watch?v=HEsGRg73oiw)
 1.  [【自民戦後最多議席】高市相場第二幕で日経平均の高騰はどこまで続く？【朝倉慶&くらま&ReHacQ】](/rehacq_fan/ids/BbuUWiinKZI "wikilink")
     -   公開日: 2026-02-09
-    -   視聴数: 81,039
-    -   **いいね数: 1,272**
+    -   視聴数: 81,763
+    -   **いいね数: 1,291**
     -   出演者: 
     - [![](https://img.youtube.com/vi/BbuUWiinKZI/hqdefault.jpg)](https://www.youtube.com/watch?v=BbuUWiinKZI)
 1.  [【衆院選2026】開票速報！結果は如何に…まったり緊急生配信【今野忍vs西田亮介vs石丸伸二vsひろゆきvs高橋弘樹】](/rehacq_fan/ids/OSAjuZ4h9KM "wikilink")
     -   公開日: 2026-02-08
-    -   視聴数: 2,364,844
-    -   **いいね数: 20,974**
+    -   視聴数: 2,369,928
+    -   **いいね数: 21,039**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/OSAjuZ4h9KM/hqdefault.jpg)](https://www.youtube.com/watch?v=OSAjuZ4h9KM)
 1.  [【高橋弘樹vs民俗学者】妖怪の発生条件...子守唄に隠された真実とは？【ReHacQvs島村恭則】](/rehacq_fan/ids/9wUxPOLPUIo "wikilink")
     -   公開日: 2026-02-08
-    -   視聴数: 64,695
-    -   **いいね数: 1,196**
+    -   視聴数: 66,076
+    -   **いいね数: 1,231**
     -   出演者: 島村恭則, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/9wUxPOLPUIo/hqdefault.jpg)](https://www.youtube.com/watch?v=9wUxPOLPUIo)
 1.  [【高橋弘樹vs今村翔吾】『イクサガミ』大ヒットの裏側 衝撃告白!地方で書店経営...なぜ？AI時代の生き残り戦略とは【ReHacQ】](/rehacq_fan/ids/HZZb6YEQrfo "wikilink")
     -   公開日: 2026-02-08
-    -   視聴数: 39,608
-    -   **いいね数: 704**
+    -   視聴数: 39,889
+    -   **いいね数: 711**
     -   出演者: [今村翔吾](/rehacq_fan/people/今村翔吾 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/HZZb6YEQrfo/hqdefault.jpg)](https://www.youtube.com/watch?v=HZZb6YEQrfo)
 
