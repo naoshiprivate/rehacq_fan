@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】衆議院選挙 東京5区（世田谷区）ネット討論会【奥井奈々vsいなば太郎vsくわずるゆき子vs手塚よしおvs若宮けんじ】](https://www.youtube.com/watch?v=gjR5X5CkAuU)
 [![](https://img.youtube.com/vi/gjR5X5CkAuU/sddefault.jpg)](https://www.youtube.com/watch?v=gjR5X5CkAuU)
 -   公開日: 2026-02-04
--   視聴数: 13,197
--   **いいね数: 106**
+-   視聴数: 20,079
+-   **いいね数: 155**
 -   出演者: いなば太郎, くわずるゆき子, 手塚よしお, 若宮けんじ
