@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】板橋区ネット討論会【藤井サチ】](https://www.youtube.com/watch?v=DmiKtOIqqQU)
 [![](https://img.youtube.com/vi/DmiKtOIqqQU/sddefault.jpg)](https://www.youtube.com/watch?v=DmiKtOIqqQU)
 -   公開日: 2025-06-20
--   視聴数: 70,652
--   **いいね数: 2,047**
+-   視聴数: 70,655
+-   **いいね数: 2,046**
 -   出演者: 
