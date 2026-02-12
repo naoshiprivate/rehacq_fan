@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】まったり緊急生配信【足立康史vs河井克行vs小西洋之vs高橋弘樹】](https://www.youtube.com/watch?v=7dlS9dhwJ14)
 [![](https://img.youtube.com/vi/7dlS9dhwJ14/sddefault.jpg)](https://www.youtube.com/watch?v=7dlS9dhwJ14)
 -   公開日: 2026-02-11
--   視聴数: 439,749
--   **いいね数: 5,354**
+-   視聴数: 445,599
+-   **いいね数: 5,402**
 -   出演者: 
