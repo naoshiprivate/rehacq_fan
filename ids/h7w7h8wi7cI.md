@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs法学者】衝撃！離婚調停の実態…裁判所の人手不足が招く問題とは？【入江秀晃vsReHacQ】](https://www.youtube.com/watch?v=h7w7h8wi7cI)
 [![](https://img.youtube.com/vi/h7w7h8wi7cI/sddefault.jpg)](https://www.youtube.com/watch?v=h7w7h8wi7cI)
 -   公開日: 2026-02-12
--   視聴数: 3,789
--   **いいね数: 151**
+-   視聴数: 5,979
+-   **いいね数: 241**
 -   出演者: 
