@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/aAjHat0wnaU/sddefault.jpg)](https://www.youtube.com/watch?v=aAjHat0wnaU)
 -   公開日: 2025-05-30
 -   視聴数: 52,414
--   **いいね数: 613**
+-   **いいね数: 612**
 -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
