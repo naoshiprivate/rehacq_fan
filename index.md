@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
     -   公開日: 2026-02-13
-    -   視聴数: 3,309
-    -   **いいね数: 234**
+    -   視聴数: 88,366
+    -   **いいね数: 2,269**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_3KdKk_NdJo/hqdefault.jpg)](https://www.youtube.com/watch?v=_3KdKk_NdJo)
 1.  [【重大リスク10連発】2026年 世界激変！？新・通商秩序の中で日本は生き残れるか？【菅原淳一&永濱利廣&森本智子&ReHacQ】](/rehacq_fan/ids/EEA4PUbzKek "wikilink")
     -   公開日: 2026-02-13
-    -   視聴数: 9,739
-    -   **いいね数: 204**
+    -   視聴数: 17,772
+    -   **いいね数: 233**
     -   出演者: 
     - [![](https://img.youtube.com/vi/EEA4PUbzKek/hqdefault.jpg)](https://www.youtube.com/watch?v=EEA4PUbzKek)
 1.  [【金美齢vs高橋弘樹】激白！安倍晋三の知られざる素顔...総裁選の裏話とは？石破茂に激怒！一体なぜ？【ReHacQ】](/rehacq_fan/ids/mSI7MFp4pAE "wikilink")
     -   公開日: 2026-02-12
-    -   視聴数: 423,032
-    -   **いいね数: 11,306**
+    -   視聴数: 438,916
+    -   **いいね数: 11,499**
     -   出演者: 
     - [![](https://img.youtube.com/vi/mSI7MFp4pAE/hqdefault.jpg)](https://www.youtube.com/watch?v=mSI7MFp4pAE)
 1.  [【高橋弘樹vs離婚の危機】協議離婚に注意！調停の罠に気をつけろ！【ReHacQvs入江秀晃】](/rehacq_fan/ids/h7w7h8wi7cI "wikilink")
     -   公開日: 2026-02-12
-    -   視聴数: 47,323
-    -   **いいね数: 880**
+    -   視聴数: 48,583
+    -   **いいね数: 884**
     -   出演者: 
     - [![](https://img.youtube.com/vi/h7w7h8wi7cI/hqdefault.jpg)](https://www.youtube.com/watch?v=h7w7h8wi7cI)
 1.  [【ReHacQ生配信】まったり緊急生配信【足立康史vs河井克行vs小西洋之vs高橋弘樹】](/rehacq_fan/ids/7dlS9dhwJ14 "wikilink")
     -   公開日: 2026-02-11
-    -   視聴数: 490,730
-    -   **いいね数: 5,821**
+    -   視聴数: 492,729
+    -   **いいね数: 5,833**
     -   出演者: 
     - [![](https://img.youtube.com/vi/7dlS9dhwJ14/hqdefault.jpg)](https://www.youtube.com/watch?v=7dlS9dhwJ14)
 
@@ -34,14 +34,14 @@
 ## 最近の人気動画
 1.  [【衆院選2026】あつまれ！当選の森...今後どうする？まったり緊急生配信【川松真一朗vs丸川珠代vsいさ進一vs森ようすけvs石丸伸二vs今野忍vs西田亮介vs高橋弘樹】](/rehacq_fan/ids/kKfITnWGkCE "wikilink")
     -   公開日: 2026-02-10
-    -   視聴数: 842,650
-    -   **いいね数: 11,902**
+    -   視聴数: 844,397
+    -   **いいね数: 11,917**
     -   出演者: [いさ進一](/rehacq_fan/people/いさ進一 "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [丸川珠代](/rehacq_fan/people/丸川珠代 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [川松真一朗](/rehacq_fan/people/川松真一朗 "wikilink"), [森ようすけ](/rehacq_fan/people/森ようすけ "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/kKfITnWGkCE/hqdefault.jpg)](https://www.youtube.com/watch?v=kKfITnWGkCE)
 1.  [【衆院選2026】あつまれ！落選の森...今後どうする？まったり緊急生配信【山岸一生vs太栄志vs石崎徹vs宮本徹vs石丸伸二vs今野忍vs音喜多駿vs高橋弘樹】](/rehacq_fan/ids/16G8aKvqb2A "wikilink")
     -   公開日: 2026-02-10
-    -   視聴数: 567,730
-    -   **いいね数: 8,433**
+    -   視聴数: 569,058
+    -   **いいね数: 8,448**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 太栄志, 宮本徹, [山岸一生](/rehacq_fan/people/山岸一生 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石崎徹, [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/16G8aKvqb2A/hqdefault.jpg)](https://www.youtube.com/watch?v=16G8aKvqb2A)
 1.  [【衆院選2026】あつまれ！落選の森...今後どうする？まったり緊急生配信【中谷一馬vs川上りゅうせいvs吉田あやvs今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/HEsGRg73oiw "wikilink")
@@ -76,7 +76,7 @@
 ## 時系列データ
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 55, 視聴数: 11,010,447, いいね数: 194,218
+-   動画数: 55, 視聴数: 11,131,838, いいね数: 196,556
 
 #### [2026年01月](videos/202601 "wikilink")
 
@@ -84,7 +84,7 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 13,687,421, いいね数: 183,653
+-   動画数: 83, 視聴数: 13,688,222, いいね数: 183,655
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -92,11 +92,11 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,939,212, いいね数: 342,427
+-   動画数: 102, 視聴数: 23,961,139, いいね数: 342,787
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,880,777, いいね数: 273,239
+-   動画数: 87, 視聴数: 16,881,061, いいね数: 273,239
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -104,7 +104,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 21,623,365, いいね数: 369,083
+-   動画数: 76, 視聴数: 21,628,199, いいね数: 369,165
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -112,7 +112,7 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 15,773,043, いいね数: 200,577
+-   動画数: 63, 視聴数: 15,786,674, いいね数: 200,662
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -176,19 +176,19 @@
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,415,125, いいね数: 119,031
+-   動画数: 30, 視聴数: 9,415,155, いいね数: 119,031
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,589,052, いいね数: 122,353
+-   動画数: 30, 視聴数: 9,589,102, いいね数: 122,353
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,430,596, いいね数: 143,385
+-   動画数: 25, 視聴数: 13,430,620, いいね数: 143,385
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,435,918, いいね数: 172,314
+-   動画数: 33, 視聴数: 12,435,935, いいね数: 172,314
 
 #### [2023年09月](videos/202309 "wikilink")
 
@@ -219,4 +219,4 @@
 -   動画数: 14, 視聴数: 8,059,257, いいね数: 141,434
 
 ---
-2026-02-13 22:00
+2026-02-13 23:00
