@@ -1,6 +1,6 @@
 ### [【生配信・日本維新の会】国民民主の連立入りに前向きな考え【ReHacQ記者会見 1月7日（水）】](https://www.youtube.com/watch?v=tHtbW-DXoMo)
 [![](https://img.youtube.com/vi/tHtbW-DXoMo/sddefault.jpg)](https://www.youtube.com/watch?v=tHtbW-DXoMo)
 -   公開日: 2026-01-07
--   視聴数: 19,912
+-   視聴数: 19,925
 -   **いいね数: 185**
 -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
