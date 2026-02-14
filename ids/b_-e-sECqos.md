@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/b_-e-sECqos/sddefault.jpg)](https://www.youtube.com/watch?v=b_-e-sECqos)
 -   公開日: 2025-02-11
 -   視聴数: 85,786
--   **いいね数: 879**
+-   **いいね数: 878**
 -   出演者: 福山章子, [野沢春日](/rehacq_fan/people/野沢春日 "wikilink"), [鈴木一人](/rehacq_fan/people/鈴木一人 "wikilink")

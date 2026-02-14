@@ -322,8 +322,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石破総理が緊急出演】楽しい日本とは？103万の壁は？SNS規制は？夫婦別姓は？総理が本音激白【ReHacQ高橋弘樹】](/rehacq_fan/ids/k2jbKFIP--s "wikilink")
     -   公開日: 2025-01-26
-    -   視聴数: 1,168,113
-    -   **いいね数: 17,996**
+    -   視聴数: 1,179,211
+    -   **いいね数: 17,997**
     -   出演者: [石破茂](/rehacq_fan/people/石破茂 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【なぜ自公連立崩壊？】高市早苗会談で何が…代表に聞く！なぜ連立終了？公明党のこれから【ReHacQ高橋弘樹】](/rehacq_fan/ids/MOY5qRsVZjc "wikilink")
     -   公開日: 2025-10-11
