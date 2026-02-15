@@ -3,4 +3,4 @@
 -   公開日: 2026-02-08
 -   視聴数: 4
 -   **いいね数: 12**
--   出演者: 
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮下宗一郎, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
