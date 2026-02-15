@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/fV8NwgLDkrI/sddefault.jpg)](https://www.youtube.com/watch?v=fV8NwgLDkrI)
 -   公開日: 2025-09-12
 -   視聴数: 13,482
--   **いいね数: 336**
+-   **いいね数: 335**
 -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink")

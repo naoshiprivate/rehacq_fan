@@ -62,8 +62,8 @@
 
 1. [今野忍](/rehacq_fan/people/今野忍): 825,419 (12)
 1. [吉村洋文](/rehacq_fan/people/吉村洋文): 705,672 (11)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 588,672 (153)
-1. [西田亮介](/rehacq_fan/people/西田亮介): 571,379 (150)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 588,673 (153)
+1. [西田亮介](/rehacq_fan/people/西田亮介): 571,380 (150)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 566,114 (15)
 1. [ひろゆき](/rehacq_fan/people/ひろゆき): 510,948 (233)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 497,477 (32)
