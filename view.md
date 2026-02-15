@@ -22,8 +22,8 @@
     -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [緊急対談　川上量生、立花孝志【ReHacQ SP】](/rehacq_fan/ids/KPwDlYmzEIA "wikilink")
     -   公開日: 2023-03-21
-    -   視聴数: 2,711,571
-    -   **いいね数: 37,257**
+    -   視聴数: 2,712,515
+    -   **いいね数: 37,248**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【衝撃の最終兵器】「政治と金」問題に激震…岸田総理は1.8億円！玉木雄一郎代表は…？政治家のお金の流れ全部サクッと検索！衝撃ツールとは!?【自民党&国民民主党&立憲民主党&維新…ReHacQ】](/rehacq_fan/ids/3Hfpr-_7Ykg "wikilink")
     -   公開日: 2025-04-13
@@ -492,8 +492,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
     -   公開日: 2025-11-21
-    -   視聴数: 972,474
-    -   **いいね数: 18,310**
+    -   視聴数: 986,757
+    -   **いいね数: 18,482**
     -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](/rehacq_fan/ids/Lcj1tooXlSk "wikilink")
     -   公開日: 2025-02-18
