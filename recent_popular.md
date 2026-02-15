@@ -1,19 +1,19 @@
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
     -   公開日: 2026-02-13
-    -   視聴数: 738,473
-    -   **いいね数: 10,368**
+    -   視聴数: 742,338
+    -   **いいね数: 10,404**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_3KdKk_NdJo/hqdefault.jpg)](https://www.youtube.com/watch?v=_3KdKk_NdJo)
 1.  [【金美齢vs高橋弘樹】激白！安倍晋三の知られざる素顔...総裁選の裏話とは？石破茂に激怒！一体なぜ？【ReHacQ】](/rehacq_fan/ids/mSI7MFp4pAE "wikilink")
     -   公開日: 2026-02-12
-    -   視聴数: 614,207
-    -   **いいね数: 14,741**
+    -   視聴数: 617,633
+    -   **いいね数: 14,836**
     -   出演者: 
     - [![](https://img.youtube.com/vi/mSI7MFp4pAE/hqdefault.jpg)](https://www.youtube.com/watch?v=mSI7MFp4pAE)
 1.  [【ReHacQ生配信】まったり緊急生配信【足立康史vs河井克行vs小西洋之vs高橋弘樹】](/rehacq_fan/ids/7dlS9dhwJ14 "wikilink")
     -   公開日: 2026-02-11
-    -   視聴数: 524,429
-    -   **いいね数: 6,170**
+    -   視聴数: 524,910
+    -   **いいね数: 6,174**
     -   出演者: 
     - [![](https://img.youtube.com/vi/7dlS9dhwJ14/hqdefault.jpg)](https://www.youtube.com/watch?v=7dlS9dhwJ14)
 1.  [【衆院選2026】あつまれ！当選の森...今後どうする？まったり緊急生配信【川松真一朗vs丸川珠代vsいさ進一vs森ようすけvs石丸伸二vs今野忍vs西田亮介vs高橋弘樹】](/rehacq_fan/ids/kKfITnWGkCE "wikilink")
