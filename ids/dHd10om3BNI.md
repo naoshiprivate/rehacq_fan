@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/dHd10om3BNI/sddefault.jpg)](https://www.youtube.com/watch?v=dHd10om3BNI)
 -   公開日: 2026-02-16
 -   視聴数: 4
--   **いいね数: 67**
+-   **いいね数: 247**
 -   出演者: 
