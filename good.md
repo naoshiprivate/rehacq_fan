@@ -420,6 +420,11 @@
     -   視聴数: 904,003
     -   **いいね数: 16,202**
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+1.  [【金美齢vs高橋弘樹】激白！安倍晋三の知られざる素顔...総裁選の裏話とは？石破茂に激怒！一体なぜ？【ReHacQ】](/rehacq_fan/ids/mSI7MFp4pAE "wikilink")
+    -   公開日: 2026-02-12
+    -   視聴数: 678,162
+    -   **いいね数: 16,142**
+    -   出演者: 金美齢, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs藤井サチ】気まずい因縁ある2人で彦根旅【ReHacQ旅】](/rehacq_fan/ids/f3kpjjROUGc "wikilink")
     -   公開日: 2024-08-02
     -   視聴数: 637,897
@@ -430,11 +435,6 @@
     -   視聴数: 1,195,053
     -   **いいね数: 16,107**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【金美齢vs高橋弘樹】激白！安倍晋三の知られざる素顔...総裁選の裏話とは？石破茂に激怒！一体なぜ？【ReHacQ】](/rehacq_fan/ids/mSI7MFp4pAE "wikilink")
-    -   公開日: 2026-02-12
-    -   視聴数: 674,915
-    -   **いいね数: 16,081**
-    -   出演者: 金美齢, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【彦根市長・石丸伸二の事件簿①】藤井サチが禁句…「嬉しかったですか？」【面白すぎる彦根城】](/rehacq_fan/ids/0p6zOpzlS34 "wikilink")
     -   公開日: 2024-08-11
     -   視聴数: 807,693
