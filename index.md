@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【石丸伸二vsスザンヌvs福利厚生】9万円のホテルが2万円で泊まれる？高級ホテルが最大80%割引！福利厚生革命！【ReHacQ】](/rehacq_fan/ids/dHd10om3BNI "wikilink")
     -   公開日: 2026-02-16
-    -   視聴数: 22,640
-    -   **いいね数: 1,572**
+    -   視聴数: 34,303
+    -   **いいね数: 1,674**
     -   出演者: 
     - [![](https://img.youtube.com/vi/dHd10om3BNI/hqdefault.jpg)](https://www.youtube.com/watch?v=dHd10om3BNI)
 1.  [【けんすうvs ITエンジニア】年収1,000万は一部だけ？広すぎるITエンジニアの年収分布の現実とは【ReHacQvs赤川朗】](/rehacq_fan/ids/NbbU5HaToEs "wikilink")
     -   公開日: 2026-02-16
-    -   視聴数: 8,262
-    -   **いいね数: 120**
+    -   視聴数: 10,355
+    -   **いいね数: 125**
     -   出演者: 
     - [![](https://img.youtube.com/vi/NbbU5HaToEs/hqdefault.jpg)](https://www.youtube.com/watch?v=NbbU5HaToEs)
 1.  [【高橋弘樹vs元プレステ開発】NVIDIAへの挑戦！電力効率150倍の衝撃新技術を開発！？日本発AI半導体スタートアップ企業の戦略とは【ReHacQスザンヌ】](/rehacq_fan/ids/eJsd1lNWgHM "wikilink")
     -   公開日: 2026-02-16
-    -   視聴数: 96,020
-    -   **いいね数: 2,108**
+    -   視聴数: 101,720
+    -   **いいね数: 2,160**
     -   出演者: 
     - [![](https://img.youtube.com/vi/eJsd1lNWgHM/hqdefault.jpg)](https://www.youtube.com/watch?v=eJsd1lNWgHM)
 1.  [【ひろゆきvs青森県知事】人口流出で消滅危機…若者残す政策とは【ReHacQvs宮下宗一郎】](/rehacq_fan/ids/2p_1d3vIdwo "wikilink")
     -   公開日: 2026-02-15
-    -   視聴数: 173,929
-    -   **いいね数: 2,617**
+    -   視聴数: 176,955
+    -   **いいね数: 2,650**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮下宗一郎, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
     - [![](https://img.youtube.com/vi/2p_1d3vIdwo/hqdefault.jpg)](https://www.youtube.com/watch?v=2p_1d3vIdwo)
 1.  [【高橋弘樹vs宇宙開発】米中が狙う“宇宙覇権” の真実、火星は中国か米国か？火星開発の舞台裏【ReHacQ R大学】](/rehacq_fan/ids/lXlV2WX9iWY "wikilink")
     -   公開日: 2026-02-15
-    -   視聴数: 63,427
-    -   **いいね数: 805**
+    -   視聴数: 64,396
+    -   **いいね数: 810**
     -   出演者: 寺薗淳也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/lXlV2WX9iWY/hqdefault.jpg)](https://www.youtube.com/watch?v=lXlV2WX9iWY)
 
@@ -34,8 +34,8 @@
 ## 最近の人気動画
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
     -   公開日: 2026-02-13
-    -   視聴数: 839,953
-    -   **いいね数: 11,195**
+    -   視聴数: 842,168
+    -   **いいね数: 11,207**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/_3KdKk_NdJo/hqdefault.jpg)](https://www.youtube.com/watch?v=_3KdKk_NdJo)
 1.  [【金美齢vs高橋弘樹】激白！安倍晋三の知られざる素顔...総裁選の裏話とは？石破茂に激怒！一体なぜ？【ReHacQ】](/rehacq_fan/ids/mSI7MFp4pAE "wikilink")
@@ -76,11 +76,11 @@
 ## 時系列データ
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 64, 視聴数: 13,422,987, いいね数: 230,670
+-   動画数: 64, 視聴数: 13,454,015, いいね数: 230,931
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 18,035,536, いいね数: 294,271
+-   動画数: 90, 視聴数: 18,153,460, いいね数: 294,304
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -88,15 +88,15 @@
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,946,616, いいね数: 170,752
+-   動画数: 79, 視聴数: 11,947,712, いいね数: 170,764
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 24,003,589, いいね数: 343,279
+-   動画数: 102, 視聴数: 24,003,590, いいね数: 343,279
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,906,924, いいね数: 273,453
+-   動画数: 87, 視聴数: 16,908,291, いいね数: 273,457
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -104,7 +104,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 21,654,936, いいね数: 369,465
+-   動画数: 76, 視聴数: 21,655,278, いいね数: 369,467
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -140,15 +140,15 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,970,129, いいね数: 343,186
+-   動画数: 72, 視聴数: 22,978,202, いいね数: 343,208
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 15,000,369, いいね数: 222,864
+-   動画数: 50, 視聴数: 15,001,166, いいね数: 222,871
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 20,440,887, いいね数: 329,846
+-   動画数: 43, 視聴数: 20,441,782, いいね数: 329,851
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -219,4 +219,4 @@
 -   動画数: 14, 視聴数: 8,063,033, いいね数: 141,434
 
 ---
-2026-02-17 00:00
+2026-02-17 01:00
