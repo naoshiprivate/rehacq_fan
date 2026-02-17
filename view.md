@@ -47,8 +47,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs鈴木宗男②】ウクライナ侵攻で激論！鈴木宗男、衝撃の動機【注意してご覧ください。】](/rehacq_fan/ids/qemKsOkKAYM "wikilink")
     -   公開日: 2023-08-01
-    -   視聴数: 2,496,317
-    -   **いいね数: 27,221**
+    -   視聴数: 2,497,354
+    -   **いいね数: 27,230**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【ひろゆきvs日本保守党】河村たかしが激怒！政治屋をぶっつぶす【西田亮介vsリハックマReHacQ】](/rehacq_fan/ids/0ecD5gpE0i8 "wikilink")
     -   公開日: 2024-11-09
@@ -72,8 +72,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs鈴木宗男】ウクライナ侵攻に持論…ロシアの思惑は？【日本維新の会・副代表】](/rehacq_fan/ids/Thz0fKoe98c "wikilink")
     -   公開日: 2023-07-23
-    -   視聴数: 2,207,054
-    -   **いいね数: 19,646**
+    -   視聴数: 2,208,838
+    -   **いいね数: 19,654**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【Google賞金4.5億】睡眠革命！「朝型がいい」はウソ!?最新研究【柳沢正史】](/rehacq_fan/ids/IWqndzRAJnQ "wikilink")
     -   公開日: 2023-11-07
@@ -297,8 +297,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [土田しん](/rehacq_fan/people/土田しん "wikilink"), [小西ひろゆき](/rehacq_fan/people/小西ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs小西洋之】改憲の論点は？…「サルと同じ」発言の真相【なんで更迭されたんですか？】](/rehacq_fan/ids/h11UzRqjXyM "wikilink")
     -   公開日: 2023-08-20
-    -   視聴数: 1,209,288
-    -   **いいね数: 7,125**
+    -   視聴数: 1,214,145
+    -   **いいね数: 7,132**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](/rehacq_fan/ids/xVW1qk9pj9s "wikilink")
     -   公開日: 2025-01-22
@@ -352,8 +352,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs玉木雄一郎】５兆円！○○国債を！【野党の存在意義は？】](/rehacq_fan/ids/vJ2MS0ZjLdA "wikilink")
     -   公開日: 2023-05-23
-    -   視聴数: 1,128,438
-    -   **いいね数: 16,550**
+    -   視聴数: 1,129,125
+    -   **いいね数: 16,554**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元引きこもりがVTuber, [大井基行](/rehacq_fan/people/大井基行 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs東出昌大】夏の夜！まったり雑談【アフリカ旅】](/rehacq_fan/ids/yfbTb_WzSTM "wikilink")
     -   公開日: 2023-08-20
