@@ -1,31 +1,31 @@
+1.  [【生配信】国民民主党・玉木代表定例会見 2月17日（火）【ReHacQ】](/rehacq_fan/ids/f58dytYRADQ "wikilink")
+    -   公開日: 2026-02-17
+    -   視聴数: 5,907
+    -   **いいね数: 128**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/f58dytYRADQ/hqdefault.jpg)](https://www.youtube.com/watch?v=f58dytYRADQ)
+1.  [【整形に2600万】可愛い認定された日…仕事のオファー増加！見た目の変化で一番重要なのは？【平瀬あいり＆妹尾ユウカ＆ReHacQ】](/rehacq_fan/ids/1xTetiBeFFQ "wikilink")
+    -   公開日: 2026-02-17
+    -   視聴数: 1
+    -   **いいね数: 1**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/1xTetiBeFFQ/hqdefault.jpg)](https://www.youtube.com/watch?v=1xTetiBeFFQ)
 1.  [【石丸伸二vsスザンヌvs福利厚生】9万円のホテルが2万円で泊まれる？高級ホテルが最大80%割引！福利厚生革命！【ReHacQ】](/rehacq_fan/ids/dHd10om3BNI "wikilink")
     -   公開日: 2026-02-16
-    -   視聴数: 53,293
-    -   **いいね数: 1,940**
+    -   視聴数: 68,767
+    -   **いいね数: 2,303**
     -   出演者: 
     - [![](https://img.youtube.com/vi/dHd10om3BNI/hqdefault.jpg)](https://www.youtube.com/watch?v=dHd10om3BNI)
 1.  [【けんすうvs ITエンジニア】年収1,000万は一部だけ？広すぎるITエンジニアの年収分布の現実とは【ReHacQvs赤川朗】](/rehacq_fan/ids/NbbU5HaToEs "wikilink")
     -   公開日: 2026-02-16
-    -   視聴数: 13,612
-    -   **いいね数: 150**
+    -   視聴数: 17,080
+    -   **いいね数: 199**
     -   出演者: 
     - [![](https://img.youtube.com/vi/NbbU5HaToEs/hqdefault.jpg)](https://www.youtube.com/watch?v=NbbU5HaToEs)
 1.  [【高橋弘樹vs元プレステ開発】NVIDIAへの挑戦！電力効率150倍の衝撃新技術を開発！？日本発AI半導体スタートアップ企業の戦略とは【ReHacQスザンヌ】](/rehacq_fan/ids/eJsd1lNWgHM "wikilink")
     -   公開日: 2026-02-16
-    -   視聴数: 115,665
-    -   **いいね数: 2,336**
+    -   視聴数: 138,664
+    -   **いいね数: 2,744**
     -   出演者: 
     - [![](https://img.youtube.com/vi/eJsd1lNWgHM/hqdefault.jpg)](https://www.youtube.com/watch?v=eJsd1lNWgHM)
-1.  [【ひろゆきvs青森県知事】人口流出で消滅危機…若者残す政策とは【ReHacQvs宮下宗一郎】](/rehacq_fan/ids/2p_1d3vIdwo "wikilink")
-    -   公開日: 2026-02-15
-    -   視聴数: 184,489
-    -   **いいね数: 2,735**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮下宗一郎, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-    - [![](https://img.youtube.com/vi/2p_1d3vIdwo/hqdefault.jpg)](https://www.youtube.com/watch?v=2p_1d3vIdwo)
-1.  [【高橋弘樹vs宇宙開発】米中が狙う“宇宙覇権” の真実、火星は中国か米国か？火星開発の舞台裏【ReHacQ R大学】](/rehacq_fan/ids/lXlV2WX9iWY "wikilink")
-    -   公開日: 2026-02-15
-    -   視聴数: 68,806
-    -   **いいね数: 842**
-    -   出演者: 寺薗淳也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/lXlV2WX9iWY/hqdefault.jpg)](https://www.youtube.com/watch?v=lXlV2WX9iWY)
 
