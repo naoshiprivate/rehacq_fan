@@ -1,31 +1,31 @@
 1.  [【後藤達也vs大槻奈那】止まらない金利上昇‥専門家が読む次のシナリオとは？高市政権の金融政策とは？【ReHacQ高橋弘樹】](/rehacq_fan/ids/YaV-rlzvq4o "wikilink")
     -   公開日: 2026-02-19
-    -   視聴数: 25,741
-    -   **いいね数: 487**
+    -   視聴数: 54,426
+    -   **いいね数: 751**
     -   出演者: 
     - [![](https://img.youtube.com/vi/YaV-rlzvq4o/hqdefault.jpg)](https://www.youtube.com/watch?v=YaV-rlzvq4o)
 1.  [【高橋進vs海老原嗣生】日本にいる外国人の働き方は？データで検証！最新受け入れ論争【須黒清華&ReHacQ】](/rehacq_fan/ids/DuUjRHtX9Rw "wikilink")
     -   公開日: 2026-02-19
-    -   視聴数: 9,942
-    -   **いいね数: 313**
+    -   視聴数: 14,612
+    -   **いいね数: 374**
     -   出演者: 
     - [![](https://img.youtube.com/vi/DuUjRHtX9Rw/hqdefault.jpg)](https://www.youtube.com/watch?v=DuUjRHtX9Rw)
 1.  [【生配信・チームみらい】党執行役員、本部長人事を発表！年度内予算成立の是非、憲法改正についても言及【ReHacQ記者会見 2月19日(木)】](/rehacq_fan/ids/oSry68a_RnA "wikilink")
     -   公開日: 2026-02-19
-    -   視聴数: 32,928
-    -   **いいね数: 512**
+    -   視聴数: 34,942
+    -   **いいね数: 523**
     -   出演者: 
     - [![](https://img.youtube.com/vi/oSry68a_RnA/hqdefault.jpg)](https://www.youtube.com/watch?v=oSry68a_RnA)
 1.  [【須賀川拓vs中国外交】王毅外相「日本には軍国主義の亡霊」第二次内閣発足の高市氏はどう向き合う？【ReHacQ・阿古智子・周来友】](/rehacq_fan/ids/w47oeajYBag "wikilink")
     -   公開日: 2026-02-18
-    -   視聴数: 68,473
-    -   **いいね数: 697**
+    -   視聴数: 70,364
+    -   **いいね数: 711**
     -   出演者: 
     - [![](https://img.youtube.com/vi/w47oeajYBag/hqdefault.jpg)](https://www.youtube.com/watch?v=w47oeajYBag)
 1.  [【高橋弘樹vsインフラ危機②】日本のインフラが緊急事態...深刻な技術者不足問題、地方自治体の課題とは？　【ReHacQ】](/rehacq_fan/ids/HV2S1CAYWlE "wikilink")
     -   公開日: 2026-02-18
-    -   視聴数: 64,977
-    -   **いいね数: 1,225**
+    -   視聴数: 66,637
+    -   **いいね数: 1,245**
     -   出演者: 
     - [![](https://img.youtube.com/vi/HV2S1CAYWlE/hqdefault.jpg)](https://www.youtube.com/watch?v=HV2S1CAYWlE)
 
