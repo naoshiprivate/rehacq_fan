@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs東武鉄道】終電後の成増駅で駅長激白！最強観光列車スペーシアXとは？知られざる成増の魅力【ReHacQ】](https://www.youtube.com/watch?v=YreXcSbqaeY)
 [![](https://img.youtube.com/vi/YreXcSbqaeY/sddefault.jpg)](https://www.youtube.com/watch?v=YreXcSbqaeY)
 -   公開日: 2026-01-06
--   視聴数: 59,838
--   **いいね数: 1,145**
+-   視聴数: 61,664
+-   **いいね数: 1,200**
 -   出演者: 中村和伸, 小金井敦, [西田二郎](/rehacq_fan/people/西田二郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
