@@ -87,8 +87,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs吉村洋文】共闘宣言!?自浄作用なき政治、改革するには？【高橋弘樹】](/rehacq_fan/ids/XKGshW6xD1k "wikilink")
     -   公開日: 2024-08-31
-    -   視聴数: 2,172,572
-    -   **いいね数: 37,928**
+    -   視聴数: 2,178,542
+    -   **いいね数: 37,984**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【高橋弘樹vs近藤大介②】激動する中国政治_習近平の権力構造と地政学リスクとは？【ReHacQ中国経済SP】](/rehacq_fan/ids/ubUYvwixxCg "wikilink")
     -   公開日: 2025-10-09
@@ -162,8 +162,8 @@
     -   出演者: 大澤芳清, [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), 木島洋嗣, 清水貴之, 福本繁幸, 稲村和美, [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン・サックス】年収3億だけど「二度と戻りたくない」外資系投資会社で感じた限界とは？【ReHacQ】](/rehacq_fan/ids/dKXQC1J0VLw "wikilink")
     -   公開日: 2025-07-29
-    -   視聴数: 1,545,810
-    -   **いいね数: 19,844**
+    -   視聴数: 1,553,745
+    -   **いいね数: 19,943**
     -   出演者: [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs呉座勇一】戦国時代のウソ！豊臣秀吉の正体とは？歴史に騙されない方法【ReHacQvs織田信長の真実】](/rehacq_fan/ids/H6ZVuj7IGOM "wikilink")
     -   公開日: 2025-12-18
