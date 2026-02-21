@@ -1,6 +1,6 @@
-### [【高橋弘樹vs女性最年少上場社長】突然の社長退任...なぜ？2度の起業＆退任・3児の母、連続起業家・経沢香保子の波乱万丈人生とは【ReHacQ】](https://www.youtube.com/watch?v=qohT-Vuj1ik)
+### [【リアルバリューのドS社長】突然の涙…最年少の女性上場社長！波乱万丈の人生【ReHacQ高橋弘樹vsREAL VALUE経沢香保子】](https://www.youtube.com/watch?v=qohT-Vuj1ik)
 [![](https://img.youtube.com/vi/qohT-Vuj1ik/sddefault.jpg)](https://www.youtube.com/watch?v=qohT-Vuj1ik)
 -   公開日: 2026-02-21
--   視聴数: 62,811
--   **いいね数: 828**
--   出演者: 
+-   視聴数: 71,724
+-   **いいね数: 909**
+-   出演者: 経沢香保子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
