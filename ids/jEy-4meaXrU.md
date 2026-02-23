@@ -1,6 +1,6 @@
 ### [【ひろゆきvs青森県知事】激論！なぜ若者は地方を捨てるのか？地方の逆襲…知事が描く 壮大な青森再生構想【ReHacQvs宮下宗一郎】](https://www.youtube.com/watch?v=jEy-4meaXrU)
 [![](https://img.youtube.com/vi/jEy-4meaXrU/sddefault.jpg)](https://www.youtube.com/watch?v=jEy-4meaXrU)
 -   公開日: 2026-02-22
--   視聴数: 74,663
--   **いいね数: 1,603**
+-   視聴数: 96,760
+-   **いいね数: 2,009**
 -   出演者: 
