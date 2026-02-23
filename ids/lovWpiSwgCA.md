@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】参政党にガチ質問...衆院選2026【松田まなぶvs高橋弘樹】](https://www.youtube.com/watch?v=lovWpiSwgCA)
 [![](https://img.youtube.com/vi/lovWpiSwgCA/sddefault.jpg)](https://www.youtube.com/watch?v=lovWpiSwgCA)
 -   公開日: 2026-01-30
--   視聴数: 174,807
--   **いいね数: 7,010**
+-   視聴数: 178,586
+-   **いいね数: 7,049**
 -   出演者: 松田まなぶ, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
