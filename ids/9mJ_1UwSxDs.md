@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/9mJ_1UwSxDs/sddefault.jpg)](https://www.youtube.com/watch?v=9mJ_1UwSxDs)
 -   公開日: 2023-11-06
 -   視聴数: 83,115
--   **いいね数: 1,150**
+-   **いいね数: 1,149**
 -   出演者: [けんすう](/rehacq_fan/people/けんすう "wikilink"), [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 小林亮介
