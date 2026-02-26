@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【後藤達也vs大槻奈那】不動産バブルは終わるのか？ 金利・株価・住宅ローンの裏側【ReHacQ高橋弘樹】](/rehacq_fan/ids/wIyrvuwv3iw "wikilink")
     -   公開日: 2026-02-26
-    -   視聴数: 23,797
-    -   **いいね数: 511**
+    -   視聴数: 48,498
+    -   **いいね数: 674**
     -   出演者: 
     - [![](https://img.youtube.com/vi/wIyrvuwv3iw/hqdefault.jpg)](https://www.youtube.com/watch?v=wIyrvuwv3iw)
 1.  [【高橋進vs海老原嗣生】急増する外国人労働者…彼らは支え手か税金泥棒か？日本の選択と本当のリスクとは？【須黒清華&ReHacQ】](/rehacq_fan/ids/qW49I8UpHe0 "wikilink")
     -   公開日: 2026-02-26
-    -   視聴数: 9,649
-    -   **いいね数: 217**
+    -   視聴数: 14,241
+    -   **いいね数: 280**
     -   出演者: 
     - [![](https://img.youtube.com/vi/qW49I8UpHe0/hqdefault.jpg)](https://www.youtube.com/watch?v=qW49I8UpHe0)
 1.  [【須賀川拓vs緊迫イラン情勢】衝撃！NHKのテヘラン支局長拘束…収監先は悪名高い「政治犯刑務所」か【ReHacQ田中浩一郎・高橋和夫】](/rehacq_fan/ids/0kHrkYzX1zM "wikilink")
     -   公開日: 2026-02-25
-    -   視聴数: 144,329
-    -   **いいね数: 1,827**
+    -   視聴数: 151,859
+    -   **いいね数: 1,887**
     -   出演者: [田中浩一郎](/rehacq_fan/people/田中浩一郎 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋和夫](/rehacq_fan/people/高橋和夫 "wikilink")
     - [![](https://img.youtube.com/vi/0kHrkYzX1zM/hqdefault.jpg)](https://www.youtube.com/watch?v=0kHrkYzX1zM)
 1.  [【ReHacQ生配信】どうするリベラル！まったり緊急生配信【山岸一生vs小西洋之vs中谷一馬vsたかまつななvs今野忍vs高橋弘樹】](/rehacq_fan/ids/jqW4GHOrzyU "wikilink")
     -   公開日: 2026-02-25
-    -   視聴数: 391,852
-    -   **いいね数: 4,523**
+    -   視聴数: 421,574
+    -   **いいね数: 4,675**
     -   出演者: [たかまつなな](/rehacq_fan/people/たかまつなな "wikilink"), [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [山岸一生](/rehacq_fan/people/山岸一生 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/jqW4GHOrzyU/hqdefault.jpg)](https://www.youtube.com/watch?v=jqW4GHOrzyU)
 1.  [【高橋弘樹vs離婚調停】なぜ？議論が進まない共同親権...新しい家族の形とは？【ReHacQvs入江秀晃】](/rehacq_fan/ids/sJRT096BMsY "wikilink")
     -   公開日: 2026-02-25
-    -   視聴数: 22,320
-    -   **いいね数: 368**
+    -   視聴数: 23,032
+    -   **いいね数: 378**
     -   出演者: 入江秀晃, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/sJRT096BMsY/hqdefault.jpg)](https://www.youtube.com/watch?v=sJRT096BMsY)
 
@@ -76,15 +76,15 @@
 ## 時系列データ
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 92, 視聴数: 18,691,725, いいね数: 301,606
+-   動画数: 92, 視聴数: 18,770,379, いいね数: 302,158
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 19,179,543, いいね数: 302,148
+-   動画数: 90, 視聴数: 19,179,556, いいね数: 302,148
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 14,160,571, いいね数: 188,448
+-   動画数: 83, 視聴数: 14,161,825, いいね数: 188,452
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -92,7 +92,7 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 24,312,140, いいね数: 346,004
+-   動画数: 102, 視聴数: 24,312,515, いいね数: 346,006
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -104,7 +104,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 21,826,891, いいね数: 371,743
+-   動画数: 76, 視聴数: 21,828,735, いいね数: 371,762
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -128,11 +128,11 @@
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 18,389,245, いいね数: 295,958
+-   動画数: 48, 視聴数: 18,394,738, いいね数: 296,003
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,771,500, いいね数: 310,456
+-   動画数: 60, 視聴数: 18,779,715, いいね数: 310,535
 
 #### [2024年11月](videos/202411 "wikilink")
 
@@ -152,11 +152,11 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 16,125,608, いいね数: 291,933
+-   動画数: 44, 視聴数: 16,125,795, いいね数: 291,935
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,787,113, いいね数: 143,422
+-   動画数: 31, 視聴数: 10,787,132, いいね数: 143,422
 
 #### [2024年05月](videos/202405 "wikilink")
 
@@ -219,4 +219,4 @@
 -   動画数: 14, 視聴数: 8,072,061, いいね数: 141,506
 
 ---
-2026-02-27 01:00
+2026-02-27 07:00
