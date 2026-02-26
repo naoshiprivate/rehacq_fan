@@ -3,4 +3,4 @@
 -   公開日: 2025-12-25
 -   視聴数: 659,845
 -   **いいね数: 7,030**
--   出演者: 呉座勇一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

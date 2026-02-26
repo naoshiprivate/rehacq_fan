@@ -3,4 +3,4 @@
 -   公開日: 2025-08-18
 -   視聴数: 267,041
 -   **いいね数: 3,725**
--   出演者: たかまつなな, [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [横田一](/rehacq_fan/people/横田一 "wikilink"), [藤田文武](/rehacq_fan/people/藤田文武 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [たかまつなな](/rehacq_fan/people/たかまつなな "wikilink"), [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [横田一](/rehacq_fan/people/横田一 "wikilink"), [藤田文武](/rehacq_fan/people/藤田文武 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
