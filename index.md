@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【開戦イランvsイスラエル＆アメリカ】イランへの空爆開始で報復も…イラン最高指導者の自宅も空爆されたか【ReHacQ須賀川拓・小谷哲男・高橋和夫・松本太・田中浩一郎】](/rehacq_fan/ids/OePSQROK-Q "wikilink")
     -   公開日: 2026-02-28
-    -   視聴数: 214,736
-    -   **いいね数: 2,624**
+    -   視聴数: 440,846
+    -   **いいね数: 4,460**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_OePSQROK-Q/hqdefault.jpg)](https://www.youtube.com/watch?v=_OePSQROK-Q)
 1.  [【後藤達也vs片山さつき】円安は誤解？「責任ある積極財政」の本当の意味【ReHacQ】](/rehacq_fan/ids/UhCq7AMfMp4 "wikilink")
     -   公開日: 2026-02-28
-    -   視聴数: 46,657
-    -   **いいね数: 1,302**
+    -   視聴数: 63,341
+    -   **いいね数: 1,504**
     -   出演者: 
     - [![](https://img.youtube.com/vi/UhCq7AMfMp4/hqdefault.jpg)](https://www.youtube.com/watch?v=UhCq7AMfMp4)
 1.  [【呉座勇一vs 高橋弘樹】異例の天皇批判！幕府滅亡の物語...英雄たちの最期とは？【鎌倉幕府vs後醍醐天皇】 ReHacQ](/rehacq_fan/ids/8l1Gi0QCZ0Y "wikilink")
     -   公開日: 2026-02-28
-    -   視聴数: 54,725
-    -   **いいね数: 986**
+    -   視聴数: 66,055
+    -   **いいね数: 1,069**
     -   出演者: 
     - [![](https://img.youtube.com/vi/8l1Gi0QCZ0Y/hqdefault.jpg)](https://www.youtube.com/watch?v=8l1Gi0QCZ0Y)
 1.  [【中道改革連合の大激論】高市早苗に質問…真意を大激白【岡本三成vs斎藤幸平vs今野忍vs ReHacQ高橋弘樹】](/rehacq_fan/ids/f4BCpel6qEk "wikilink")
     -   公開日: 2026-02-27
-    -   視聴数: 365,297
-    -   **いいね数: 7,881**
+    -   視聴数: 387,280
+    -   **いいね数: 8,150**
     -   出演者: 
     - [![](https://img.youtube.com/vi/f4BCpel6qEk/hqdefault.jpg)](https://www.youtube.com/watch?v=f4BCpel6qEk)
 1.  [【金利2％時代】資産戦略を最強FPが徹底解説！新NISA×iDeCo改正どう使う？【深野康彦&永濱利廣&馬渕磨理子&ReHacQ】](/rehacq_fan/ids/G0bOnIf54c4 "wikilink")
     -   公開日: 2026-02-27
-    -   視聴数: 75,748
-    -   **いいね数: 736**
+    -   視聴数: 77,812
+    -   **いいね数: 747**
     -   出演者: 
     - [![](https://img.youtube.com/vi/G0bOnIf54c4/hqdefault.jpg)](https://www.youtube.com/watch?v=G0bOnIf54c4)
 
@@ -34,8 +34,8 @@
 ## 最近の人気動画
 1.  [【ReHacQ生配信】どうするリベラル！まったり緊急生配信【山岸一生vs小西洋之vs中谷一馬vsたかまつななvs今野忍vs高橋弘樹】](/rehacq_fan/ids/jqW4GHOrzyU "wikilink")
     -   公開日: 2026-02-25
-    -   視聴数: 523,285
-    -   **いいね数: 5,427**
+    -   視聴数: 527,248
+    -   **いいね数: 5,440**
     -   出演者: [たかまつなな](/rehacq_fan/people/たかまつなな "wikilink"), [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [山岸一生](/rehacq_fan/people/山岸一生 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/jqW4GHOrzyU/hqdefault.jpg)](https://www.youtube.com/watch?v=jqW4GHOrzyU)
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
@@ -76,7 +76,7 @@
 ## 時系列データ
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 20,025,464, いいね数: 321,304
+-   動画数: 98, 視聴数: 20,312,970, いいね数: 323,754
 
 #### [2026年01月](videos/202601 "wikilink")
 
@@ -84,31 +84,31 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 14,209,579, いいね数: 188,885
+-   動画数: 83, 視聴数: 14,211,126, いいね数: 188,897
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 12,216,928, いいね数: 173,644
+-   動画数: 79, 視聴数: 12,218,706, いいね数: 173,657
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 24,330,058, いいね数: 346,239
+-   動画数: 102, 視聴数: 24,330,312, いいね数: 346,241
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 17,127,705, いいね数: 275,368
+-   動画数: 87, 視聴数: 17,128,063, いいね数: 275,368
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 15,208,427, いいね数: 265,634
+-   動画数: 65, 視聴数: 15,208,924, いいね数: 265,637
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 21,846,439, いいね数: 371,950
+-   動画数: 76, 視聴数: 21,846,640, いいね数: 371,943
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 17,334,669, いいね数: 311,413
+-   動画数: 78, 視聴数: 17,336,309, いいね数: 311,455
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -140,7 +140,7 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,029,392, いいね数: 343,407
+-   動画数: 72, 視聴数: 23,030,723, いいね数: 343,414
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -219,4 +219,4 @@
 -   動画数: 14, 視聴数: 8,077,164, いいね数: 141,518
 
 ---
-2026-03-01 01:00
+2026-03-01 07:00

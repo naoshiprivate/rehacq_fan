@@ -1,6 +1,6 @@
 ### [【後藤達也vs片山さつき】円安は誤解？「責任ある積極財政」の本当の意味【ReHacQ】](https://www.youtube.com/watch?v=UhCq7AMfMp4)
 [![](https://img.youtube.com/vi/UhCq7AMfMp4/sddefault.jpg)](https://www.youtube.com/watch?v=UhCq7AMfMp4)
 -   公開日: 2026-02-28
--   視聴数: 46,657
--   **いいね数: 1,302**
+-   視聴数: 63,341
+-   **いいね数: 1,504**
 -   出演者: 

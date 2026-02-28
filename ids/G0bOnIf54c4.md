@@ -1,6 +1,6 @@
 ### [【金利2％時代】資産戦略を最強FPが徹底解説！新NISA×iDeCo改正どう使う？【深野康彦&永濱利廣&馬渕磨理子&ReHacQ】](https://www.youtube.com/watch?v=G0bOnIf54c4)
 [![](https://img.youtube.com/vi/G0bOnIf54c4/sddefault.jpg)](https://www.youtube.com/watch?v=G0bOnIf54c4)
 -   公開日: 2026-02-27
--   視聴数: 75,748
--   **いいね数: 736**
+-   視聴数: 77,812
+-   **いいね数: 747**
 -   出演者: 
