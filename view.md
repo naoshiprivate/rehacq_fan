@@ -372,8 +372,8 @@
     -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs東出昌大】夏の夜！まったり雑談【アフリカ旅】](/rehacq_fan/ids/yfbTb_WzSTM "wikilink")
     -   公開日: 2023-08-20
-    -   視聴数: 1,115,697
-    -   **いいね数: 12,549**
+    -   視聴数: 1,116,147
+    -   **いいね数: 12,550**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【成田悠輔が推薦】動きに注目！天才物理学者の楽しすぎる量子力学入門【野村泰紀・宇宙とは？】](/rehacq_fan/ids/5iuWBR80ZWs "wikilink")
     -   公開日: 2023-07-07
@@ -477,9 +477,14 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【石丸伸二vsメディア】なぜ揉める？安芸高田市長と本音雑談【㊙︎ゲストも登場】](/rehacq_fan/ids/3rx30yJXsLs "wikilink")
     -   公開日: 2023-10-01
-    -   視聴数: 1,014,511
-    -   **いいね数: 15,619**
+    -   視聴数: 1,014,638
+    -   **いいね数: 15,621**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
+    -   公開日: 2025-11-21
+    -   視聴数: 1,012,202
+    -   **いいね数: 18,738**
+    -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆき「賠償金払う…」】なぜ今？踏み倒した賠償金…支払う日本縦断旅【ReHacQ】](/rehacq_fan/ids/18Lb1U5pt0k "wikilink")
     -   公開日: 2025-05-18
     -   視聴数: 1,007,609
@@ -490,11 +495,6 @@
     -   視聴数: 1,005,456
     -   **いいね数: 11,290**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
-1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
-    -   公開日: 2025-11-21
-    -   視聴数: 1,004,760
-    -   **いいね数: 18,680**
-    -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](/rehacq_fan/ids/Lcj1tooXlSk "wikilink")
     -   公開日: 2025-02-18
     -   視聴数: 972,333

@@ -1,3 +1,9 @@
+1.  [【ReHacQ生配信】どうするリベラル！まったり緊急生配信【山岸一生vs小西洋之vs中谷一馬vsたかまつななvs今野忍vs高橋弘樹】](/rehacq_fan/ids/jqW4GHOrzyU "wikilink")
+    -   公開日: 2026-02-25
+    -   視聴数: 506,106
+    -   **いいね数: 5,319**
+    -   出演者: [たかまつなな](/rehacq_fan/people/たかまつなな "wikilink"), [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [山岸一生](/rehacq_fan/people/山岸一生 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/jqW4GHOrzyU/hqdefault.jpg)](https://www.youtube.com/watch?v=jqW4GHOrzyU)
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
     -   公開日: 2026-02-13
     -   視聴数: 927,909
@@ -22,10 +28,4 @@
     -   **いいね数: 12,485**
     -   出演者: [いさ進一](/rehacq_fan/people/いさ進一 "wikilink"), [丸川珠代](/rehacq_fan/people/丸川珠代 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [川松真一朗](/rehacq_fan/people/川松真一朗 "wikilink"), [森ようすけ](/rehacq_fan/people/森ようすけ "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/kKfITnWGkCE/hqdefault.jpg)](https://www.youtube.com/watch?v=kKfITnWGkCE)
-1.  [【衆院選2026】あつまれ！落選の森...今後どうする？まったり緊急生配信【山岸一生vs太栄志vs石崎徹vs宮本徹vs石丸伸二vs今野忍vs音喜多駿vs高橋弘樹】](/rehacq_fan/ids/16G8aKvqb2A "wikilink")
-    -   公開日: 2026-02-10
-    -   視聴数: 623,728
-    -   **いいね数: 8,792**
-    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 太栄志, 宮本徹, [山岸一生](/rehacq_fan/people/山岸一生 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石崎徹, [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/16G8aKvqb2A/hqdefault.jpg)](https://www.youtube.com/watch?v=16G8aKvqb2A)
 

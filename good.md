@@ -282,24 +282,24 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【ひろゆきvs後藤達也】ReHacQスタート！緊急生配信【日経テレ東大学、超えるには？】](/rehacq_fan/ids/qUU0-PC6yyk "wikilink")
     -   公開日: 2023-03-05
-    -   視聴数: 814,399
-    -   **いいね数: 18,802**
+    -   視聴数: 814,594
+    -   **いいね数: 18,804**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【石丸伸二vs銀行の元上司】半沢直樹か否か…銀行時代、上司を詰めた理由とは？【高橋弘樹】](/rehacq_fan/ids/9Ost8DSs1uU "wikilink")
     -   公開日: 2024-09-14
     -   視聴数: 1,264,317
     -   **いいね数: 18,762**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
+    -   公開日: 2025-11-21
+    -   視聴数: 1,012,202
+    -   **いいね数: 18,738**
+    -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
     -   公開日: 2023-11-01
     -   視聴数: 1,076,662
     -   **いいね数: 18,727**
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
-    -   公開日: 2025-11-21
-    -   視聴数: 1,004,760
-    -   **いいね数: 18,680**
-    -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二が唖然】結婚報告東出昌大！衝撃告白…幸せな人生とは？【世界の果てに、東出・ひろゆき置いてきた】](/rehacq_fan/ids/8xFzx_lOouI "wikilink")
     -   公開日: 2024-08-27
     -   視聴数: 886,382
@@ -482,8 +482,8 @@
     -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【石丸伸二vsメディア】なぜ揉める？安芸高田市長と本音雑談【㊙︎ゲストも登場】](/rehacq_fan/ids/3rx30yJXsLs "wikilink")
     -   公開日: 2023-10-01
-    -   視聴数: 1,014,511
-    -   **いいね数: 15,619**
+    -   視聴数: 1,014,638
+    -   **いいね数: 15,621**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
     -   公開日: 2024-02-12
