@@ -1,7 +1,7 @@
 1.  [【開戦イランvsイスラエル＆アメリカ】イランへの空爆開始で報復も…イラン最高指導者の自宅も空爆されたか【ReHacQ須賀川拓・小谷哲男・高橋和夫・松本太・田中浩一郎】](/rehacq_fan/ids/OePSQROK-Q "wikilink")
     -   公開日: 2026-02-28
-    -   視聴数: 587,188
-    -   **いいね数: 6,218**
+    -   視聴数: 615,664
+    -   **いいね数: 6,501**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_OePSQROK-Q/hqdefault.jpg)](https://www.youtube.com/watch?v=_OePSQROK-Q)
 1.  [【ReHacQ生配信】どうするリベラル！まったり緊急生配信【山岸一生vs小西洋之vs中谷一馬vsたかまつななvs今野忍vs高橋弘樹】](/rehacq_fan/ids/jqW4GHOrzyU "wikilink")
@@ -12,8 +12,8 @@
     - [![](https://img.youtube.com/vi/jqW4GHOrzyU/hqdefault.jpg)](https://www.youtube.com/watch?v=jqW4GHOrzyU)
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
     -   公開日: 2026-02-13
-    -   視聴数: 927,909
-    -   **いいね数: 11,628**
+    -   視聴数: 953,425
+    -   **いいね数: 11,698**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/_3KdKk_NdJo/hqdefault.jpg)](https://www.youtube.com/watch?v=_3KdKk_NdJo)
 1.  [【金美齢vs高橋弘樹】激白！安倍晋三の知られざる素顔...総裁選の裏話とは？石破茂に激怒！一体なぜ？【ReHacQ】](/rehacq_fan/ids/mSI7MFp4pAE "wikilink")
