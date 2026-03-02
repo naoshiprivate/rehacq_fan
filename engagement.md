@@ -2,7 +2,7 @@
 
  エンゲージメント: いいね/視聴数x100 (カッコ内は出演本数)
 
-1. [神谷宗幣](/rehacq_fan/people/神谷宗幣): 2.49 (11)
+1. [神谷宗幣](/rehacq_fan/people/神谷宗幣): 2.48 (11)
 1. [石丸伸二](/rehacq_fan/people/石丸伸二): 2.08 (155)
 1. [藤井サチ](/rehacq_fan/people/藤井サチ): 2.01 (21)
 1. [吉村洋文](/rehacq_fan/people/吉村洋文): 1.89 (11)
@@ -12,7 +12,7 @@
 1. [玉木雄一郎](/rehacq_fan/people/玉木雄一郎): 1.63 (53)
 1. [奥井奈南](/rehacq_fan/people/奥井奈南): 1.58 (10)
 1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 1.58 (21)
-1. [音喜多駿](/rehacq_fan/people/音喜多駿): 1.57 (15)
+1. [音喜多駿](/rehacq_fan/people/音喜多駿): 1.56 (15)
 1. [安野貴博](/rehacq_fan/people/安野貴博): 1.54 (20)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 1.52 (32)
 1. [東出昌大](/rehacq_fan/people/東出昌大): 1.50 (19)
@@ -38,10 +38,10 @@
 
 1. [吉村洋文](/rehacq_fan/people/吉村洋文): 13,391 (11)
 1. [石丸伸二](/rehacq_fan/people/石丸伸二): 12,260 (155)
-1. [今野忍](/rehacq_fan/people/今野忍): 9,826 (15)
-1. [音喜多駿](/rehacq_fan/people/音喜多駿): 9,058 (15)
+1. [今野忍](/rehacq_fan/people/今野忍): 9,828 (15)
+1. [音喜多駿](/rehacq_fan/people/音喜多駿): 9,060 (15)
 1. [西田亮介](/rehacq_fan/people/西田亮介): 7,594 (152)
-1. [成田悠輔](/rehacq_fan/people/成田悠輔): 7,581 (32)
+1. [成田悠輔](/rehacq_fan/people/成田悠輔): 7,582 (32)
 1. [東出昌大](/rehacq_fan/people/東出昌大): 7,169 (19)
 1. [ひろゆき](/rehacq_fan/people/ひろゆき): 6,582 (235)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 6,302 (10)
@@ -60,14 +60,14 @@
 
 # 平均視聴数ランキング
 
-1. [今野忍](/rehacq_fan/people/今野忍): 823,302 (15)
+1. [今野忍](/rehacq_fan/people/今野忍): 824,275 (15)
 1. [吉村洋文](/rehacq_fan/people/吉村洋文): 708,511 (11)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 588,062 (155)
-1. [音喜多駿](/rehacq_fan/people/音喜多駿): 578,141 (15)
-1. [西田亮介](/rehacq_fan/people/西田亮介): 575,225 (152)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 588,156 (155)
+1. [音喜多駿](/rehacq_fan/people/音喜多駿): 579,113 (15)
+1. [西田亮介](/rehacq_fan/people/西田亮介): 575,321 (152)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 561,586 (10)
-1. [ひろゆき](/rehacq_fan/people/ひろゆき): 515,756 (235)
-1. [成田悠輔](/rehacq_fan/people/成田悠輔): 498,913 (32)
+1. [ひろゆき](/rehacq_fan/people/ひろゆき): 515,821 (235)
+1. [成田悠輔](/rehacq_fan/people/成田悠輔): 498,999 (32)
 1. [東出昌大](/rehacq_fan/people/東出昌大): 476,559 (19)
 1. [土田しん](/rehacq_fan/people/土田しん): 465,419 (10)
 1. [ふゆこ](/rehacq_fan/people/ふゆこ): 426,355 (10)
