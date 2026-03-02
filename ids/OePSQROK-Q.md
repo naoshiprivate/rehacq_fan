@@ -1,6 +1,6 @@
 ### [【開戦イランvsイスラエル＆アメリカ】イランへの空爆開始で報復も…イラン最高指導者の自宅も空爆されたか【ReHacQ須賀川拓・小谷哲男・高橋和夫・松本太・田中浩一郎】](https://www.youtube.com/watch?v=_OePSQROK-Q)
 [![](https://img.youtube.com/vi/_OePSQROK-Q/sddefault.jpg)](https://www.youtube.com/watch?v=_OePSQROK-Q)
 -   公開日: 2026-02-28
--   視聴数: 934,674
--   **いいね数: 9,111**
+-   視聴数: 945,604
+-   **いいね数: 9,172**
 -   出演者: 
