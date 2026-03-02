@@ -1,7 +1,7 @@
 1.  [【開戦イランvsイスラエル＆アメリカ】イランへの空爆開始で報復も…イラン最高指導者の自宅も空爆されたか【ReHacQ須賀川拓・小谷哲男・高橋和夫・松本太・田中浩一郎】](/rehacq_fan/ids/OePSQROK-Q "wikilink")
     -   公開日: 2026-02-28
-    -   視聴数: 885,310
-    -   **いいね数: 8,765**
+    -   視聴数: 918,472
+    -   **いいね数: 9,022**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_OePSQROK-Q/hqdefault.jpg)](https://www.youtube.com/watch?v=_OePSQROK-Q)
 1.  [【ReHacQ生配信】どうするリベラル！まったり緊急生配信【山岸一生vs小西洋之vs中谷一馬vsたかまつななvs今野忍vs高橋弘樹】](/rehacq_fan/ids/jqW4GHOrzyU "wikilink")

@@ -1,6 +1,6 @@
 ### [【中国人vs中国人】激論！維新の会・石平vs吉永藍…中国の影は迫っているのか！？【ReHacQ須賀川拓】](https://www.youtube.com/watch?v=VROdpKBCufQ)
 [![](https://img.youtube.com/vi/VROdpKBCufQ/sddefault.jpg)](https://www.youtube.com/watch?v=VROdpKBCufQ)
 -   公開日: 2025-12-10
--   視聴数: 96,635
--   **いいね数: 961**
+-   視聴数: 97,038
+-   **いいね数: 963**
 -   出演者: 石平, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
