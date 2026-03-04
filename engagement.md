@@ -54,7 +54,7 @@
 1. [土田しん](/rehacq_fan/people/土田しん): 5,032 (10)
 1. [スーツ](/rehacq_fan/people/スーツ): 4,802 (19)
 1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 4,736 (795)
-1. [神谷宗幣](/rehacq_fan/people/神谷宗幣): 4,623 (11)
+1. [神谷宗幣](/rehacq_fan/people/神谷宗幣): 4,622 (11)
 1. [内田稔](/rehacq_fan/people/内田稔): 4,455 (10)
 
 
@@ -62,11 +62,11 @@
 
 1. [今野忍](/rehacq_fan/people/今野忍): 824,954 (15)
 1. [吉村洋文](/rehacq_fan/people/吉村洋文): 708,647 (11)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 588,295 (155)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 588,297 (155)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 579,175 (15)
-1. [西田亮介](/rehacq_fan/people/西田亮介): 575,776 (152)
+1. [西田亮介](/rehacq_fan/people/西田亮介): 575,801 (152)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 562,681 (10)
-1. [ひろゆき](/rehacq_fan/people/ひろゆき): 516,259 (235)
+1. [ひろゆき](/rehacq_fan/people/ひろゆき): 516,276 (235)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 498,999 (32)
 1. [東出昌大](/rehacq_fan/people/東出昌大): 476,637 (19)
 1. [土田しん](/rehacq_fan/people/土田しん): 465,817 (10)
