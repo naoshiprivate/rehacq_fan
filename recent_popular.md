@@ -24,8 +24,8 @@
     - [![](https://img.youtube.com/vi/mSI7MFp4pAE/hqdefault.jpg)](https://www.youtube.com/watch?v=mSI7MFp4pAE)
 1.  [【ReHacQ生配信】まったり緊急生配信【足立康史vs河井克行vs小西洋之vs高橋弘樹】](/rehacq_fan/ids/7dlS9dhwJ14 "wikilink")
     -   公開日: 2026-02-11
-    -   視聴数: 556,529
-    -   **いいね数: 6,415**
+    -   視聴数: 558,424
+    -   **いいね数: 6,418**
     -   出演者: [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [足立康史](/rehacq_fan/people/足立康史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/7dlS9dhwJ14/hqdefault.jpg)](https://www.youtube.com/watch?v=7dlS9dhwJ14)
 
