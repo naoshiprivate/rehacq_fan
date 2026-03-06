@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【ReHacQ討論会】石川県知事選挙 ネット討論会【高橋弘樹vs山野ゆきよしvs黒梅あきら】](/rehacq_fan/ids/sB_KEBjepck "wikilink")
     -   公開日: 2026-03-06
-    -   視聴数: 16,557
-    -   **いいね数: 435**
+    -   視聴数: 23,398
+    -   **いいね数: 487**
     -   出演者: 
     - [![](https://img.youtube.com/vi/sB_KEBjepck/hqdefault.jpg)](https://www.youtube.com/watch?v=sB_KEBjepck)
 1.  [【春闘 要求集計】賃上げ5％時代…今回の結果は？実質賃金のインフレはいつ到来するのか！？【窪田真之&永濱利廣&森本智子&ReHacQ】](/rehacq_fan/ids/mtZ25khf0Ks "wikilink")
     -   公開日: 2026-03-06
-    -   視聴数: 10,725
-    -   **いいね数: 135**
+    -   視聴数: 15,737
+    -   **いいね数: 156**
     -   出演者: 
     - [![](https://img.youtube.com/vi/mtZ25khf0Ks/hqdefault.jpg)](https://www.youtube.com/watch?v=mtZ25khf0Ks)
 1.  [【歯の寿命を縮める】1日3回磨いても意味がない！？虫歯になる人の共通点とは？【松丸友紀&前岡遼馬&ReHacQ】](/rehacq_fan/ids/mjSjghAuB3A "wikilink")
     -   公開日: 2026-03-06
-    -   視聴数: 22,955
-    -   **いいね数: 525**
+    -   視聴数: 31,939
+    -   **いいね数: 634**
     -   出演者: 
     - [![](https://img.youtube.com/vi/mjSjghAuB3A/hqdefault.jpg)](https://www.youtube.com/watch?v=mjSjghAuB3A)
-1.  [【ReHacQvs不動産】高市政権で不動産市場は大転換機!インフレでの投資術とは？住宅ローンは怖くない...なぜ？【牧野知弘&藤代浩一&東留伽】](/rehacq_fan/ids/2HfdRAxILvs "wikilink")
+1.  [【ReHacQvs不動産】高市政権で不動産市場は大転換期!インフレでの投資術とは？住宅ローンは怖くない...なぜ？【牧野知弘&藤代浩一&東留伽】](/rehacq_fan/ids/2HfdRAxILvs "wikilink")
     -   公開日: 2026-03-05
-    -   視聴数: 59,305
-    -   **いいね数: 552**
+    -   視聴数: 62,489
+    -   **いいね数: 563**
     -   出演者: 
     - [![](https://img.youtube.com/vi/2HfdRAxILvs/hqdefault.jpg)](https://www.youtube.com/watch?v=2HfdRAxILvs)
 1.  [【生配信・チームみらい】国民会議、予算委員会について言及 「マニフェストで言ったことを前に進めることに全力を尽くす」【ReHacQ記者会見 3月5日(木)】](/rehacq_fan/ids/OOPTNFYCw2g "wikilink")
     -   公開日: 2026-03-05
-    -   視聴数: 22,831
-    -   **いいね数: 253**
+    -   視聴数: 23,269
+    -   **いいね数: 256**
     -   出演者: 
     - [![](https://img.youtube.com/vi/OOPTNFYCw2g/hqdefault.jpg)](https://www.youtube.com/watch?v=OOPTNFYCw2g)
 
@@ -40,8 +40,8 @@
     - [![](https://img.youtube.com/vi/_OePSQROK-Q/hqdefault.jpg)](https://www.youtube.com/watch?v=_OePSQROK-Q)
 1.  [【ReHacQ生配信】どうするリベラル！まったり緊急生配信【山岸一生vs小西洋之vs中谷一馬vsたかまつななvs今野忍vs高橋弘樹】](/rehacq_fan/ids/jqW4GHOrzyU "wikilink")
     -   公開日: 2026-02-25
-    -   視聴数: 527,248
-    -   **いいね数: 5,440**
+    -   視聴数: 565,423
+    -   **いいね数: 5,666**
     -   出演者: [たかまつなな](/rehacq_fan/people/たかまつなな "wikilink"), [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [山岸一生](/rehacq_fan/people/山岸一生 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/jqW4GHOrzyU/hqdefault.jpg)](https://www.youtube.com/watch?v=jqW4GHOrzyU)
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
@@ -76,15 +76,15 @@
 ## 時系列データ
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 18, 視聴数: 2,154,065, いいね数: 27,827
+-   動画数: 18, 視聴数: 2,193,402, いいね数: 28,100
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 21,877,246, いいね数: 340,614
+-   動画数: 98, 視聴数: 21,915,421, いいね数: 340,840
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 19,684,714, いいね数: 306,816
+-   動画数: 90, 視聴数: 19,702,059, いいね数: 306,898
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -96,23 +96,23 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 24,517,479, いいね数: 347,824
+-   動画数: 102, 視聴数: 24,518,214, いいね数: 347,828
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 17,219,756, いいね数: 276,045
+-   動画数: 87, 視聴数: 17,227,078, いいね数: 276,106
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 15,310,881, いいね数: 266,460
+-   動画数: 65, 視聴数: 15,311,210, いいね数: 266,460
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 21,954,523, いいね数: 373,166
+-   動画数: 76, 視聴数: 21,954,563, いいね数: 373,160
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 17,411,737, いいね数: 312,328
+-   動画数: 78, 視聴数: 17,412,892, いいね数: 312,347
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -140,11 +140,11 @@
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 23,059,318, いいね数: 382,134
+-   動画数: 38, 視聴数: 23,074,823, いいね数: 382,130
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,057,978, いいね数: 343,521
+-   動画数: 72, 視聴数: 23,059,038, いいね数: 343,519
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -223,4 +223,4 @@
 -   動画数: 14, 視聴数: 8,086,211, いいね数: 141,578
 
 ---
-2026-03-07 01:00
+2026-03-07 07:00
