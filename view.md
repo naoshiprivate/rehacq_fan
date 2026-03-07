@@ -499,4 +499,4 @@
     -   公開日: 2026-02-28
     -   視聴数: 983,194
     -   **いいね数: 9,468**
-    -   出演者: 
+    -   出演者: [小谷哲男](/rehacq_fan/people/小谷哲男 "wikilink"), 松本太, [田中浩一郎](/rehacq_fan/people/田中浩一郎 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋和夫](/rehacq_fan/people/高橋和夫 "wikilink")

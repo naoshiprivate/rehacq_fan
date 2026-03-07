@@ -3,4 +3,4 @@
 -   公開日: 2024-11-14
 -   視聴数: 163,177
 -   **いいね数: 2,000**
--   出演者: 小谷哲男, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+-   出演者: [小谷哲男](/rehacq_fan/people/小谷哲男 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")

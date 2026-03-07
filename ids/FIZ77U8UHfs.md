@@ -3,4 +3,4 @@
 -   公開日: 2025-09-23
 -   視聴数: 103,013
 -   **いいね数: 1,523**
--   出演者: 牧野知弘, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
+-   出演者: [牧野知弘](/rehacq_fan/people/牧野知弘 "wikilink"), [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
