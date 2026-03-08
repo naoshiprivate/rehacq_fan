@@ -1,6 +1,6 @@
-### [【高橋弘樹vs濱田祐太郎】壮絶人生！盲目、溢れた涙..なぜ？憧れのテレビ業界の光と影..人生の幸せとは【ReHacQ】](https://www.youtube.com/watch?v=AUGL1hwSnKc)
+### [【高橋弘樹vs濱田祐太郎】盲目芸人の本音！今が1番楽しい...なぜ？テレビ業界の光と影...人生の幸福論とは【ReHacQ】](https://www.youtube.com/watch?v=AUGL1hwSnKc)
 [![](https://img.youtube.com/vi/AUGL1hwSnKc/sddefault.jpg)](https://www.youtube.com/watch?v=AUGL1hwSnKc)
 -   公開日: 2026-03-05
--   視聴数: 168,864
--   **いいね数: 2,725**
+-   視聴数: 170,451
+-   **いいね数: 2,743**
 -   出演者: 濱田祐太郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
