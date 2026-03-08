@@ -1,6 +1,6 @@
 ### [【自民戦後最多議席】高市相場第二幕で日経平均の高騰はどこまで続く？【朝倉慶&くらま&ReHacQ】](https://www.youtube.com/watch?v=BbuUWiinKZI)
 [![](https://img.youtube.com/vi/BbuUWiinKZI/sddefault.jpg)](https://www.youtube.com/watch?v=BbuUWiinKZI)
 -   公開日: 2026-02-09
--   視聴数: 123,854
--   **いいね数: 1,915**
+-   視聴数: 124,030
+-   **いいね数: 1,913**
 -   出演者: [くらま](/rehacq_fan/people/くらま "wikilink"), 朝倉慶
