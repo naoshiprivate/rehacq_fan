@@ -47,8 +47,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs鈴木宗男②】ウクライナ侵攻で激論！鈴木宗男、衝撃の動機【注意してご覧ください。】](/rehacq_fan/ids/qemKsOkKAYM "wikilink")
     -   公開日: 2023-08-01
-    -   視聴数: 2,502,026
-    -   **いいね数: 27,269**
+    -   視聴数: 2,507,529
+    -   **いいね数: 27,372**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](/rehacq_fan/ids/hio2XdBPW5Y "wikilink")
     -   公開日: 2024-02-24
@@ -72,8 +72,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs鈴木宗男】ウクライナ侵攻に持論…ロシアの思惑は？【日本維新の会・副代表】](/rehacq_fan/ids/Thz0fKoe98c "wikilink")
     -   公開日: 2023-07-23
-    -   視聴数: 2,217,814
-    -   **いいね数: 19,725**
+    -   視聴数: 2,233,234
+    -   **いいね数: 19,948**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【石丸伸二vs玉木雄一郎】緊急生対談！国民民主党…これからの存在意義は？【高橋弘樹】](/rehacq_fan/ids/9_b3vH1wBP4 "wikilink")
     -   公開日: 2024-10-08
@@ -302,8 +302,8 @@
     -   出演者: 暇空茜, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆきvs小西洋之】改憲の論点は？…「サルと同じ」発言の真相【なんで更迭されたんですか？】](/rehacq_fan/ids/h11UzRqjXyM "wikilink")
     -   公開日: 2023-08-20
-    -   視聴数: 1,224,156
-    -   **いいね数: 7,170**
+    -   視聴数: 1,226,649
+    -   **いいね数: 7,169**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vsひろゆき】高市早苗が首相に指名！自維連立政権発足へ…日本どうなる！？まったり雑談【ReHacQ高橋弘樹vs西田亮介vs土田しんvs音喜多駿vs小西ひろゆき】](/rehacq_fan/ids/FLpXxsuYKls "wikilink")
     -   公開日: 2025-10-21
@@ -360,16 +360,16 @@
     -   視聴数: 1,131,307
     -   **いいね数: 21,558**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+1.  [【ひろゆきvs玉木雄一郎】５兆円！○○国債を！【野党の存在意義は？】](/rehacq_fan/ids/vJ2MS0ZjLdA "wikilink")
+    -   公開日: 2023-05-23
+    -   視聴数: 1,130,654
+    -   **いいね数: 16,558**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元引きこもりがVTuber, [大井基行](/rehacq_fan/people/大井基行 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【兵庫県知事選でも問題】公職選挙法の闇！なぜ逮捕？【石丸伸二を生んだ男】](/rehacq_fan/ids/smDf7a0Z_-w "wikilink")
     -   公開日: 2024-11-29
     -   視聴数: 1,130,627
     -   **いいね数: 15,501**
     -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ひろゆきvs玉木雄一郎】５兆円！○○国債を！【野党の存在意義は？】](/rehacq_fan/ids/vJ2MS0ZjLdA "wikilink")
-    -   公開日: 2023-05-23
-    -   視聴数: 1,130,358
-    -   **いいね数: 16,557**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元引きこもりがVTuber, [大井基行](/rehacq_fan/people/大井基行 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs近藤大介】中国人と日本人は似てると思うと失敗する？習近平はどこへ向かうのか？【ReHacQ中国経済SP】](/rehacq_fan/ids/MBD3k2kLnD8 "wikilink")
     -   公開日: 2025-09-30
     -   視聴数: 1,122,828
@@ -495,8 +495,8 @@
     -   視聴数: 1,008,447
     -   **いいね数: 9,629**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
-1.  [【開戦イランvsイスラエル＆アメリカ】イランへの空爆開始で報復も…イラン最高指導者の自宅も空爆されたか【ReHacQ須賀川拓・小谷哲男・高橋和夫・松本太・田中浩一郎】](/rehacq_fan/ids/OePSQROK-Q "wikilink")
-    -   公開日: 2026-02-28
-    -   視聴数: 983,194
-    -   **いいね数: 9,468**
-    -   出演者: [小谷哲男](/rehacq_fan/people/小谷哲男 "wikilink"), 松本太, [田中浩一郎](/rehacq_fan/people/田中浩一郎 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋和夫](/rehacq_fan/people/高橋和夫 "wikilink")
+1.  [【ひろゆきvsビッグダディ】衝撃！究極の子育て論を展開！止まらぬ少子化に抗う術とは...【林下清志vsナレソメ勝倉】](/rehacq_fan/ids/gE1Tqo86I_Y "wikilink")
+    -   公開日: 2025-07-20
+    -   視聴数: 986,853
+    -   **いいね数: 9,638**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), 林下清志
