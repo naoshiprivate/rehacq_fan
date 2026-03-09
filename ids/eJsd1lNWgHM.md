@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs元プレステ開発】NVIDIAへの挑戦！電力効率150倍の衝撃新技術を開発！？日本発AI半導体スタートアップ企業の戦略とは【ReHacQスザンヌ】](https://www.youtube.com/watch?v=eJsd1lNWgHM)
 [![](https://img.youtube.com/vi/eJsd1lNWgHM/sddefault.jpg)](https://www.youtube.com/watch?v=eJsd1lNWgHM)
 -   公開日: 2026-02-16
--   視聴数: 316,857
--   **いいね数: 4,781**
+-   視聴数: 322,015
+-   **いいね数: 4,822**
 -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 中島康彦, 藤原健真, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
