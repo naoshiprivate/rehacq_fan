@@ -1,6 +1,6 @@
 ### [【ひろゆきvs乙武洋匡②】なぜ日本で差別起きる？障害者への意識と心のバリアフリー【ReHacQvs西田亮介】](https://www.youtube.com/watch?v=CdLRMlwMGTE)
 [![](https://img.youtube.com/vi/CdLRMlwMGTE/sddefault.jpg)](https://www.youtube.com/watch?v=CdLRMlwMGTE)
 -   公開日: 2026-03-08
--   視聴数: 107,299
--   **いいね数: 1,958**
+-   視聴数: 113,662
+-   **いいね数: 2,014**
 -   出演者: 
