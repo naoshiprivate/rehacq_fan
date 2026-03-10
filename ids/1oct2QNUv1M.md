@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs花粉症】2026最新攻略ガイド！衝撃リスク...メカニズムや予防法は？食べてはいけないNGな食べ物とは？【ReHacQvs大久保公裕】](https://www.youtube.com/watch?v=1oct2QNUv1M)
 [![](https://img.youtube.com/vi/1oct2QNUv1M/sddefault.jpg)](https://www.youtube.com/watch?v=1oct2QNUv1M)
 -   公開日: 2026-03-07
--   視聴数: 338,609
--   **いいね数: 5,919**
+-   視聴数: 340,665
+-   **いいね数: 5,951**
 -   出演者: 大久保公裕, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
