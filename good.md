@@ -27,8 +27,8 @@
     -   出演者: [西田尚史](/rehacq_fan/people/西田尚史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】共闘宣言!?自浄作用なき政治、改革するには？【高橋弘樹】](/rehacq_fan/ids/XKGshW6xD1k "wikilink")
     -   公開日: 2024-08-31
-    -   視聴数: 2,185,050
-    -   **いいね数: 38,032**
+    -   視聴数: 2,186,311
+    -   **いいね数: 38,031**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs玉木雄一郎】緊急生対談！国民民主党…これからの存在意義は？【高橋弘樹】](/rehacq_fan/ids/9_b3vH1wBP4 "wikilink")
     -   公開日: 2024-10-08
@@ -257,8 +257,8 @@
     -   出演者: 金美齢, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン・サックス】年収3億だけど「二度と戻りたくない」外資系投資会社で感じた限界とは？【ReHacQ】](/rehacq_fan/ids/dKXQC1J0VLw "wikilink")
     -   公開日: 2025-07-29
-    -   視聴数: 1,571,655
-    -   **いいね数: 20,129**
+    -   視聴数: 1,577,804
+    -   **いいね数: 20,173**
     -   出演者: [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs鈴木宗男】ウクライナ侵攻に持論…ロシアの思惑は？【日本維新の会・副代表】](/rehacq_fan/ids/Thz0fKoe98c "wikilink")
     -   公開日: 2023-07-23
@@ -267,8 +267,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【石丸伸二vs吉村洋文】緊迫！石丸伸二が野党に激怒…今後のロードマップは？【高橋弘樹】](/rehacq_fan/ids/Lb9U4acxhs4 "wikilink")
     -   公開日: 2024-09-07
-    -   視聴数: 1,062,105
-    -   **いいね数: 19,148**
+    -   視聴数: 1,062,421
+    -   **いいね数: 19,145**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ生配信】日本保守党にガチ質問...衆院選2026【百田尚樹vs高橋弘樹】](/rehacq_fan/ids/cYLcT1fhacw "wikilink")
     -   公開日: 2026-02-04
@@ -302,7 +302,7 @@
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二が唖然】結婚報告東出昌大！衝撃告白…幸せな人生とは？【世界の果てに、東出・ひろゆき置いてきた】](/rehacq_fan/ids/8xFzx_lOouI "wikilink")
     -   公開日: 2024-08-27
-    -   視聴数: 886,795
+    -   視聴数: 887,050
     -   **いいね数: 18,640**
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](/rehacq_fan/ids/KihRlwlSPCI "wikilink")

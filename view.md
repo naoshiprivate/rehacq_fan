@@ -92,8 +92,8 @@
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】共闘宣言!?自浄作用なき政治、改革するには？【高橋弘樹】](/rehacq_fan/ids/XKGshW6xD1k "wikilink")
     -   公開日: 2024-08-31
-    -   視聴数: 2,185,050
-    -   **いいね数: 38,032**
+    -   視聴数: 2,186,311
+    -   **いいね数: 38,031**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆきvsデヴィ夫人】激怒‥国家観なき政治家は去れ？！ガチ放談【リハックマ】](/rehacq_fan/ids/XJbgK1m8j2Q "wikilink")
     -   公開日: 2024-06-23
@@ -162,8 +162,8 @@
     -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン・サックス】年収3億だけど「二度と戻りたくない」外資系投資会社で感じた限界とは？【ReHacQ】](/rehacq_fan/ids/dKXQC1J0VLw "wikilink")
     -   公開日: 2025-07-29
-    -   視聴数: 1,571,655
-    -   **いいね数: 20,129**
+    -   視聴数: 1,577,804
+    -   **いいね数: 20,173**
     -   出演者: [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ討論会】兵庫県知事選挙【候補者7人vs高橋弘樹】](/rehacq_fan/ids/b-bNBgMhpNM "wikilink")
     -   公開日: 2024-11-01
@@ -457,8 +457,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】緊迫！石丸伸二が野党に激怒…今後のロードマップは？【高橋弘樹】](/rehacq_fan/ids/Lb9U4acxhs4 "wikilink")
     -   公開日: 2024-09-07
-    -   視聴数: 1,062,105
-    -   **いいね数: 19,148**
+    -   視聴数: 1,062,421
+    -   **いいね数: 19,145**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](/rehacq_fan/ids/w-ToOG5rMTc "wikilink")
     -   公開日: 2023-10-01
