@@ -1,6 +1,6 @@
 ### [【乱高下する市場】戦争の行方で混迷する中東...相場はどうなる？【朝倉慶&節約オタクふゆこ&ReHacQ】](https://www.youtube.com/watch?v=uyFCHNxVTBc)
 [![](https://img.youtube.com/vi/uyFCHNxVTBc/sddefault.jpg)](https://www.youtube.com/watch?v=uyFCHNxVTBc)
 -   公開日: 2026-03-11
--   視聴数: 35,735
--   **いいね数: 824**
+-   視聴数: 40,383
+-   **いいね数: 883**
 -   出演者: 
