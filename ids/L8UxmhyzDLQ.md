@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs防災】東日本大震災から15年…命を守るための防災新常識とは？【ReHacQvs高荷智也vs乾栄一郎】](https://www.youtube.com/watch?v=L8UxmhyzDLQ)
 [![](https://img.youtube.com/vi/L8UxmhyzDLQ/sddefault.jpg)](https://www.youtube.com/watch?v=L8UxmhyzDLQ)
 -   公開日: 2026-03-11
--   視聴数: 61,824
--   **いいね数: 1,604**
+-   視聴数: 66,711
+-   **いいね数: 1,728**
 -   出演者: 
