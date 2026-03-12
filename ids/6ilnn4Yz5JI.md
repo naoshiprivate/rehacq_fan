@@ -1,6 +1,6 @@
-### [【ReHacQ生配信】まったり雑談【今野忍&西田亮介＆箕輪厚介&高橋弘樹】](https://www.youtube.com/watch?v=6ilnn4Yz5JI)
+### [【今野忍vs西田亮介vs箕輪厚介】朝日新聞へ怒り…なぜ？サナエトークンの落とし所は？リベラルとの対話…イラン情勢&東日本大震災…本音で対談【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=6ilnn4Yz5JI)
 [![](https://img.youtube.com/vi/6ilnn4Yz5JI/sddefault.jpg)](https://www.youtube.com/watch?v=6ilnn4Yz5JI)
 -   公開日: 2026-03-11
--   視聴数: 167,281
--   **いいね数: 2,968**
+-   視聴数: 234,353
+-   **いいね数: 4,111**
 -   出演者: 
