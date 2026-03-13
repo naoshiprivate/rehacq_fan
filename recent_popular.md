@@ -1,3 +1,9 @@
+1.  [【今野忍vs西田亮介vs箕輪厚介】朝日新聞へ怒り…なぜ？サナエトークンの落とし所は？リベラルとの対話…イラン情勢&東日本大震災…本音で対談【ReHacQ高橋弘樹】](/rehacq_fan/ids/6ilnn4Yz5JI "wikilink")
+    -   公開日: 2026-03-11
+    -   視聴数: 501,142
+    -   **いいね数: 7,181**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/6ilnn4Yz5JI/hqdefault.jpg)](https://www.youtube.com/watch?v=6ilnn4Yz5JI)
 1.  [【開戦イランvsイスラエル＆アメリカ】イランへの空爆開始で報復も…イラン最高指導者の自宅も空爆されたか【ReHacQ須賀川拓・小谷哲男・高橋和夫・松本太・田中浩一郎】](/rehacq_fan/ids/OePSQROK-Q "wikilink")
     -   公開日: 2026-02-28
     -   視聴数: 1,052,294
@@ -22,10 +28,4 @@
     -   **いいね数: 11,813**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/_3KdKk_NdJo/hqdefault.jpg)](https://www.youtube.com/watch?v=_3KdKk_NdJo)
-1.  [【金美齢vs高橋弘樹】激白！安倍晋三の知られざる素顔...総裁選の裏話とは？石破茂に激怒！一体なぜ？【ReHacQ】](/rehacq_fan/ids/mSI7MFp4pAE "wikilink")
-    -   公開日: 2026-02-12
-    -   視聴数: 943,391
-    -   **いいね数: 20,225**
-    -   出演者: 金美齢, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/mSI7MFp4pAE/hqdefault.jpg)](https://www.youtube.com/watch?v=mSI7MFp4pAE)
 
