@@ -367,8 +367,8 @@
     -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](/rehacq_fan/ids/Lcj1tooXlSk "wikilink")
     -   公開日: 2025-02-18
-    -   視聴数: 973,304
-    -   **いいね数: 17,055**
+    -   視聴数: 973,599
+    -   **いいね数: 17,058**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs西田亮介】「再生の道」の行く末とは？代表の思考をガチ解読！日本再生なるか...【ReHacQvs編集者箕輪厚介】](/rehacq_fan/ids/T6-FWvACzn8 "wikilink")
     -   公開日: 2025-04-30
@@ -405,16 +405,16 @@
     -   視聴数: 1,130,654
     -   **いいね数: 16,558**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元引きこもりがVTuber, [大井基行](/rehacq_fan/people/大井基行 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
+    -   公開日: 2024-09-10
+    -   視聴数: 1,514,134
+    -   **いいね数: 16,512**
+    -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】石丸市長…なぜ市長辞めるんですか？安芸高田市【石丸伸二vs西田亮介vs高橋弘樹】](/rehacq_fan/ids/FPkSBwYeFs "wikilink")
     -   公開日: 2024-05-13
     -   視聴数: 1,071,592
     -   **いいね数: 16,504**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
-    -   公開日: 2024-09-10
-    -   視聴数: 1,505,809
-    -   **いいね数: 16,438**
-    -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【立花孝志vs高橋弘樹】NHK党にNG無し質問！ReHacQ【西田亮介&横田一】](/rehacq_fan/ids/qzFJpEy_rI "wikilink")
     -   公開日: 2025-07-14
     -   視聴数: 778,168
