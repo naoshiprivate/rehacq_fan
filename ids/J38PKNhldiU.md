@@ -1,6 +1,6 @@
 ### [【須賀川拓vsイスラエル精密爆撃】圧倒的な破壊と極秘文書が示すターゲットとは…イラン戦争拡大で石油市場”史上最大”の供給混乱【ReHacQ高橋弘樹・小谷哲男】](https://www.youtube.com/watch?v=J38PKNhldiU)
 [![](https://img.youtube.com/vi/J38PKNhldiU/sddefault.jpg)](https://www.youtube.com/watch?v=J38PKNhldiU)
 -   公開日: 2026-03-13
--   視聴数: 249,379
--   **いいね数: 3,740**
+-   視聴数: 251,996
+-   **いいね数: 3,773**
 -   出演者: 
