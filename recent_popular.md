@@ -1,7 +1,7 @@
 1.  [【今野忍vs西田亮介vs箕輪厚介】朝日新聞へ怒り…なぜ？サナエトークンの落とし所は？リベラルとの対話…イラン情勢&東日本大震災…本音で対談【ReHacQ高橋弘樹】](/rehacq_fan/ids/6ilnn4Yz5JI "wikilink")
     -   公開日: 2026-03-11
-    -   視聴数: 552,259
-    -   **いいね数: 7,549**
+    -   視聴数: 554,178
+    -   **いいね数: 7,558**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6ilnn4Yz5JI/hqdefault.jpg)](https://www.youtube.com/watch?v=6ilnn4Yz5JI)
 1.  [【開戦イランvsイスラエル＆アメリカ】イランへの空爆開始で報復も…イラン最高指導者の自宅も空爆されたか【ReHacQ須賀川拓・小谷哲男・高橋和夫・松本太・田中浩一郎】](/rehacq_fan/ids/OePSQROK-Q "wikilink")
