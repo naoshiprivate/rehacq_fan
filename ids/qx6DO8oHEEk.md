@@ -1,6 +1,6 @@
 ### [【後藤達也vs夏野剛】メディアの未来どうなる？ テクノロジーを活用した教育とは？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=qx6DO8oHEEk)
 [![](https://img.youtube.com/vi/qx6DO8oHEEk/sddefault.jpg)](https://www.youtube.com/watch?v=qx6DO8oHEEk)
 -   公開日: 2026-03-14
--   視聴数: 41,177
--   **いいね数: 951**
+-   視聴数: 44,132
+-   **いいね数: 977**
 -   出演者: 
