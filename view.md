@@ -472,8 +472,8 @@
     -   出演者: カルロス・ゴーン, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【開戦イランvsイスラエル＆アメリカ】イランへの空爆開始で報復も…イラン最高指導者の自宅も空爆されたか【ReHacQ須賀川拓・小谷哲男・高橋和夫・松本太・田中浩一郎】](/rehacq_fan/ids/OePSQROK-Q "wikilink")
     -   公開日: 2026-02-28
-    -   視聴数: 1,052,294
-    -   **いいね数: 9,757**
+    -   視聴数: 1,059,667
+    -   **いいね数: 9,767**
     -   出演者: [小谷哲男](/rehacq_fan/people/小谷哲男 "wikilink"), 松本太, [田中浩一郎](/rehacq_fan/people/田中浩一郎 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋和夫](/rehacq_fan/people/高橋和夫 "wikilink")
 1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
     -   公開日: 2025-10-08
