@@ -1,6 +1,6 @@
 ### [【歯医者頼みは危険】9割の人が歯磨きの目的を誤解？歯みがきのコツとは？【松丸友紀&前岡遼馬&ReHacQ】](https://www.youtube.com/watch?v=yc0Hwtd7tNI)
 [![](https://img.youtube.com/vi/yc0Hwtd7tNI/sddefault.jpg)](https://www.youtube.com/watch?v=yc0Hwtd7tNI)
 -   公開日: 2026-03-13
--   視聴数: 31,912
--   **いいね数: 627**
+-   視聴数: 32,262
+-   **いいね数: 628**
 -   出演者: 
