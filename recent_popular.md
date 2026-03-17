@@ -1,7 +1,7 @@
 1.  [【ReHacQvs犯罪心理学者】子育ての勘違い！非行少年が生まれる原因は親！？正しい親子関係と子供を救う言葉とは【出口保行&尾崎里紗】](/rehacq_fan/ids/ECHidEuUJNs "wikilink")
     -   公開日: 2026-03-14
-    -   視聴数: 503,506
-    -   **いいね数: 7,041**
+    -   視聴数: 508,603
+    -   **いいね数: 7,077**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ECHidEuUJNs/hqdefault.jpg)](https://www.youtube.com/watch?v=ECHidEuUJNs)
 1.  [【今野忍vs西田亮介vs箕輪厚介】朝日新聞へ怒り…なぜ？サナエトークンの落とし所は？リベラルとの対話…イラン情勢&東日本大震災…本音で対談【ReHacQ高橋弘樹】](/rehacq_fan/ids/6ilnn4Yz5JI "wikilink")
