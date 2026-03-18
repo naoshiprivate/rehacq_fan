@@ -1,8 +1,8 @@
 # TETSUYAの出演動画
 
 - 出演本数: 6
-- 平均視聴数: 172,503
-- 平均いいね数: 2,045
+- 平均視聴数: 172,551
+- 平均いいね数: 2,046
 - [エンゲージメント](/rehacq_fan/engagement) (いいね/視聴数x100): 1.19
 
 
@@ -40,6 +40,6 @@
     - [![](https://img.youtube.com/vi/nJDdh9Mi1M0/hqdefault.jpg)](https://www.youtube.com/watch?v=nJDdh9Mi1M0)
 1.  [【ひろゆき&EXILE】毒ガスの町へ…なぜそこに住む？アフリカ・ガーナ編始動【ReHacQ旅】](/rehacq_fan/ids/8T3GTN11i-U "wikilink")
     -   公開日: 2025-01-03
-    -   視聴数: 398,716
-    -   **いいね数: 4,545**
+    -   視聴数: 399,004
+    -   **いいね数: 4,546**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
