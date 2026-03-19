@@ -16,16 +16,16 @@
     -   **いいね数: 13,489**
     -   出演者: 
     - [![](https://img.youtube.com/vi/OaraOYMIles/hqdefault.jpg)](https://www.youtube.com/watch?v=OaraOYMIles)
+1.  [【高橋弘樹vs京大名誉教授】大規模自然災害...火山学的に富士山は噴火するのか？迫る南海トラフ・首都直下地震 その対策方法は？【ReHacQ】](/rehacq_fan/ids/itwBJX3z-5I "wikilink")
+    -   公開日: 2026-03-04
+    -   視聴数: 577,654
+    -   **いいね数: 7,017**
+    -   出演者: 鎌田浩毅, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/itwBJX3z-5I/hqdefault.jpg)](https://www.youtube.com/watch?v=itwBJX3z-5I)
 1.  [【開戦イランvsイスラエル＆アメリカ】イランへの空爆開始で報復も…イラン最高指導者の自宅も空爆されたか【ReHacQ須賀川拓・小谷哲男・高橋和夫・松本太・田中浩一郎】](/rehacq_fan/ids/OePSQROK-Q "wikilink")
     -   公開日: 2026-02-28
     -   視聴数: 1,059,667
     -   **いいね数: 9,767**
     -   出演者: [小谷哲男](/rehacq_fan/people/小谷哲男 "wikilink"), 松本太, [田中浩一郎](/rehacq_fan/people/田中浩一郎 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋和夫](/rehacq_fan/people/高橋和夫 "wikilink")
     - [![](https://img.youtube.com/vi/_OePSQROK-Q/hqdefault.jpg)](https://www.youtube.com/watch?v=_OePSQROK-Q)
-1.  [【中道改革連合の大激論】高市早苗に質問…真意を大激白【岡本三成vs斎藤幸平vs今野忍vs ReHacQ高橋弘樹】](/rehacq_fan/ids/f4BCpel6qEk "wikilink")
-    -   公開日: 2026-02-27
-    -   視聴数: 652,469
-    -   **いいね数: 11,421**
-    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 岡本三成, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/f4BCpel6qEk/hqdefault.jpg)](https://www.youtube.com/watch?v=f4BCpel6qEk)
 
