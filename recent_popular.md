@@ -6,8 +6,8 @@
     - [![](https://img.youtube.com/vi/ECHidEuUJNs/hqdefault.jpg)](https://www.youtube.com/watch?v=ECHidEuUJNs)
 1.  [【今野忍vs西田亮介vs箕輪厚介】朝日新聞へ怒り…なぜ？サナエトークンの落とし所は？リベラルとの対話…イラン情勢&東日本大震災…本音で対談【ReHacQ高橋弘樹】](/rehacq_fan/ids/6ilnn4Yz5JI "wikilink")
     -   公開日: 2026-03-11
-    -   視聴数: 559,328
-    -   **いいね数: 7,582**
+    -   視聴数: 657,553
+    -   **いいね数: 8,239**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6ilnn4Yz5JI/hqdefault.jpg)](https://www.youtube.com/watch?v=6ilnn4Yz5JI)
 1.  [【高橋弘樹vs京大名誉教授】完全解説！迫る南海トラフ・首都直下型地震・富士山噴火...国民半分が被災？国家機能は停止し300兆円の損失？安全な都市とは...【ReHacQvs鎌田浩毅】](/rehacq_fan/ids/OaraOYMIles "wikilink")
