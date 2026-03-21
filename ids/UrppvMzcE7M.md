@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs今村翔吾】『イクサガミ』Netflix実写化大ヒット！令和こそ根性論!?ビジネスにも活きる直木賞作家の成功哲学とは？【ReHacQ】](https://www.youtube.com/watch?v=UrppvMzcE7M)
 [![](https://img.youtube.com/vi/UrppvMzcE7M/sddefault.jpg)](https://www.youtube.com/watch?v=UrppvMzcE7M)
 -   公開日: 2026-01-31
--   視聴数: 96,397
--   **いいね数: 1,429**
+-   視聴数: 97,057
+-   **いいね数: 1,444**
 -   出演者: [今村翔吾](/rehacq_fan/people/今村翔吾 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
