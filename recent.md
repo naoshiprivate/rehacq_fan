@@ -1,31 +1,31 @@
 1.  [【呉座勇一vs 高橋弘樹】戦国時代を生んだ大乱！日本史の転換点、泥沼の11年戦争とは？【応仁の乱vs ReHacQ】](/rehacq_fan/ids/pjfPGfzlxLo "wikilink")
     -   公開日: 2026-03-21
-    -   視聴数: 2,076
-    -   **いいね数: 81**
+    -   視聴数: 5,189
+    -   **いいね数: 269**
     -   出演者: 
     - [![](https://img.youtube.com/vi/pjfPGfzlxLo/hqdefault.jpg)](https://www.youtube.com/watch?v=pjfPGfzlxLo)
 1.  [【今野忍vs国民民主党】激白…玉木雄一郎の秘書からなぜ都議へ？【ReHacQvs山口花】](/rehacq_fan/ids/S-uLWV6snnQ "wikilink")
     -   公開日: 2026-03-20
-    -   視聴数: 124,258
-    -   **いいね数: 1,859**
+    -   視聴数: 128,278
+    -   **いいね数: 1,913**
     -   出演者: 
     - [![](https://img.youtube.com/vi/S-uLWV6snnQ/hqdefault.jpg)](https://www.youtube.com/watch?v=S-uLWV6snnQ)
 1.  [【社会保障の再設計】国民会議のメンバー発表…税の“使い道”はどうなる？【片岡剛士＆永濱利廣＆森本智子&ReHacQ】](/rehacq_fan/ids/AjKXZ5RoT4o "wikilink")
     -   公開日: 2026-03-20
-    -   視聴数: 27,632
-    -   **いいね数: 333**
+    -   視聴数: 28,480
+    -   **いいね数: 346**
     -   出演者: 
     - [![](https://img.youtube.com/vi/AjKXZ5RoT4o/hqdefault.jpg)](https://www.youtube.com/watch?v=AjKXZ5RoT4o)
 1.  [【ReHacQvs不動産】中国人が日本の土地を爆買い！？マンション購入者は4割が外国人？安全保障上のリスクは？必要な規制とは...？【牧野知弘&藤代浩一&東留伽】](/rehacq_fan/ids/DoFY1qMkhtU "wikilink")
     -   公開日: 2026-03-20
-    -   視聴数: 35,476
-    -   **いいね数: 369**
+    -   視聴数: 36,201
+    -   **いいね数: 375**
     -   出演者: 
     - [![](https://img.youtube.com/vi/DoFY1qMkhtU/hqdefault.jpg)](https://www.youtube.com/watch?v=DoFY1qMkhtU)
 1.  [【高橋弘樹vs震災②】災害から生き残れ…首都直下地震どう備える？【RehacQvs高荷智也vs乾栄一郎】](/rehacq_fan/ids/YnqQOfAt9LY "wikilink")
     -   公開日: 2026-03-19
-    -   視聴数: 141,989
-    -   **いいね数: 2,792**
+    -   視聴数: 143,525
+    -   **いいね数: 2,808**
     -   出演者: 
     - [![](https://img.youtube.com/vi/YnqQOfAt9LY/hqdefault.jpg)](https://www.youtube.com/watch?v=YnqQOfAt9LY)
 
