@@ -3,4 +3,4 @@
 -   公開日: 2025-12-29
 -   視聴数: 271,781
 -   **いいね数: 3,145**
--   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 乙武洋匡, [若新雄純](/rehacq_fan/people/若新雄純 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [乙武洋匡](/rehacq_fan/people/乙武洋匡 "wikilink"), [若新雄純](/rehacq_fan/people/若新雄純 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

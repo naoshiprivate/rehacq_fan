@@ -1,6 +1,6 @@
 ### [【須賀川拓vs指導者】世界秩序の乱れ…“力こそ正義”はなぜ復活したのか？【ReHacQvs川北省吾】](https://www.youtube.com/watch?v=8Zb0gc7jT3w)
 [![](https://img.youtube.com/vi/8Zb0gc7jT3w/sddefault.jpg)](https://www.youtube.com/watch?v=8Zb0gc7jT3w)
 -   公開日: 2026-03-12
--   視聴数: 76,833
--   **いいね数: 1,132**
--   出演者: 
+-   視聴数: 84,091
+-   **いいね数: 1,223**
+-   出演者: 川北省吾, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")

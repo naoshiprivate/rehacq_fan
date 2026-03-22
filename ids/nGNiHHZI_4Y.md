@@ -3,4 +3,4 @@
 -   公開日: 2026-03-17
 -   視聴数: 41,241
 -   **いいね数: 463**
--   出演者: 
+-   出演者: [加藤シルビア](/rehacq_fan/people/加藤シルビア "wikilink"), [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")

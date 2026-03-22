@@ -3,4 +3,4 @@
 -   公開日: 2026-02-11
 -   視聴数: 184,098
 -   **いいね数: 2,586**
--   出演者: [くらま](/rehacq_fan/people/くらま "wikilink"), 朝倉慶
+-   出演者: [くらま](/rehacq_fan/people/くらま "wikilink"), [朝倉慶](/rehacq_fan/people/朝倉慶 "wikilink")

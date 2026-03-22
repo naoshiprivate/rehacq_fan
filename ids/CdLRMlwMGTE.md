@@ -3,4 +3,4 @@
 -   公開日: 2026-03-08
 -   視聴数: 182,492
 -   **いいね数: 3,084**
--   出演者: 
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [乙武洋匡](/rehacq_fan/people/乙武洋匡 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")

@@ -3,4 +3,4 @@
 -   公開日: 2026-03-16
 -   視聴数: 34,343
 -   **いいね数: 350**
--   出演者: 
+-   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 山本一成, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")

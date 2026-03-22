@@ -3,4 +3,4 @@
 -   公開日: 2026-03-10
 -   視聴数: 260,385
 -   **いいね数: 4,430**
--   出演者: 
+-   出演者: [田中浩一郎](/rehacq_fan/people/田中浩一郎 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋和夫](/rehacq_fan/people/高橋和夫 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
