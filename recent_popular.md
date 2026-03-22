@@ -22,10 +22,10 @@
     -   **いいね数: 7,017**
     -   出演者: 鎌田浩毅, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/itwBJX3z-5I/hqdefault.jpg)](https://www.youtube.com/watch?v=itwBJX3z-5I)
-1.  [【開戦イランvsイスラエル＆アメリカ】イランへの空爆開始で報復も…イラン最高指導者の自宅も空爆されたか【ReHacQ須賀川拓・小谷哲男・高橋和夫・松本太・田中浩一郎】](/rehacq_fan/ids/OePSQROK-Q "wikilink")
-    -   公開日: 2026-02-28
-    -   視聴数: 1,062,172
-    -   **いいね数: 9,768**
-    -   出演者: [小谷哲男](/rehacq_fan/people/小谷哲男 "wikilink"), 松本太, [田中浩一郎](/rehacq_fan/people/田中浩一郎 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋和夫](/rehacq_fan/people/高橋和夫 "wikilink")
-    - [![](https://img.youtube.com/vi/_OePSQROK-Q/hqdefault.jpg)](https://www.youtube.com/watch?v=_OePSQROK-Q)
+1.  [【ひろゆきvs乙武洋匡】人生恨んだことがない！根っからのポジティブ思考…なぜ？【西田亮介ReHacQ】](/rehacq_fan/ids/cxsbMe0Tsi0 "wikilink")
+    -   公開日: 2026-03-01
+    -   視聴数: 501,166
+    -   **いいね数: 6,957**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [乙武洋匡](/rehacq_fan/people/乙武洋匡 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+    - [![](https://img.youtube.com/vi/cxsbMe0Tsi0/hqdefault.jpg)](https://www.youtube.com/watch?v=cxsbMe0Tsi0)
 
