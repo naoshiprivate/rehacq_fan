@@ -172,8 +172,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二 緊急生出演】石丸新党「再生の道」とは？会見参加できなかったメディア質問会【ReHacQ高橋弘樹】](/rehacq_fan/ids/7V56CikEagk "wikilink")
     -   公開日: 2025-01-15
-    -   視聴数: 864,325
-    -   **いいね数: 22,102**
+    -   視聴数: 864,857
+    -   **いいね数: 22,101**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](/rehacq_fan/ids/CepOZXVtsCo "wikilink")
     -   公開日: 2023-10-25
@@ -182,8 +182,8 @@
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink")
 1.  [【石丸新党は？記者会見】なぜテレ朝に激怒？謎だらけ新党の全容は？【ReHacQSP】](/rehacq_fan/ids/lM0cVpbgv5w "wikilink")
     -   公開日: 2025-01-15
-    -   視聴数: 626,809
-    -   **いいね数: 21,872**
+    -   視聴数: 626,965
+    -   **いいね数: 21,868**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【国民民主vsひろゆき】全部言う！玉木氏が衝撃告白！参院選で重大発表【ReHacQ高橋弘樹】](/rehacq_fan/ids/3WIDjkmg6xY "wikilink")
     -   公開日: 2025-02-02
