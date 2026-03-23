@@ -410,16 +410,16 @@
     -   視聴数: 1,103,522
     -   **いいね数: 8,110**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vs辞めゴールドマン】年収1億円…行く人、行かない人違いは？【ReHacQ】](/rehacq_fan/ids/Ipck99H_vjU "wikilink")
+    -   公開日: 2025-01-13
+    -   視聴数: 1,098,964
+    -   **いいね数: 14,623**
+    -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](/rehacq_fan/ids/QPmOX-9hDpY "wikilink")
     -   公開日: 2025-02-27
     -   視聴数: 1,094,916
     -   **いいね数: 12,537**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
-1.  [【高橋弘樹vs辞めゴールドマン】年収1億円…行く人、行かない人違いは？【ReHacQ】](/rehacq_fan/ids/Ipck99H_vjU "wikilink")
-    -   公開日: 2025-01-13
-    -   視聴数: 1,094,735
-    -   **いいね数: 14,589**
-    -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](/rehacq_fan/ids/JxdSFPP3_Bg "wikilink")
     -   公開日: 2025-05-13
     -   視聴数: 1,091,923
