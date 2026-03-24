@@ -1,6 +1,6 @@
 ### [【危機の時代】「手遅れになる！」学校の先生…政治家に挑戦！現職に挑む訳は？鳥取市長選挙ネット討論会【ReHacQ高橋弘樹vs柳大地】](https://www.youtube.com/watch?v=kOVpZeqmKe4)
 [![](https://img.youtube.com/vi/kOVpZeqmKe4/sddefault.jpg)](https://www.youtube.com/watch?v=kOVpZeqmKe4)
 -   公開日: 2026-03-23
--   視聴数: 19,178
--   **いいね数: 509**
+-   視聴数: 22,219
+-   **いいね数: 581**
 -   出演者: 
