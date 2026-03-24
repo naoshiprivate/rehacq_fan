@@ -1,6 +1,6 @@
 ### [【ベイルート中心を爆撃】緊迫レバノン南部独占取材…空爆リスク＆倒壊したビル…イスラエルの狙いは？【ReHacQ須賀川拓・高橋和夫・齊藤貢】](https://www.youtube.com/watch?v=atwlopJwgUQ)
 [![](https://img.youtube.com/vi/atwlopJwgUQ/sddefault.jpg)](https://www.youtube.com/watch?v=atwlopJwgUQ)
 -   公開日: 2026-03-24
--   視聴数: 72,301
--   **いいね数: 2,176**
+-   視聴数: 110,239
+-   **いいね数: 2,680**
 -   出演者: 
