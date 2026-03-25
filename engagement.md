@@ -55,18 +55,18 @@
 1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 4,758 (824)
 1. [斎藤幸平](/rehacq_fan/people/斎藤幸平): 4,365 (40)
 1. [安野貴博](/rehacq_fan/people/安野貴博): 4,344 (24)
-1. [神谷宗幣](/rehacq_fan/people/神谷宗幣): 4,264 (12)
+1. [神谷宗幣](/rehacq_fan/people/神谷宗幣): 4,263 (12)
 
 
 # 平均視聴数ランキング
 
 1. [今野忍](/rehacq_fan/people/今野忍): 726,111 (22)
 1. [吉村洋文](/rehacq_fan/people/吉村洋文): 709,730 (11)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 591,687 (155)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 591,694 (155)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 575,638 (16)
-1. [西田亮介](/rehacq_fan/people/西田亮介): 574,593 (157)
+1. [西田亮介](/rehacq_fan/people/西田亮介): 574,596 (157)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 571,115 (10)
-1. [ひろゆき](/rehacq_fan/people/ひろゆき): 516,971 (238)
+1. [ひろゆき](/rehacq_fan/people/ひろゆき): 516,978 (238)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 500,348 (32)
 1. [東出昌大](/rehacq_fan/people/東出昌大): 478,670 (19)
 1. [土田しん](/rehacq_fan/people/土田しん): 466,473 (11)
