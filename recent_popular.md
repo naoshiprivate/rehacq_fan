@@ -18,8 +18,8 @@
     - [![](https://img.youtube.com/vi/OaraOYMIles/hqdefault.jpg)](https://www.youtube.com/watch?v=OaraOYMIles)
 1.  [【高橋弘樹vs京大名誉教授】大規模自然災害...火山学的に富士山は噴火するのか？迫る南海トラフ・首都直下地震 その対策方法は？【ReHacQ】](/rehacq_fan/ids/itwBJX3z-5I "wikilink")
     -   公開日: 2026-03-04
-    -   視聴数: 577,654
-    -   **いいね数: 7,017**
+    -   視聴数: 614,702
+    -   **いいね数: 7,270**
     -   出演者: 鎌田浩毅, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/itwBJX3z-5I/hqdefault.jpg)](https://www.youtube.com/watch?v=itwBJX3z-5I)
 1.  [【ひろゆきvs乙武洋匡】人生恨んだことがない！根っからのポジティブ思考…なぜ？【西田亮介ReHacQ】](/rehacq_fan/ids/cxsbMe0Tsi0 "wikilink")
