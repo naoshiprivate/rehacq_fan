@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/wLflSz9GRuM/sddefault.jpg)](https://www.youtube.com/watch?v=wLflSz9GRuM)
 -   公開日: 2025-07-01
 -   視聴数: 227,975
--   **いいね数: 9,895**
+-   **いいね数: 9,893**
 -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
