@@ -165,16 +165,16 @@
     -   視聴数: 1,618,212
     -   **いいね数: 20,587**
     -   出演者: [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
+    -   公開日: 2024-07-27
+    -   視聴数: 1,583,193
+    -   **いいね数: 15,727**
+    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ討論会】兵庫県知事選挙【候補者7人vs高橋弘樹】](/rehacq_fan/ids/b-bNBgMhpNM "wikilink")
     -   公開日: 2024-11-01
     -   視聴数: 1,559,722
     -   **いいね数: 32,381**
     -   出演者: 大澤芳清, [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), 木島洋嗣, 清水貴之, 福本繁幸, 稲村和美, [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
-1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
-    -   公開日: 2024-07-27
-    -   視聴数: 1,553,114
-    -   **いいね数: 15,421**
-    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](/rehacq_fan/ids/CepOZXVtsCo "wikilink")
     -   公開日: 2023-10-25
     -   視聴数: 1,540,120
@@ -187,8 +187,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [鈴木おさむ](/rehacq_fan/people/鈴木おさむ "wikilink")
 1.  [【成田悠輔が推薦の天才】シン量子力学！6歳にわかるように説明してみよう！【ReHacQvs野村泰紀】](/rehacq_fan/ids/DEG9OZoYzIU "wikilink")
     -   公開日: 2024-03-02
-    -   視聴数: 1,526,406
-    -   **いいね数: 16,923**
+    -   視聴数: 1,532,761
+    -   **いいね数: 16,977**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
     -   公開日: 2024-09-10
@@ -237,8 +237,8 @@
     -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【成田悠輔が推薦】宇宙と超弦理論！６歳にわかるように説明してみよう！【マルチバース】](/rehacq_fan/ids/4yiyaq0q6xQ "wikilink")
     -   公開日: 2024-03-09
-    -   視聴数: 1,416,584
-    -   **いいね数: 15,187**
+    -   視聴数: 1,425,578
+    -   **いいね数: 15,242**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs立憲民主党②】小西洋之が激怒…一体なぜ？【中谷一馬vs高橋弘樹vs西田亮介】](/rehacq_fan/ids/jfuZDsUN4JY "wikilink")
     -   公開日: 2024-10-13
