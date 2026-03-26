@@ -1,31 +1,31 @@
 1.  [【後藤達也vs大阪市長】なぜ？大阪市の景気好転…インバウンド爆増のワケ【ReHacQvs横山英幸】](/rehacq_fan/ids/hPMrIBbPu6I "wikilink")
     -   公開日: 2026-03-26
-    -   視聴数: 1,578
-    -   **いいね数: 137**
+    -   視聴数: 3,573
+    -   **いいね数: 332**
     -   出演者: 
     - [![](https://img.youtube.com/vi/hPMrIBbPu6I/hqdefault.jpg)](https://www.youtube.com/watch?v=hPMrIBbPu6I)
 1.  [【国民民主党】イラン情勢...「自衛隊を巡る議論の必要性」自民党の自衛隊明記論の効果は？【ReHacQ記者会見 3月24日(火)】](/rehacq_fan/ids/eUaB9poqw_w "wikilink")
     -   公開日: 2026-03-26
-    -   視聴数: 7,516
-    -   **いいね数: 163**
+    -   視聴数: 8,758
+    -   **いいね数: 171**
     -   出演者: 
     - [![](https://img.youtube.com/vi/eUaB9poqw_w/hqdefault.jpg)](https://www.youtube.com/watch?v=eUaB9poqw_w)
 1.  [【日本維新の会】中司幹事長 候補者の元秘書らの公選法違反について「再発防止の取り組む」日本国国生損壊罪について「シンプルなものになる」【ReHacQ記者会見 3月25日(水)】](/rehacq_fan/ids/Mh7_rU72kSs "wikilink")
     -   公開日: 2026-03-26
-    -   視聴数: 2,538
-    -   **いいね数: 72**
+    -   視聴数: 2,835
+    -   **いいね数: 74**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Mh7_rU72kSs/hqdefault.jpg)](https://www.youtube.com/watch?v=Mh7_rU72kSs)
 1.  [【高橋弘樹vs教育経済学者】早生まれは不利？第一志望のビリvs第二志望の一位どっちが成績良い？【ReHacQvs中室牧子】](/rehacq_fan/ids/oxozfDaApN4 "wikilink")
     -   公開日: 2026-03-25
-    -   視聴数: 156,081
-    -   **いいね数: 3,284**
+    -   視聴数: 160,837
+    -   **いいね数: 3,354**
     -   出演者: 
     - [![](https://img.youtube.com/vi/oxozfDaApN4/hqdefault.jpg)](https://www.youtube.com/watch?v=oxozfDaApN4)
 1.  [【TBSアナ&テレ東アナ②】衝撃告白！なぜアナウンサーに？本当にやりたい仕事とは…【加藤シルビア&松丸友紀】](/rehacq_fan/ids/6ynvc3X4avU "wikilink")
     -   公開日: 2026-03-25
-    -   視聴数: 16,032
-    -   **いいね数: 184**
+    -   視聴数: 16,355
+    -   **いいね数: 187**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6ynvc3X4avU/hqdefault.jpg)](https://www.youtube.com/watch?v=6ynvc3X4avU)
 
