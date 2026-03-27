@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs教育経済学者】早生まれは不利？第一志望のビリvs第二志望の一位どっちが成績良い？【ReHacQvs中室牧子】](https://www.youtube.com/watch?v=oxozfDaApN4)
 [![](https://img.youtube.com/vi/oxozfDaApN4/sddefault.jpg)](https://www.youtube.com/watch?v=oxozfDaApN4)
 -   公開日: 2026-03-25
--   視聴数: 205,883
--   **いいね数: 3,986**
+-   視聴数: 206,902
+-   **いいね数: 4,007**
 -   出演者: 
