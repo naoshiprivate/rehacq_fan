@@ -1,3 +1,9 @@
+1.  [【高橋弘樹vs教育経済学者】衝撃告白！学力は遺伝で決まる！？学歴と収入の関係とは？【ReHacQvs中室牧子】](/rehacq_fan/ids/i9a56La-9Rw "wikilink")
+    -   公開日: 2026-03-18
+    -   視聴数: 616,680
+    -   **いいね数: 8,202**
+    -   出演者: 中室牧子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/i9a56La-9Rw/hqdefault.jpg)](https://www.youtube.com/watch?v=i9a56La-9Rw)
 1.  [【ReHacQvs犯罪心理学者】子育ての勘違い！非行少年が生まれる原因は親！？正しい親子関係と子供を救う言葉とは【出口保行&尾崎里紗】](/rehacq_fan/ids/ECHidEuUJNs "wikilink")
     -   公開日: 2026-03-14
     -   視聴数: 783,943
@@ -22,10 +28,4 @@
     -   **いいね数: 7,270**
     -   出演者: 鎌田浩毅, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/itwBJX3z-5I/hqdefault.jpg)](https://www.youtube.com/watch?v=itwBJX3z-5I)
-1.  [【ひろゆきvs乙武洋匡】人生恨んだことがない！根っからのポジティブ思考…なぜ？【西田亮介ReHacQ】](/rehacq_fan/ids/cxsbMe0Tsi0 "wikilink")
-    -   公開日: 2026-03-01
-    -   視聴数: 501,166
-    -   **いいね数: 6,957**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [乙武洋匡](/rehacq_fan/people/乙武洋匡 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-    - [![](https://img.youtube.com/vi/cxsbMe0Tsi0/hqdefault.jpg)](https://www.youtube.com/watch?v=cxsbMe0Tsi0)
 
