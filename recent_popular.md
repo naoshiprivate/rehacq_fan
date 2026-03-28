@@ -1,3 +1,9 @@
+1.  [【ReHacQまったり生配信】最近あった事【小西洋之vs足立康史vs今野忍vs西田亮介vs佐々木れなvs高橋弘樹】](/rehacq_fan/ids/8E5VoHiJgdQ "wikilink")
+    -   公開日: 2026-03-18
+    -   視聴数: 514,823
+    -   **いいね数: 4,916**
+    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 佐々木れな, [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [足立康史](/rehacq_fan/people/足立康史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/8E5VoHiJgdQ/hqdefault.jpg)](https://www.youtube.com/watch?v=8E5VoHiJgdQ)
 1.  [【高橋弘樹vs教育経済学者】衝撃告白！学力は遺伝で決まる！？学歴と収入の関係とは？【ReHacQvs中室牧子】](/rehacq_fan/ids/i9a56La-9Rw "wikilink")
     -   公開日: 2026-03-18
     -   視聴数: 616,680
@@ -22,10 +28,4 @@
     -   **いいね数: 14,833**
     -   出演者: 鎌田浩毅, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/OaraOYMIles/hqdefault.jpg)](https://www.youtube.com/watch?v=OaraOYMIles)
-1.  [【高橋弘樹vs京大名誉教授】大規模自然災害...火山学的に富士山は噴火するのか？迫る南海トラフ・首都直下地震 その対策方法は？【ReHacQ】](/rehacq_fan/ids/itwBJX3z-5I "wikilink")
-    -   公開日: 2026-03-04
-    -   視聴数: 614,702
-    -   **いいね数: 7,270**
-    -   出演者: 鎌田浩毅, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/itwBJX3z-5I/hqdefault.jpg)](https://www.youtube.com/watch?v=itwBJX3z-5I)
 
