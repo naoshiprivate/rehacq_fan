@@ -1,6 +1,6 @@
 ### [【後藤達也vs大阪市長】なぜ？大阪市の景気好転…インバウンド爆増のワケ【ReHacQvs横山英幸】](https://www.youtube.com/watch?v=hPMrIBbPu6I)
 [![](https://img.youtube.com/vi/hPMrIBbPu6I/sddefault.jpg)](https://www.youtube.com/watch?v=hPMrIBbPu6I)
 -   公開日: 2026-03-26
--   視聴数: 50,839
--   **いいね数: 1,282**
+-   視聴数: 50,991
+-   **いいね数: 1,285**
 -   出演者: 
