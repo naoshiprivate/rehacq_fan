@@ -307,8 +307,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石破総理が緊急出演】楽しい日本とは？103万の壁は？SNS規制は？夫婦別姓は？総理が本音激白【ReHacQ高橋弘樹】](/rehacq_fan/ids/k2jbKFIP--s "wikilink")
     -   公開日: 2025-01-26
-    -   視聴数: 1,223,486
-    -   **いいね数: 17,993**
+    -   視聴数: 1,229,114
+    -   **いいね数: 17,994**
     -   出演者: [石破茂](/rehacq_fan/people/石破茂 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【衆院選2026】あつまれ！落選の森...今後どうする？まったり緊急生配信【中谷一馬vs川上りゅうせいvs吉田あやvs今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/HEsGRg73oiw "wikilink")
     -   公開日: 2026-02-09
