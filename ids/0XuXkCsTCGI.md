@@ -1,6 +1,6 @@
-### [【石丸伸二vs兵庫県】城の崎にて…絶品カニと温泉に感動！ReHacQ旅in豊岡【高橋弘樹】](https://www.youtube.com/watch?v=0XuXkCsTCGI)
+### [【斎藤元彦が激推し】兵庫県の秘境！但馬の旅…衝撃のカニ【石丸伸二& ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=0XuXkCsTCGI)
 [![](https://img.youtube.com/vi/0XuXkCsTCGI/sddefault.jpg)](https://www.youtube.com/watch?v=0XuXkCsTCGI)
 -   公開日: 2026-03-29
--   視聴数: 78,566
--   **いいね数: 6,364**
+-   視聴数: 96,534
+-   **いいね数: 7,163**
 -   出演者: 
