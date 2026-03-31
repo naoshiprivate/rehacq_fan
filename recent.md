@@ -1,31 +1,31 @@
+1.  [【緊急生配信】最終出社後に出演！ニッポン放送を電撃退社...なぜ辞めた？吉田尚記アナウンサー【ReHacQ高橋弘樹】](/rehacq_fan/ids/mlE6tK4K-3I "wikilink")
+    -   公開日: 2026-03-31
+    -   視聴数: 13,515
+    -   **いいね数: 505**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/mlE6tK4K-3I/hqdefault.jpg)](https://www.youtube.com/watch?v=mlE6tK4K-3I)
+1.  [【生配信・国民民主党】皇室典範、国旗損壊罪について言及　4月5日に党大会開催へ　今の国民民主党の課題とは...!?【ReHacQ記者会見 3月31日(火)】](/rehacq_fan/ids/QkgGj0ViWMs "wikilink")
+    -   公開日: 2026-03-31
+    -   視聴数: 4,912
+    -   **いいね数: 89**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/QkgGj0ViWMs/hqdefault.jpg)](https://www.youtube.com/watch?v=QkgGj0ViWMs)
 1.  [【高橋弘樹vs大学教育】日本の教育はもう限界…？大学に行く意味とは【ReHacQvs斎藤幸平vs鈴木寛vs渡邉聡】](/rehacq_fan/ids/g4W7ZXj5gSw "wikilink")
     -   公開日: 2026-03-30
-    -   視聴数: 88,750
-    -   **いいね数: 1,252**
+    -   視聴数: 111,704
+    -   **いいね数: 1,492**
     -   出演者: 
     - [![](https://img.youtube.com/vi/g4W7ZXj5gSw/hqdefault.jpg)](https://www.youtube.com/watch?v=g4W7ZXj5gSw)
-1.  [【コムドットやまとvsスーツ】もう数字は追わない？YouTubeの“新しい勝ち方”...「悟り」と「命を燃やす」対極に見える2人の共感とは【ReHacQ】](/rehacq_fan/ids/SUk9o8OkC6o "wikilink")
+1.  [【コムドットやまとvsスーツ】もう登録者数は追わない…「悟り」vs「命を燃やす」対極に見えるYouTuberの幸福論とは【ReHacQ】](/rehacq_fan/ids/SUk9o8OkC6o "wikilink")
     -   公開日: 2026-03-30
-    -   視聴数: 31,783
-    -   **いいね数: 1,008**
+    -   視聴数: 37,522
+    -   **いいね数: 1,188**
     -   出演者: 
     - [![](https://img.youtube.com/vi/SUk9o8OkC6o/hqdefault.jpg)](https://www.youtube.com/watch?v=SUk9o8OkC6o)
 1.  [【ひろゆきvs母乳バンク】母親の食事は母乳に影響するのか？意外と知らない母乳の性質とは？【スザンヌvsReHacQ】](/rehacq_fan/ids/X-ol4KgLA1I "wikilink")
     -   公開日: 2026-03-29
-    -   視聴数: 53,575
-    -   **いいね数: 918**
+    -   視聴数: 60,320
+    -   **いいね数: 1,035**
     -   出演者: 
     - [![](https://img.youtube.com/vi/X-ol4KgLA1I/hqdefault.jpg)](https://www.youtube.com/watch?v=X-ol4KgLA1I)
-1.  [【斎藤元彦が激推し】兵庫県の秘境！但馬の旅…衝撃のカニ【石丸伸二& ReHacQ高橋弘樹】](/rehacq_fan/ids/0XuXkCsTCGI "wikilink")
-    -   公開日: 2026-03-29
-    -   視聴数: 145,077
-    -   **いいね数: 8,765**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/0XuXkCsTCGI/hqdefault.jpg)](https://www.youtube.com/watch?v=0XuXkCsTCGI)
-1.  [【ReHacQ生配信】チームみらい 新人議員とまったり生配信【高橋弘樹vs今野忍vs河合みちおvsうさみ登vsみねしま侑也】](/rehacq_fan/ids/8zyxkTqduk8 "wikilink")
-    -   公開日: 2026-03-28
-    -   視聴数: 139,987
-    -   **いいね数: 1,810**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/8zyxkTqduk8/hqdefault.jpg)](https://www.youtube.com/watch?v=8zyxkTqduk8)
 
