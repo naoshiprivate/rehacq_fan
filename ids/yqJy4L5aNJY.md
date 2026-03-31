@@ -1,6 +1,6 @@
 ### [【ひろゆきvs職親】民間が元受刑者を雇用…再犯率低下を目指す「職親プロジェクト」とは？【ReHacQ 高橋弘樹】](https://www.youtube.com/watch?v=yqJy4L5aNJY)
 [![](https://img.youtube.com/vi/yqJy4L5aNJY/sddefault.jpg)](https://www.youtube.com/watch?v=yqJy4L5aNJY)
 -   公開日: 2026-03-16
--   視聴数: 80,688
--   **いいね数: 1,192**
+-   視聴数: 85,995
+-   **いいね数: 1,250**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 森由起子, 福田英夫, 草刈健太郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
