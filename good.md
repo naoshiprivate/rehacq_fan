@@ -130,16 +130,16 @@
     -   視聴数: 3,345,408
     -   **いいね数: 25,969**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+1.  [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](/rehacq_fan/ids/hio2XdBPW5Y "wikilink")
+    -   公開日: 2024-02-24
+    -   視聴数: 2,522,885
+    -   **いいね数: 25,249**
+    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs会見入れなかったジャーナリスト】前代未聞の激論…なぜ？取材会見時のジャーナリスト制限に関して【ひろゆきvs横田一vs西田亮介vs箕輪厚介vs高橋弘樹ReHacQ】](/rehacq_fan/ids/23N6ICQ55-c "wikilink")
     -   公開日: 2025-01-16
     -   視聴数: 1,522,974
     -   **いいね数: 25,196**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [横田一](/rehacq_fan/people/横田一 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](/rehacq_fan/ids/hio2XdBPW5Y "wikilink")
-    -   公開日: 2024-02-24
-    -   視聴数: 2,494,787
-    -   **いいね数: 25,073**
-    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】石丸新党の構想判明！国民民主vs維新…解決策は？【ReHacQ・高橋弘樹】](/rehacq_fan/ids/DQkpV-2rV3I "wikilink")
     -   公開日: 2024-12-23
     -   視聴数: 1,090,920
@@ -272,8 +272,8 @@
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ生配信】日本保守党にガチ質問...衆院選2026【百田尚樹vs高橋弘樹】](/rehacq_fan/ids/cYLcT1fhacw "wikilink")
     -   公開日: 2026-02-04
-    -   視聴数: 409,776
-    -   **いいね数: 18,947**
+    -   視聴数: 409,987
+    -   **いいね数: 18,940**
     -   出演者: 百田尚樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs国民民主党】衝撃的!日本倍増計画とは?【玉木雄一郎の野望 episode2】](/rehacq_fan/ids/EYKExpig3-4 "wikilink")
     -   公開日: 2023-05-28
@@ -372,8 +372,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦の天才】シン量子力学！6歳にわかるように説明してみよう！【ReHacQvs野村泰紀】](/rehacq_fan/ids/DEG9OZoYzIU "wikilink")
     -   公開日: 2024-03-02
-    -   視聴数: 1,532,761
-    -   **いいね数: 16,977**
+    -   視聴数: 1,540,037
+    -   **いいね数: 17,042**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦】動きに注目！天才物理学者の楽しすぎる量子力学入門【野村泰紀・宇宙とは？】](/rehacq_fan/ids/5iuWBR80ZWs "wikilink")
     -   公開日: 2023-07-07
@@ -465,6 +465,11 @@
     -   視聴数: 1,789,776
     -   **いいね数: 16,049**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
+1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
+    -   公開日: 2024-07-27
+    -   視聴数: 1,607,700
+    -   **いいね数: 15,927**
+    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs京大名誉教授】完全解説！迫る南海トラフ・首都直下型地震・富士山噴火...国民半分が被災？国家機能は停止し300兆円の損失？安全な都市とは...【ReHacQvs鎌田浩毅】](/rehacq_fan/ids/OaraOYMIles "wikilink")
     -   公開日: 2026-03-10
     -   視聴数: 1,120,220
@@ -490,11 +495,6 @@
     -   視聴数: 1,479,252
     -   **いいね数: 15,728**
     -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
-    -   公開日: 2024-07-27
-    -   視聴数: 1,583,193
-    -   **いいね数: 15,727**
-    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vsメディア】なぜ揉める？安芸高田市長と本音雑談【㊙︎ゲストも登場】](/rehacq_fan/ids/3rx30yJXsLs "wikilink")
     -   公開日: 2023-10-01
     -   視聴数: 1,015,250
