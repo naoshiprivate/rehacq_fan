@@ -1,6 +1,6 @@
 ### [【トランプ大統領の“TACO”】 損切りはいつ・どこで？FRBトップ交代で利下げは終焉か？【鈴⽊敏之&永濱利廣&森本智子&ReHacQ】](https://www.youtube.com/watch?v=vWFxglcVfHo)
 [![](https://img.youtube.com/vi/vWFxglcVfHo/sddefault.jpg)](https://www.youtube.com/watch?v=vWFxglcVfHo)
 -   公開日: 2026-04-03
--   視聴数: 30,314
--   **いいね数: 259**
+-   視聴数: 33,746
+-   **いいね数: 306**
 -   出演者: 
