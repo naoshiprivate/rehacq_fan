@@ -1,6 +1,6 @@
 ### [【チームみらい】参議院予算審議におけるチームみらいの考えは!?SNSでのデマについても言及【ReHacQ記者会見 4月3日(金)】](https://www.youtube.com/watch?v=tYys50d9jCk)
 [![](https://img.youtube.com/vi/tYys50d9jCk/sddefault.jpg)](https://www.youtube.com/watch?v=tYys50d9jCk)
 -   公開日: 2026-04-03
--   視聴数: 6,904
--   **いいね数: 134**
+-   視聴数: 7,002
+-   **いいね数: 135**
 -   出演者: 
