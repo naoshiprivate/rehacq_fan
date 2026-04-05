@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
+1.  [【ひろゆきvs仮想通貨】SANAE TOKEN騒動何が問題…？暗号資産を見極めるには…【ReHacQvs JPYC岡部典孝vs西田亮介】](/rehacq_fan/ids/KLGqItzMazc "wikilink")
+    -   公開日: 2026-04-05
+    -   視聴数: 7,937
+    -   **いいね数: 262**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/KLGqItzMazc/hqdefault.jpg)](https://www.youtube.com/watch?v=KLGqItzMazc)
 1.  [【石丸伸二vs国宝】激論！地方の文化残しどう人口減少抗う？【ReHacQ高橋弘樹】](/rehacq_fan/ids/AFkHOz4-C0c "wikilink")
     -   公開日: 2026-04-05
-    -   視聴数: 74,923
-    -   **いいね数: 3,546**
+    -   視聴数: 82,412
+    -   **いいね数: 3,766**
     -   出演者: 
     - [![](https://img.youtube.com/vi/AFkHOz4-C0c/hqdefault.jpg)](https://www.youtube.com/watch?v=AFkHOz4-C0c)
 1.  [【野村泰紀vs加藤シルビア】アインシュタインもニュートンも証明できていない！物理学者野村先生が最新研究を徹底解説！【ReHacQ】](/rehacq_fan/ids/v4sh0fcmQL8 "wikilink")
     -   公開日: 2026-04-04
-    -   視聴数: 67,008
-    -   **いいね数: 1,433**
+    -   視聴数: 69,002
+    -   **いいね数: 1,481**
     -   出演者: 
     - [![](https://img.youtube.com/vi/v4sh0fcmQL8/hqdefault.jpg)](https://www.youtube.com/watch?v=v4sh0fcmQL8)
 1.  [【ロシア・ウクライナ戦争】徹底解説…終わらない理由…プーチンが求める真の終戦条件は？イラン戦争でトランプが世界秩序を変えた!?台湾有事の可能性と日本の影響は…【ReHacQ高橋弘樹vs小泉悠】](/rehacq_fan/ids/hvXLADpNwqs "wikilink")
     -   公開日: 2026-04-04
-    -   視聴数: 401,947
-    -   **いいね数: 5,601**
+    -   視聴数: 410,693
+    -   **いいね数: 5,725**
     -   出演者: 
     - [![](https://img.youtube.com/vi/hvXLADpNwqs/hqdefault.jpg)](https://www.youtube.com/watch?v=hvXLADpNwqs)
-1.  [【ひろゆきvs仮想通貨】SANAE TOKEN騒動何が問題…？暗号資産を見極めるには…【ReHacQvs JPYC岡部典孝vs西田亮介】](/rehacq_fan/ids/KLGqItzMazc "wikilink")
-    -   公開日: 2026-04-04
-    -   視聴数: 1
-    -   **いいね数: 34**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/KLGqItzMazc/hqdefault.jpg)](https://www.youtube.com/watch?v=KLGqItzMazc)
 1.  [【ReHacQ生配信】「恋愛病院」観賞会！みんなで石丸伸二の恋を見守る会【箕輪厚介&今野忍&音喜多駿&西田亮介&高橋弘樹】](/rehacq_fan/ids/cIGIy4AbYJU "wikilink")
     -   公開日: 2026-04-03
-    -   視聴数: 413,899
-    -   **いいね数: 9,827**
+    -   視聴数: 417,772
+    -   **いいね数: 9,891**
     -   出演者: 
     - [![](https://img.youtube.com/vi/cIGIy4AbYJU/hqdefault.jpg)](https://www.youtube.com/watch?v=cIGIy4AbYJU)
 
@@ -46,8 +46,8 @@
     - [![](https://img.youtube.com/vi/i9a56La-9Rw/hqdefault.jpg)](https://www.youtube.com/watch?v=i9a56La-9Rw)
 1.  [【ReHacQvs犯罪心理学者】子育ての勘違い！非行少年が生まれる原因は親！？正しい親子関係と子供を救う言葉とは【出口保行&尾崎里紗】](/rehacq_fan/ids/ECHidEuUJNs "wikilink")
     -   公開日: 2026-03-14
-    -   視聴数: 843,549
-    -   **いいね数: 9,694**
+    -   視聴数: 903,216
+    -   **いいね数: 10,157**
     -   出演者: 出口保行, 尾崎里紗
     - [![](https://img.youtube.com/vi/ECHidEuUJNs/hqdefault.jpg)](https://www.youtube.com/watch?v=ECHidEuUJNs)
 1.  [【今野忍vs西田亮介vs箕輪厚介】朝日新聞へ怒り…なぜ？サナエトークンの落とし所は？リベラルとの対話…イラン情勢&東日本大震災…本音で対談【ReHacQ高橋弘樹】](/rehacq_fan/ids/6ilnn4Yz5JI "wikilink")
@@ -76,31 +76,31 @@
 ## 時系列データ
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 13, 視聴数: 2,115,986, いいね数: 43,491
+-   動画数: 14, 視聴数: 2,147,593, いいね数: 44,231
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 15,558,950, いいね数: 226,715
+-   動画数: 89, 視聴数: 15,633,029, いいね数: 227,353
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 23,316,330, いいね数: 349,558
+-   動画数: 98, 視聴数: 23,317,008, いいね数: 349,561
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 20,612,785, いいね数: 314,680
+-   動画数: 90, 視聴数: 20,616,765, いいね数: 314,714
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 15,225,825, いいね数: 197,155
+-   動画数: 83, 視聴数: 15,229,668, いいね数: 197,181
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 12,644,755, いいね数: 177,011
+-   動画数: 79, 視聴数: 12,649,598, いいね数: 177,092
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 24,924,463, いいね数: 350,778
+-   動画数: 102, 視聴数: 24,924,477, いいね数: 350,776
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -148,11 +148,11 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,142,863, いいね数: 343,717
+-   動画数: 72, 視聴数: 23,143,517, いいね数: 343,710
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 15,258,181, いいね数: 224,355
+-   動画数: 50, 視聴数: 15,258,770, いいね数: 224,355
 
 #### [2024年08月](videos/202408 "wikilink")
 
@@ -168,15 +168,15 @@
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,858,655, いいね数: 84,532
+-   動画数: 29, 視聴数: 6,858,808, いいね数: 84,532
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,863,035, いいね数: 101,221
+-   動画数: 34, 視聴数: 9,868,406, いいね数: 101,243
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 9,480,911, いいね数: 112,810
+-   動画数: 44, 視聴数: 9,481,373, いいね数: 112,813
 
 #### [2024年02月](videos/202402 "wikilink")
 
@@ -227,4 +227,4 @@
 -   動画数: 14, 視聴数: 8,118,001, いいね数: 141,666
 
 ---
-2026-04-05 20:00
+2026-04-05 21:00
