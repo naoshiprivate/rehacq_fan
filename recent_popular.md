@@ -1,3 +1,9 @@
+1.  [【ロシア・ウクライナ戦争】徹底解説…終わらない理由…プーチンが求める真の終戦条件は？イラン戦争でトランプが世界秩序を変えた!?台湾有事の可能性と日本の影響は…【ReHacQ高橋弘樹vs小泉悠】](/rehacq_fan/ids/hvXLADpNwqs "wikilink")
+    -   公開日: 2026-04-04
+    -   視聴数: 524,612
+    -   **いいね数: 6,571**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/hvXLADpNwqs/hqdefault.jpg)](https://www.youtube.com/watch?v=hvXLADpNwqs)
 1.  [【ReHacQまったり生配信】最近あった事【小西洋之vs足立康史vs今野忍vs西田亮介vs佐々木れなvs高橋弘樹】](/rehacq_fan/ids/8E5VoHiJgdQ "wikilink")
     -   公開日: 2026-03-18
     -   視聴数: 523,793
@@ -22,10 +28,4 @@
     -   **いいね数: 8,514**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/6ilnn4Yz5JI/hqdefault.jpg)](https://www.youtube.com/watch?v=6ilnn4Yz5JI)
-1.  [【高橋弘樹vs京大名誉教授】完全解説！迫る南海トラフ・首都直下型地震・富士山噴火...国民半分が被災？国家機能は停止し300兆円の損失？安全な都市とは...【ReHacQvs鎌田浩毅】](/rehacq_fan/ids/OaraOYMIles "wikilink")
-    -   公開日: 2026-03-10
-    -   視聴数: 1,120,220
-    -   **いいね数: 15,910**
-    -   出演者: 鎌田浩毅, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/OaraOYMIles/hqdefault.jpg)](https://www.youtube.com/watch?v=OaraOYMIles)
 
