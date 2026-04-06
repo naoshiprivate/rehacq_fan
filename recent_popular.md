@@ -1,7 +1,7 @@
 1.  [【ロシア・ウクライナ戦争】徹底解説…終わらない理由…プーチンが求める真の終戦条件は？イラン戦争でトランプが世界秩序を変えた!?台湾有事の可能性と日本の影響は…【ReHacQ高橋弘樹vs小泉悠】](/rehacq_fan/ids/hvXLADpNwqs "wikilink")
     -   公開日: 2026-04-04
-    -   視聴数: 584,743
-    -   **いいね数: 7,075**
+    -   視聴数: 591,895
+    -   **いいね数: 7,126**
     -   出演者: 
     - [![](https://img.youtube.com/vi/hvXLADpNwqs/hqdefault.jpg)](https://www.youtube.com/watch?v=hvXLADpNwqs)
 1.  [【ReHacQまったり生配信】最近あった事【小西洋之vs足立康史vs今野忍vs西田亮介vs佐々木れなvs高橋弘樹】](/rehacq_fan/ids/8E5VoHiJgdQ "wikilink")
