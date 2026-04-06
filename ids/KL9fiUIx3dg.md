@@ -1,6 +1,6 @@
 ### [【けんすうvs ITエンジニア②】転職で“損”する人の共通点…年収交渉の罠とは！？【ReHacQvs赤川朗】](https://www.youtube.com/watch?v=KL9fiUIx3dg)
 [![](https://img.youtube.com/vi/KL9fiUIx3dg/sddefault.jpg)](https://www.youtube.com/watch?v=KL9fiUIx3dg)
 -   公開日: 2026-03-03
--   視聴数: 16,051
--   **いいね数: 172**
+-   視聴数: 16,200
+-   **いいね数: 173**
 -   出演者: [けんすう](/rehacq_fan/people/けんすう "wikilink"), 赤川朗
