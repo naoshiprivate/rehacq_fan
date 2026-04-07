@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/lmkw8WbwPDA/sddefault.jpg)](https://www.youtube.com/watch?v=lmkw8WbwPDA)
 -   公開日: 2026-01-15
 -   視聴数: 28,404
--   **いいね数: 259**
+-   **いいね数: 258**
 -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
