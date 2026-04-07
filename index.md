@@ -1,47 +1,47 @@
 # ReHacQ 最近の動画
+1.  [【国民民主党】玉木代表 統一地方選挙 議員数約340人→700人を必達目標に設定【ReHacQ記者会見 4月7日(火)】](/rehacq_fan/ids/9ZYrVWpJDZA "wikilink")
+    -   公開日: 2026-04-07
+    -   視聴数: 3,926
+    -   **いいね数: 61**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/9ZYrVWpJDZA/hqdefault.jpg)](https://www.youtube.com/watch?v=9ZYrVWpJDZA)
+1.  [【売れない時代が原点】『はじめの一歩』描き続けた37年…なぜ続けられた？【田中渓&森川ジョージ＆ReHacQ】](/rehacq_fan/ids/caNsKvHl-Ss "wikilink")
+    -   公開日: 2026-04-07
+    -   視聴数: 2
+    -   **いいね数: 20**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/caNsKvHl-Ss/hqdefault.jpg)](https://www.youtube.com/watch?v=caNsKvHl-Ss)
 1.  [【ReHacQvs胃の病】胃は体の異常を知らせるセンサー！？新生活で増えるトラブルとは？【秋津壽男vs加藤シルビア】](/rehacq_fan/ids/mph0nFle8Fo "wikilink")
     -   公開日: 2026-04-06
-    -   視聴数: 21,717
-    -   **いいね数: 248**
+    -   視聴数: 24,851
+    -   **いいね数: 297**
     -   出演者: 
     - [![](https://img.youtube.com/vi/mph0nFle8Fo/hqdefault.jpg)](https://www.youtube.com/watch?v=mph0nFle8Fo)
 1.  [【後藤達也vs大阪市長②】大阪都構想・副首都構想はなぜ必要？大阪で維新が人気のワケ【ReHacQvs横山英幸】](/rehacq_fan/ids/CnIuibeC2Us "wikilink")
     -   公開日: 2026-04-06
-    -   視聴数: 17,749
-    -   **いいね数: 659**
+    -   視聴数: 20,705
+    -   **いいね数: 728**
     -   出演者: 
     - [![](https://img.youtube.com/vi/CnIuibeC2Us/hqdefault.jpg)](https://www.youtube.com/watch?v=CnIuibeC2Us)
 1.  [【ひろゆきvs暗号資産】サナエトークン騒動何が問題…？仮想通貨を見極めるには…【ReHacQvs JPYC岡部典孝vs西田亮介】](/rehacq_fan/ids/KLGqItzMazc "wikilink")
     -   公開日: 2026-04-05
-    -   視聴数: 237,059
-    -   **いいね数: 2,843**
+    -   視聴数: 257,603
+    -   **いいね数: 2,988**
     -   出演者: 
     - [![](https://img.youtube.com/vi/KLGqItzMazc/hqdefault.jpg)](https://www.youtube.com/watch?v=KLGqItzMazc)
-1.  [【石丸伸二vs国宝】激論！地方の文化残しどう人口減少抗う？【ReHacQ高橋弘樹】](/rehacq_fan/ids/AFkHOz4-C0c "wikilink")
-    -   公開日: 2026-04-05
-    -   視聴数: 155,020
-    -   **いいね数: 5,207**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/AFkHOz4-C0c/hqdefault.jpg)](https://www.youtube.com/watch?v=AFkHOz4-C0c)
-1.  [【野村泰紀vs加藤シルビア】アインシュタインもニュートンも証明できていない！物理学者野村先生が最新研究を徹底解説！【ReHacQ】](/rehacq_fan/ids/v4sh0fcmQL8 "wikilink")
-    -   公開日: 2026-04-04
-    -   視聴数: 135,415
-    -   **いいね数: 2,330**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/v4sh0fcmQL8/hqdefault.jpg)](https://www.youtube.com/watch?v=v4sh0fcmQL8)
 
 # ReHacQの人気動画
 ## 最近の人気動画
 1.  [【ロシア・ウクライナ戦争】徹底解説…終わらない理由…プーチンが求める真の終戦条件は？イラン戦争でトランプが世界秩序を変えた!?台湾有事の可能性と日本の影響は…【ReHacQ高橋弘樹vs小泉悠】](/rehacq_fan/ids/hvXLADpNwqs "wikilink")
     -   公開日: 2026-04-04
-    -   視聴数: 650,222
-    -   **いいね数: 7,482**
+    -   視聴数: 671,444
+    -   **いいね数: 7,667**
     -   出演者: 
     - [![](https://img.youtube.com/vi/hvXLADpNwqs/hqdefault.jpg)](https://www.youtube.com/watch?v=hvXLADpNwqs)
 1.  [【ReHacQ生配信】「恋愛病院」観賞会！みんなで石丸伸二の恋を見守る会【箕輪厚介&今野忍&音喜多駿&西田亮介&高橋弘樹】](/rehacq_fan/ids/cIGIy4AbYJU "wikilink")
     -   公開日: 2026-04-03
-    -   視聴数: 502,750
-    -   **いいね数: 11,002**
+    -   視聴数: 514,227
+    -   **いいね数: 11,154**
     -   出演者: 
     - [![](https://img.youtube.com/vi/cIGIy4AbYJU/hqdefault.jpg)](https://www.youtube.com/watch?v=cIGIy4AbYJU)
 1.  [【ReHacQまったり生配信】最近あった事【小西洋之vs足立康史vs今野忍vs西田亮介vs佐々木れなvs高橋弘樹】](/rehacq_fan/ids/8E5VoHiJgdQ "wikilink")
@@ -76,19 +76,19 @@
 ## 時系列データ
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 16, 視聴数: 2,899,389, いいね数: 53,069
+-   動画数: 17, 視聴数: 2,978,065, いいね数: 53,963
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 15,839,780, いいね数: 229,877
+-   動画数: 89, 視聴数: 15,992,215, いいね数: 231,171
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 23,354,165, いいね数: 349,869
+-   動画数: 98, 視聴数: 23,356,193, いいね数: 349,873
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 20,704,455, いいね数: 315,317
+-   動画数: 90, 視聴数: 20,706,089, いいね数: 315,318
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -100,23 +100,23 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 24,931,649, いいね数: 350,861
+-   動画数: 102, 視聴数: 24,931,840, いいね数: 350,863
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 17,483,382, いいね数: 277,917
+-   動画数: 87, 視聴数: 17,490,378, いいね数: 277,959
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 15,646,525, いいね数: 268,338
+-   動画数: 65, 視聴数: 15,647,069, いいね数: 268,340
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 22,379,142, いいね数: 377,382
+-   動画数: 76, 視聴数: 22,379,188, いいね数: 377,378
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 17,747,953, いいね数: 315,373
+-   動画数: 78, 視聴数: 17,749,012, いいね数: 315,398
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -148,7 +148,7 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,145,046, いいね数: 343,715
+-   動画数: 72, 視聴数: 23,145,874, いいね数: 343,707
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -227,4 +227,4 @@
 -   動画数: 14, 視聴数: 8,122,298, いいね数: 141,662
 
 ---
-2026-04-07 13:00
+2026-04-07 20:00

@@ -1,13 +1,13 @@
 1.  [【ロシア・ウクライナ戦争】徹底解説…終わらない理由…プーチンが求める真の終戦条件は？イラン戦争でトランプが世界秩序を変えた!?台湾有事の可能性と日本の影響は…【ReHacQ高橋弘樹vs小泉悠】](/rehacq_fan/ids/hvXLADpNwqs "wikilink")
     -   公開日: 2026-04-04
-    -   視聴数: 650,222
-    -   **いいね数: 7,482**
+    -   視聴数: 671,444
+    -   **いいね数: 7,667**
     -   出演者: 
     - [![](https://img.youtube.com/vi/hvXLADpNwqs/hqdefault.jpg)](https://www.youtube.com/watch?v=hvXLADpNwqs)
 1.  [【ReHacQ生配信】「恋愛病院」観賞会！みんなで石丸伸二の恋を見守る会【箕輪厚介&今野忍&音喜多駿&西田亮介&高橋弘樹】](/rehacq_fan/ids/cIGIy4AbYJU "wikilink")
     -   公開日: 2026-04-03
-    -   視聴数: 502,750
-    -   **いいね数: 11,002**
+    -   視聴数: 514,227
+    -   **いいね数: 11,154**
     -   出演者: 
     - [![](https://img.youtube.com/vi/cIGIy4AbYJU/hqdefault.jpg)](https://www.youtube.com/watch?v=cIGIy4AbYJU)
 1.  [【ReHacQまったり生配信】最近あった事【小西洋之vs足立康史vs今野忍vs西田亮介vs佐々木れなvs高橋弘樹】](/rehacq_fan/ids/8E5VoHiJgdQ "wikilink")
