@@ -1,9 +1,15 @@
 1.  [【ロシア・ウクライナ戦争】徹底解説…終わらない理由…プーチンが求める真の終戦条件は？イラン戦争でトランプが世界秩序を変えた!?台湾有事の可能性と日本の影響は…【ReHacQ高橋弘樹vs小泉悠】](/rehacq_fan/ids/hvXLADpNwqs "wikilink")
     -   公開日: 2026-04-04
-    -   視聴数: 631,543
-    -   **いいね数: 7,326**
+    -   視聴数: 647,104
+    -   **いいね数: 7,456**
     -   出演者: 
     - [![](https://img.youtube.com/vi/hvXLADpNwqs/hqdefault.jpg)](https://www.youtube.com/watch?v=hvXLADpNwqs)
+1.  [【ReHacQ生配信】「恋愛病院」観賞会！みんなで石丸伸二の恋を見守る会【箕輪厚介&今野忍&音喜多駿&西田亮介&高橋弘樹】](/rehacq_fan/ids/cIGIy4AbYJU "wikilink")
+    -   公開日: 2026-04-03
+    -   視聴数: 501,593
+    -   **いいね数: 10,983**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/cIGIy4AbYJU/hqdefault.jpg)](https://www.youtube.com/watch?v=cIGIy4AbYJU)
 1.  [【ReHacQまったり生配信】最近あった事【小西洋之vs足立康史vs今野忍vs西田亮介vs佐々木れなvs高橋弘樹】](/rehacq_fan/ids/8E5VoHiJgdQ "wikilink")
     -   公開日: 2026-03-18
     -   視聴数: 523,793
@@ -22,10 +28,4 @@
     -   **いいね数: 10,157**
     -   出演者: 出口保行, 尾崎里紗
     - [![](https://img.youtube.com/vi/ECHidEuUJNs/hqdefault.jpg)](https://www.youtube.com/watch?v=ECHidEuUJNs)
-1.  [【今野忍vs西田亮介vs箕輪厚介】朝日新聞へ怒り…なぜ？サナエトークンの落とし所は？リベラルとの対話…イラン情勢&東日本大震災…本音で対談【ReHacQ高橋弘樹】](/rehacq_fan/ids/6ilnn4Yz5JI "wikilink")
-    -   公開日: 2026-03-11
-    -   視聴数: 716,519
-    -   **いいね数: 8,514**
-    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/6ilnn4Yz5JI/hqdefault.jpg)](https://www.youtube.com/watch?v=6ilnn4Yz5JI)
 
