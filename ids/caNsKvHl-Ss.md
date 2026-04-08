@@ -1,6 +1,6 @@
 ### [【売れない時代が原点】『はじめの一歩』描き続けた37年…なぜ続けられた？【田中渓&森川ジョージ＆ReHacQ】](https://www.youtube.com/watch?v=caNsKvHl-Ss)
 [![](https://img.youtube.com/vi/caNsKvHl-Ss/sddefault.jpg)](https://www.youtube.com/watch?v=caNsKvHl-Ss)
 -   公開日: 2026-04-07
--   視聴数: 34,879
--   **いいね数: 632**
+-   視聴数: 35,946
+-   **いいね数: 648**
 -   出演者: 
