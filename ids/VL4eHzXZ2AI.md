@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/VL4eHzXZ2AI/sddefault.jpg)](https://www.youtube.com/watch?v=VL4eHzXZ2AI)
 -   公開日: 2025-12-16
 -   視聴数: 12,183
--   **いいね数: 147**
+-   **いいね数: 146**
 -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
