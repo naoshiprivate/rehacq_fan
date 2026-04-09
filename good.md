@@ -87,8 +87,8 @@
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink")
 1.  [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](/rehacq_fan/ids/iDPwEX2A73Y "wikilink")
     -   公開日: 2024-07-18
-    -   視聴数: 1,812,864
-    -   **いいね数: 28,025**
+    -   視聴数: 1,813,222
+    -   **いいね数: 28,023**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【緊急生配信】兵庫県・百条委員会にて秘密会音声データ流出のすべて「私がやった…なぜなら」【日本維新の会・増山誠vsReHacQ高橋弘樹】](/rehacq_fan/ids/LyTuLE37l4A "wikilink")
     -   公開日: 2025-02-19
@@ -232,7 +232,7 @@
     -   出演者: [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs森永卓郎】投資ブームに警鐘…父から学んだ真の「ジャーナリズム」とは【小池百合子に...】](/rehacq_fan/ids/qWE1MsRmb7k "wikilink")
     -   公開日: 2024-07-25
-    -   視聴数: 1,090,825
+    -   視聴数: 1,090,946
     -   **いいね数: 20,736**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森永卓郎
 1.  [【カルロス•ゴーン独占取材】日産に激怒！追浜閉鎖…元幹部への苦言…国外脱出の全貌とは？【ReHacQ須賀川拓】](/rehacq_fan/ids/loEb4IWVkAs "wikilink")
@@ -402,8 +402,8 @@
     -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 1,032,411
-    -   **いいね数: 16,698**
+    -   視聴数: 1,032,715
+    -   **いいね数: 16,700**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【ひろゆきvsボビー・オロゴン】兄弟34人！父のスパルタ教育とは？【ガチの一夫多妻制】](/rehacq_fan/ids/hvJ0lBxFILU "wikilink")
     -   公開日: 2024-08-04
