@@ -285,16 +285,16 @@
     -   視聴数: 1,285,920
     -   **いいね数: 17,579**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+1.  [【石丸伸二vs銀行の元上司】半沢直樹か否か…銀行時代、上司を詰めた理由とは？【高橋弘樹】](/rehacq_fan/ids/9Ost8DSs1uU "wikilink")
+    -   公開日: 2024-09-14
+    -   視聴数: 1,272,718
+    -   **いいね数: 18,769**
+    -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【高橋弘樹vs京大名誉教授】完全解説！迫る南海トラフ・首都直下型地震・富士山噴火...国民半分が被災？国家機能は停止し300兆円の損失？安全な都市とは...【ReHacQvs鎌田浩毅】](/rehacq_fan/ids/OaraOYMIles "wikilink")
     -   公開日: 2026-03-10
     -   視聴数: 1,272,655
     -   **いいね数: 17,204**
     -   出演者: 鎌田浩毅, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【石丸伸二vs銀行の元上司】半沢直樹か否か…銀行時代、上司を詰めた理由とは？【高橋弘樹】](/rehacq_fan/ids/9Ost8DSs1uU "wikilink")
-    -   公開日: 2024-09-14
-    -   視聴数: 1,270,611
-    -   **いいね数: 18,766**
-    -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【なぜ高市早苗と連立？】維新・吉村代表に聞く！自民党は約束を守るのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Rx4U0L9SK9w "wikilink")
     -   公開日: 2025-10-17
     -   視聴数: 1,257,116
@@ -482,8 +482,8 @@
     -   出演者: カルロス・ゴーン, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【石丸伸二vs吉村洋文】緊迫！石丸伸二が野党に激怒…今後のロードマップは？【高橋弘樹】](/rehacq_fan/ids/Lb9U4acxhs4 "wikilink")
     -   公開日: 2024-09-07
-    -   視聴数: 1,063,151
-    -   **いいね数: 19,151**
+    -   視聴数: 1,063,348
+    -   **いいね数: 19,152**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
     -   公開日: 2025-11-21
