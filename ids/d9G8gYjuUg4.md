@@ -1,6 +1,6 @@
 ### [【朝からガチ安野】チームみらいと激論！どうなる日本の未来？朝からガチ安野・前夜祭【ReHacQ生配信】](https://www.youtube.com/watch?v=d9G8gYjuUg4)
 [![](https://img.youtube.com/vi/d9G8gYjuUg4/sddefault.jpg)](https://www.youtube.com/watch?v=d9G8gYjuUg4)
 -   公開日: 2026-04-11
--   視聴数: 20,335
--   **いいね数: 500**
+-   視聴数: 31,353
+-   **いいね数: 779**
 -   出演者: 
