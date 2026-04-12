@@ -1,6 +1,6 @@
 ### [【ひろゆきvs加納裕三】Web3で騙されないために【ブロックチェーンとは？】](https://www.youtube.com/watch?v=ZuX2n1s_0rQ)
 [![](https://img.youtube.com/vi/ZuX2n1s_0rQ/sddefault.jpg)](https://www.youtube.com/watch?v=ZuX2n1s_0rQ)
 -   公開日: 2023-08-18
--   視聴数: 430,969
--   **いいね数: 4,010**
+-   視聴数: 431,718
+-   **いいね数: 4,016**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [加納裕三](/rehacq_fan/people/加納裕三 "wikilink")
