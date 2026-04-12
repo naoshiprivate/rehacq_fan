@@ -3,4 +3,4 @@
 -   公開日: 2026-04-02
 -   視聴数: 63,241
 -   **いいね数: 886**
--   出演者: 
+-   出演者: [松本太](/rehacq_fan/people/松本太 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")

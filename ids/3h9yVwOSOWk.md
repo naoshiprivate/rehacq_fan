@@ -3,4 +3,4 @@
 -   公開日: 2026-03-02
 -   視聴数: 299,456
 -   **いいね数: 3,068**
--   出演者: [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), 齊藤貢
+-   出演者: [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [齊藤貢](/rehacq_fan/people/齊藤貢 "wikilink")

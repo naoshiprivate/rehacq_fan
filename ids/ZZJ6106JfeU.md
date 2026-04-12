@@ -3,4 +3,4 @@
 -   公開日: 2026-03-01
 -   視聴数: 410,335
 -   **いいね数: 3,658**
--   出演者: 川上泰徳, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), 黒井文太郎, 齊藤貢
+-   出演者: 川上泰徳, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), 黒井文太郎, [齊藤貢](/rehacq_fan/people/齊藤貢 "wikilink")

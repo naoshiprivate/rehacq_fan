@@ -3,4 +3,4 @@
 -   公開日: 2026-03-07
 -   視聴数: 308,144
 -   **いいね数: 4,541**
--   出演者: 松本太, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 齋藤貢
+-   出演者: [松本太](/rehacq_fan/people/松本太 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 齋藤貢
