@@ -1,6 +1,6 @@
 ### [【小泉悠vs高橋弘樹】核保有の是非...日米同盟は破棄される!?台湾有事・イラン・ロシアウクライナ...混沌とした世界での安全保障とは？弱小国日本が具体的にすべきこと【ReHacQvs戦争】](https://www.youtube.com/watch?v=O0rdxFIsK-I)
 [![](https://img.youtube.com/vi/O0rdxFIsK-I/sddefault.jpg)](https://www.youtube.com/watch?v=O0rdxFIsK-I)
 -   公開日: 2026-04-11
--   視聴数: 324,928
--   **いいね数: 4,610**
+-   視聴数: 330,318
+-   **いいね数: 4,670**
 -   出演者: 
