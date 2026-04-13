@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】香取市長選挙 ネット討論会【高橋弘樹vs谷田川はじめvsいとうとものりvsながしま和也】](https://www.youtube.com/watch?v=lgZgfdPvHLY)
 [![](https://img.youtube.com/vi/lgZgfdPvHLY/sddefault.jpg)](https://www.youtube.com/watch?v=lgZgfdPvHLY)
 -   公開日: 2026-04-13
--   視聴数: 1,986
--   **いいね数: 80**
+-   視聴数: 3,504
+-   **いいね数: 141**
 -   出演者: 
