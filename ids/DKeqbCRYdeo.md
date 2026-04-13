@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/DKeqbCRYdeo/sddefault.jpg)](https://www.youtube.com/watch?v=DKeqbCRYdeo)
 -   公開日: 2024-10-20
 -   視聴数: 26,294
--   **いいね数: 171**
+-   **いいね数: 170**
 -   出演者: 
