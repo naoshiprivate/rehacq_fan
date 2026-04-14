@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】あま市長選挙 ネット討論会【高橋弘樹vsやしまけんじ】](https://www.youtube.com/watch?v=Qojv9a2_OAs)
 [![](https://img.youtube.com/vi/Qojv9a2_OAs/sddefault.jpg)](https://www.youtube.com/watch?v=Qojv9a2_OAs)
 -   公開日: 2026-04-13
--   視聴数: 16,921
--   **いいね数: 291**
+-   視聴数: 17,469
+-   **いいね数: 294**
 -   出演者: 

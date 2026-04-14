@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】飲みながら...まったり雑談【箕輪厚介vs黒岩里奈vs高橋弘樹】](https://www.youtube.com/watch?v=AJe8kfBtR5w)
 [![](https://img.youtube.com/vi/AJe8kfBtR5w/sddefault.jpg)](https://www.youtube.com/watch?v=AJe8kfBtR5w)
 -   公開日: 2026-04-14
--   視聴数: 55,350
--   **いいね数: 1,248**
+-   視聴数: 118,179
+-   **いいね数: 2,039**
 -   出演者: 
