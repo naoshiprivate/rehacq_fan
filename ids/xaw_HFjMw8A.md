@@ -1,6 +1,6 @@
 ### [【ひろゆきvsサナエトークン騒動②】暗号資産業界…世界の先駆けは日本？不正取引どう食い止める？【ReHacQvsJPYC岡部典孝vs西田亮介】](https://www.youtube.com/watch?v=xaw_HFjMw8A)
 [![](https://img.youtube.com/vi/xaw_HFjMw8A/sddefault.jpg)](https://www.youtube.com/watch?v=xaw_HFjMw8A)
 -   公開日: 2026-04-13
--   視聴数: 123,908
--   **いいね数: 1,486**
+-   視聴数: 126,105
+-   **いいね数: 1,492**
 -   出演者: 
