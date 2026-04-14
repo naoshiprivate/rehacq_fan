@@ -100,16 +100,16 @@
     -   視聴数: 2,096,746
     -   **いいね数: 23,477**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), デヴィ夫人
+1.  [【高橋弘樹vs呉座勇一】戦国時代のウソ！豊臣秀吉の正体とは？歴史に騙されない方法【ReHacQvs織田信長の真実】](/rehacq_fan/ids/H6ZVuj7IGOM "wikilink")
+    -   公開日: 2025-12-18
+    -   視聴数: 2,030,746
+    -   **いいね数: 14,674**
+    -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【西田亮介vs米山隆一】SNSと政治についてガチ討論！デマや誹謗中傷など課題山積...これからどうなる？【ReHacQ高橋弘樹】](/rehacq_fan/ids/B5-KBz_t3wU "wikilink")
     -   公開日: 2025-04-29
     -   視聴数: 2,013,196
     -   **いいね数: 26,354**
     -   出演者: [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs呉座勇一】戦国時代のウソ！豊臣秀吉の正体とは？歴史に騙されない方法【ReHacQvs織田信長の真実】](/rehacq_fan/ids/H6ZVuj7IGOM "wikilink")
-    -   公開日: 2025-12-18
-    -   視聴数: 1,984,874
-    -   **いいね数: 14,461**
-    -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【岡田斗司夫vs後藤達也】ひろゆきとホリエモンも尊敬！価値観が変わる「評価経済社会」とは【緊急出演】](/rehacq_fan/ids/oHDV4qfKJSw "wikilink")
     -   公開日: 2024-08-08
     -   視聴数: 1,897,649
@@ -395,6 +395,11 @@
     -   視聴数: 1,123,683
     -   **いいね数: 14,425**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石破茂](/rehacq_fan/people/石破茂 "wikilink")
+1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](/rehacq_fan/ids/JxdSFPP3_Bg "wikilink")
+    -   公開日: 2025-05-13
+    -   視聴数: 1,123,677
+    -   **いいね数: 7,697**
+    -   出演者: 渡部雅浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs東出昌大】夏の夜！まったり雑談【アフリカ旅】](/rehacq_fan/ids/yfbTb_WzSTM "wikilink")
     -   公開日: 2023-08-20
     -   視聴数: 1,118,634
@@ -410,11 +415,6 @@
     -   視聴数: 1,115,104
     -   **いいね数: 14,521**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
-1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](/rehacq_fan/ids/JxdSFPP3_Bg "wikilink")
-    -   公開日: 2025-05-13
-    -   視聴数: 1,112,805
-    -   **いいね数: 7,641**
-    -   出演者: 渡部雅浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン】年収1億円…行く人、行かない人違いは？【ReHacQ】](/rehacq_fan/ids/Ipck99H_vjU "wikilink")
     -   公開日: 2025-01-13
     -   視聴数: 1,109,572
