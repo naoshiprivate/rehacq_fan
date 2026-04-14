@@ -1,6 +1,6 @@
 ### [【高橋弘樹vsコムドットやまと】「置かれた場所で咲け」絶対反対！YouTube登録者421万・コムドットやまとの衝撃人生観【ReHacQ】](https://www.youtube.com/watch?v=Pma0Lv_Dngg)
 [![](https://img.youtube.com/vi/Pma0Lv_Dngg/sddefault.jpg)](https://www.youtube.com/watch?v=Pma0Lv_Dngg)
 -   公開日: 2026-02-14
--   視聴数: 133,866
--   **いいね数: 2,231**
+-   視聴数: 135,030
+-   **いいね数: 2,258**
 -   出演者: [やまと](/rehacq_fan/people/やまと "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
