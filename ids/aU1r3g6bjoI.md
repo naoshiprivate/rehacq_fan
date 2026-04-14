@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/aU1r3g6bjoI/sddefault.jpg)](https://www.youtube.com/watch?v=aU1r3g6bjoI)
 -   公開日: 2025-09-18
 -   視聴数: 23,343
--   **いいね数: 167**
+-   **いいね数: 166**
 -   出演者: [林芳正](/rehacq_fan/people/林芳正 "wikilink")
