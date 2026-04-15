@@ -24,8 +24,8 @@
     - [![](https://img.youtube.com/vi/8E5VoHiJgdQ/hqdefault.jpg)](https://www.youtube.com/watch?v=8E5VoHiJgdQ)
 1.  [【高橋弘樹vs教育経済学者】衝撃告白！学力は遺伝で決まる！？学歴と収入の関係とは？【ReHacQvs中室牧子】](/rehacq_fan/ids/i9a56La-9Rw "wikilink")
     -   公開日: 2026-03-18
-    -   視聴数: 707,259
-    -   **いいね数: 9,159**
+    -   視聴数: 727,520
+    -   **いいね数: 9,319**
     -   出演者: 中室牧子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/i9a56La-9Rw/hqdefault.jpg)](https://www.youtube.com/watch?v=i9a56La-9Rw)
 
