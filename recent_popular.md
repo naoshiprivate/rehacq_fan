@@ -18,8 +18,8 @@
     - [![](https://img.youtube.com/vi/67p6VAo7E10/hqdefault.jpg)](https://www.youtube.com/watch?v=67p6VAo7E10)
 1.  [【ReHacQまったり生配信】最近あった事【小西洋之vs足立康史vs今野忍vs西田亮介vs佐々木れなvs高橋弘樹】](/rehacq_fan/ids/8E5VoHiJgdQ "wikilink")
     -   公開日: 2026-03-18
-    -   視聴数: 528,444
-    -   **いいね数: 4,963**
+    -   視聴数: 531,756
+    -   **いいね数: 4,966**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 佐々木れな, [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [足立康史](/rehacq_fan/people/足立康史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/8E5VoHiJgdQ/hqdefault.jpg)](https://www.youtube.com/watch?v=8E5VoHiJgdQ)
 1.  [【高橋弘樹vs教育経済学者】衝撃告白！学力は遺伝で決まる！？学歴と収入の関係とは？【ReHacQvs中室牧子】](/rehacq_fan/ids/i9a56La-9Rw "wikilink")

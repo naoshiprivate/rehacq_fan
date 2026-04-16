@@ -1,6 +1,6 @@
 ### [【呉座勇一vs 高橋弘樹】なぜ激怒？高杉晋作が憧れた軍記物語とは？【源頼朝vs平清盛】 ReHacQ](https://www.youtube.com/watch?v=V-G28W_RuiE)
 [![](https://img.youtube.com/vi/V-G28W_RuiE/sddefault.jpg)](https://www.youtube.com/watch?v=V-G28W_RuiE)
 -   公開日: 2026-02-22
--   視聴数: 291,891
--   **いいね数: 3,530**
+-   視聴数: 300,692
+-   **いいね数: 3,605**
 -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
