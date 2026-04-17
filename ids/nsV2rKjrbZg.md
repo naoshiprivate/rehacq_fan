@@ -1,6 +1,6 @@
 ### [【中島聡vs未来予測】ホワイトカラー消滅後はブルーカラーも危ない？次の主役…人型ロボット社会とは？【田中渓&ReHacQ】](https://www.youtube.com/watch?v=nsV2rKjrbZg)
 [![](https://img.youtube.com/vi/nsV2rKjrbZg/sddefault.jpg)](https://www.youtube.com/watch?v=nsV2rKjrbZg)
 -   公開日: 2026-04-16
--   視聴数: 118,426
--   **いいね数: 1,599**
+-   視聴数: 121,124
+-   **いいね数: 1,610**
 -   出演者: 
