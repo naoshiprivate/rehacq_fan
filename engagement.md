@@ -36,7 +36,7 @@
 
 # 平均いいね数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 13,388 (11)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 13,389 (11)
 1. [石丸伸二](/rehacq_fan/people/石丸伸二): 12,172 (159)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 8,776 (19)
 1. [今野忍](/rehacq_fan/people/今野忍): 8,391 (28)
@@ -53,30 +53,30 @@
 1. [土田しん](/rehacq_fan/people/土田しん): 4,943 (12)
 1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 4,789 (854)
 1. [スーツ](/rehacq_fan/people/スーツ): 4,709 (20)
-1. [斎藤幸平](/rehacq_fan/people/斎藤幸平): 4,308 (42)
+1. [斎藤幸平](/rehacq_fan/people/斎藤幸平): 4,309 (42)
 1. [神谷宗幣](/rehacq_fan/people/神谷宗幣): 4,261 (12)
 1. [テスタ](/rehacq_fan/people/テスタ): 4,226 (12)
 
 
 # 平均視聴数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 710,765 (11)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 710,869 (11)
 1. [今野忍](/rehacq_fan/people/今野忍): 673,453 (28)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 587,409 (159)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 587,420 (159)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 574,996 (10)
 1. [西田亮介](/rehacq_fan/people/西田亮介): 574,541 (161)
-1. [音喜多駿](/rehacq_fan/people/音喜多駿): 551,906 (19)
-1. [ひろゆき](/rehacq_fan/people/ひろゆき): 517,031 (241)
+1. [音喜多駿](/rehacq_fan/people/音喜多駿): 551,911 (19)
+1. [ひろゆき](/rehacq_fan/people/ひろゆき): 517,053 (241)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 501,792 (32)
-1. [東出昌大](/rehacq_fan/people/東出昌大): 480,910 (19)
+1. [東出昌大](/rehacq_fan/people/東出昌大): 480,936 (19)
 1. [土田しん](/rehacq_fan/people/土田しん): 448,260 (12)
 1. [テスタ](/rehacq_fan/people/テスタ): 421,549 (12)
 1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 418,152 (26)
 1. [宇佐美典也](/rehacq_fan/people/宇佐美典也): 415,416 (13)
 1. [野村泰紀](/rehacq_fan/people/野村泰紀): 411,520 (29)
 1. [ふゆこ](/rehacq_fan/people/ふゆこ): 383,047 (12)
-1. [後藤達也](/rehacq_fan/people/後藤達也): 382,411 (158)
+1. [後藤達也](/rehacq_fan/people/後藤達也): 382,412 (158)
 1. [川上量生](/rehacq_fan/people/川上量生): 326,692 (33)
-1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 326,385 (854)
+1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 326,404 (854)
 1. [馬場伸幸](/rehacq_fan/people/馬場伸幸): 326,010 (11)
-1. [スーツ](/rehacq_fan/people/スーツ): 321,764 (20)
+1. [スーツ](/rehacq_fan/people/スーツ): 321,773 (20)
