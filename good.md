@@ -122,8 +122,8 @@
     -   出演者: [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】東京都知事選2024！ラストボイス【石丸伸二】](/rehacq_fan/ids/I8__R-9OwwA "wikilink")
     -   公開日: 2024-07-03
-    -   視聴数: 638,206
-    -   **いいね数: 26,262**
+    -   視聴数: 638,253
+    -   **いいね数: 26,260**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](/rehacq_fan/ids/eOz1CzMBmuQ "wikilink")
     -   公開日: 2023-11-25
@@ -202,8 +202,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs後藤達也】為替は日銀構文を読め！トランプと株式市場【元NY専門家が予測】](/rehacq_fan/ids/7_sdf9uZUiU "wikilink")
     -   公開日: 2024-07-31
-    -   視聴数: 1,354,996
-    -   **いいね数: 21,437**
+    -   視聴数: 1,358,242
+    -   **いいね数: 21,441**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸市長vs副議長】安芸高田！奥広島のまったり旅…西田亮介【清志会vs毛利元就】](/rehacq_fan/ids/qMR_6XOPwvY "wikilink")
     -   公開日: 2024-01-21
@@ -220,16 +220,16 @@
     -   視聴数: 1,687,467
     -   **いいね数: 21,314**
     -   出演者: [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](/rehacq_fan/ids/-67Yfoti-W0 "wikilink")
+    -   公開日: 2024-08-07
+    -   視聴数: 1,181,026
+    -   **いいね数: 21,176**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs 斎藤知事に激怒の議員】兵庫県告発文書！百条委員会の委員長の本音【ReHacQ】](/rehacq_fan/ids/uY0Jmw4wR7Y "wikilink")
     -   公開日: 2024-10-04
     -   視聴数: 1,709,471
     -   **いいね数: 21,174**
     -   出演者: 奥谷謙一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](/rehacq_fan/ids/-67Yfoti-W0 "wikilink")
-    -   公開日: 2024-08-07
-    -   視聴数: 1,178,290
-    -   **いいね数: 21,168**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs森永卓郎】投資ブームに警鐘…父から学んだ真の「ジャーナリズム」とは【小池百合子に...】](/rehacq_fan/ids/qWE1MsRmb7k "wikilink")
     -   公開日: 2024-07-25
     -   視聴数: 1,091,107
