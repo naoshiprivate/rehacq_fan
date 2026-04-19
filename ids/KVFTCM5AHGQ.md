@@ -1,6 +1,6 @@
 ### [【コムドットやまとvs高橋弘樹】衝撃のラスト！全学生へ「黙って勉強しろ」睡眠3時間で登録者400万へ！最強の成功哲学とは【ReHacQ】](https://www.youtube.com/watch?v=KVFTCM5AHGQ)
 [![](https://img.youtube.com/vi/KVFTCM5AHGQ/sddefault.jpg)](https://www.youtube.com/watch?v=KVFTCM5AHGQ)
 -   公開日: 2026-02-24
--   視聴数: 85,761
--   **いいね数: 1,836**
+-   視聴数: 86,453
+-   **いいね数: 1,855**
 -   出演者: [やまと](/rehacq_fan/people/やまと "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
