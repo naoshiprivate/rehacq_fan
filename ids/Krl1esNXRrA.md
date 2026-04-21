@@ -1,6 +1,6 @@
-### [【高橋弘樹vs坂井風太】理不尽な上司の正体...挫折経験は本当に必要か？【ReHacQ】](https://www.youtube.com/watch?v=Krl1esNXRrA)
+### [【高橋弘樹vs坂井風太】挫折経験で人は成長する？理不尽な上司の正体と対処法？努力信仰とビジネス動画メディアについて【ReHacQ】](https://www.youtube.com/watch?v=Krl1esNXRrA)
 [![](https://img.youtube.com/vi/Krl1esNXRrA/sddefault.jpg)](https://www.youtube.com/watch?v=Krl1esNXRrA)
 -   公開日: 2026-04-21
--   視聴数: 4
--   **いいね数: 4**
+-   視聴数: 3,157
+-   **いいね数: 90**
 -   出演者: 
