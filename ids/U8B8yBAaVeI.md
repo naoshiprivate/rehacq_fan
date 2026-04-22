@@ -1,6 +1,6 @@
 ### [【ひろゆきvs安野貴博vs地方議員】寝起きで即議論！朝からガチ安野CMノーカット版【ReHacQ特別企画vsチームみらいvs今野忍vs今井翔太】](https://www.youtube.com/watch?v=U8B8yBAaVeI)
 [![](https://img.youtube.com/vi/U8B8yBAaVeI/sddefault.jpg)](https://www.youtube.com/watch?v=U8B8yBAaVeI)
 -   公開日: 2026-04-19
--   視聴数: 144,261
--   **いいね数: 1,767**
+-   視聴数: 144,582
+-   **いいね数: 1,770**
 -   出演者: 
