@@ -1,31 +1,31 @@
 1.  [【ReHacQvs胃の病】ピロリ菌は2歳で感染する！？胃に優しい食べ方・順番を専門医が徹底解説！【秋津壽男vs加藤シルビア】](/rehacq_fan/ids/2DXwBbJrZg8 "wikilink")
     -   公開日: 2026-04-22
-    -   視聴数: 3,894
-    -   **いいね数: 79**
+    -   視聴数: 5,598
+    -   **いいね数: 87**
     -   出演者: 
     - [![](https://img.youtube.com/vi/2DXwBbJrZg8/hqdefault.jpg)](https://www.youtube.com/watch?v=2DXwBbJrZg8)
 1.  [【日本維新の会】藤田共同代表靖国参拝 公費か私費か問う記者に対して「意味のある質問なのかな？と思う」【ReHacQ記者会見 4月22日(水)】](/rehacq_fan/ids/1GiPBAs4u28 "wikilink")
     -   公開日: 2026-04-22
-    -   視聴数: 4,759
-    -   **いいね数: 159**
+    -   視聴数: 5,400
+    -   **いいね数: 174**
     -   出演者: 
     - [![](https://img.youtube.com/vi/1GiPBAs4u28/hqdefault.jpg)](https://www.youtube.com/watch?v=1GiPBAs4u28)
 1.  [【高橋弘樹vs坂井風太】挫折経験で人は成長する？理不尽な上司の正体と対処法？努力信仰とビジネス動画メディアについて【ReHacQ】](/rehacq_fan/ids/Krl1esNXRrA "wikilink")
     -   公開日: 2026-04-21
-    -   視聴数: 61,546
-    -   **いいね数: 948**
+    -   視聴数: 63,445
+    -   **いいね数: 972**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Krl1esNXRrA/hqdefault.jpg)](https://www.youtube.com/watch?v=Krl1esNXRrA)
 1.  [【高橋弘樹vs日本共産党】尖閣問題…中国にどう対応？左派のこれからと戦略【ReHacQvs小池晃】](/rehacq_fan/ids/q0T2p-4vjAQ "wikilink")
     -   公開日: 2026-04-21
-    -   視聴数: 59,753
-    -   **いいね数: 997**
+    -   視聴数: 61,029
+    -   **いいね数: 1,023**
     -   出演者: 
     - [![](https://img.youtube.com/vi/q0T2p-4vjAQ/hqdefault.jpg)](https://www.youtube.com/watch?v=q0T2p-4vjAQ)
 1.  [【国民民主党】若手議員を中心に検討チームを立ち上げへ「2040年ビジョンを中期的な視点で作ってもらいたい」【ReHacQ記者会見 4月21日(火)】](/rehacq_fan/ids/3Vnu4kA2HCQ "wikilink")
     -   公開日: 2026-04-21
-    -   視聴数: 13,177
-    -   **いいね数: 232**
+    -   視聴数: 13,316
+    -   **いいね数: 233**
     -   出演者: 
     - [![](https://img.youtube.com/vi/3Vnu4kA2HCQ/hqdefault.jpg)](https://www.youtube.com/watch?v=3Vnu4kA2HCQ)
 
