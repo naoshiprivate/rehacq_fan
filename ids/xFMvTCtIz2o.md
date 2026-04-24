@@ -1,6 +1,6 @@
 ### [【石丸伸二vs国宝の舞台②】激論！若者が集まる地方の秘密【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=xFMvTCtIz2o)
 [![](https://img.youtube.com/vi/xFMvTCtIz2o/sddefault.jpg)](https://www.youtube.com/watch?v=xFMvTCtIz2o)
 -   公開日: 2026-04-23
--   視聴数: 73,368
--   **いいね数: 2,920**
+-   視聴数: 85,949
+-   **いいね数: 3,212**
 -   出演者: 
