@@ -1,6 +1,6 @@
 ### [【”斬首”から停戦へ】米イランが停戦合意…ホルムズ海峡は航行可能に？戦争と原油の行方はいかに？【ReHacQ須賀川拓・松本太・高橋和夫】](https://www.youtube.com/watch?v=TawwIE3YDu8)
 [![](https://img.youtube.com/vi/TawwIE3YDu8/sddefault.jpg)](https://www.youtube.com/watch?v=TawwIE3YDu8)
 -   公開日: 2026-04-08
--   視聴数: 147,525
--   **いいね数: 1,629**
+-   視聴数: 147,903
+-   **いいね数: 1,630**
 -   出演者: [松本太](/rehacq_fan/people/松本太 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋和夫](/rehacq_fan/people/高橋和夫 "wikilink")
