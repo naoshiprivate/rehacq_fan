@@ -362,8 +362,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs国民民主党】衝撃的!日本倍増計画とは?【玉木雄一郎の野望 episode2】](/rehacq_fan/ids/EYKExpig3-4 "wikilink")
     -   公開日: 2023-05-28
-    -   視聴数: 1,147,004
-    -   **いいね数: 18,838**
+    -   視聴数: 1,147,163
+    -   **いいね数: 18,837**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【ひろゆきvs自民党税調会長】緊急参戦！宮沢洋一がすべて告白！103万の壁…決着の裏側【ReHacQ西田亮介&高橋弘樹】](/rehacq_fan/ids/mf37-gaqcFE "wikilink")
     -   公開日: 2025-04-06
@@ -380,6 +380,11 @@
     -   視聴数: 1,138,044
     -   **いいね数: 15,518**
     -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](/rehacq_fan/ids/JxdSFPP3_Bg "wikilink")
+    -   公開日: 2025-05-13
+    -   視聴数: 1,137,358
+    -   **いいね数: 7,771**
+    -   出演者: 渡部雅浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二が緊急登場】激論!都知事選とメディアの功罪【西田亮介&高橋弘樹】](/rehacq_fan/ids/pvhzvC513uQ "wikilink")
     -   公開日: 2024-07-10
     -   視聴数: 1,132,832
@@ -395,16 +400,16 @@
     -   視聴数: 1,131,221
     -   **いいね数: 16,552**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元引きこもりがVTuber, [大井基行](/rehacq_fan/people/大井基行 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](/rehacq_fan/ids/JxdSFPP3_Bg "wikilink")
-    -   公開日: 2025-05-13
-    -   視聴数: 1,130,637
-    -   **いいね数: 7,736**
-    -   出演者: 渡部雅浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsシン・石破茂】ウクライナと中国…衝撃「国防の罠」【ReHacQs】](/rehacq_fan/ids/RUKBNEivcAw "wikilink")
     -   公開日: 2023-03-25
     -   視聴数: 1,126,757
     -   **いいね数: 14,424**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石破茂](/rehacq_fan/people/石破茂 "wikilink")
+1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
+    -   公開日: 2026-02-13
+    -   視聴数: 1,124,094
+    -   **いいね数: 12,020**
+    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ガーシーが謝罪】被害者・川上量生に直接…一体なぜ？参議院議員から急転逮捕…真相とは？【なぜN国から立候補？】](/rehacq_fan/ids/mt5tmXdLERs "wikilink")
     -   公開日: 2024-12-26
     -   視聴数: 1,119,687
@@ -425,11 +430,6 @@
     -   視聴数: 1,115,777
     -   **いいね数: 14,766**
     -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
-    -   公開日: 2026-02-13
-    -   視聴数: 1,114,361
-    -   **いいね数: 12,005**
-    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](/rehacq_fan/ids/QPmOX-9hDpY "wikilink")
     -   公開日: 2025-02-27
     -   視聴数: 1,103,921
