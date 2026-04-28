@@ -432,8 +432,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【立花孝志vs高橋弘樹】NHK党にNG無し質問！ReHacQ【西田亮介&横田一】](/rehacq_fan/ids/qzFJpEy_rI "wikilink")
     -   公開日: 2025-07-14
-    -   視聴数: 779,075
-    -   **いいね数: 16,354**
+    -   視聴数: 779,151
+    -   **いいね数: 16,350**
     -   出演者: [横田一](/rehacq_fan/people/横田一 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔、唖然】欲望地獄と資本主義、生きる道は？【エンタメ系IT起業家の激白】](/rehacq_fan/ids/4t0yL-uIfUA "wikilink")
     -   公開日: 2023-03-26

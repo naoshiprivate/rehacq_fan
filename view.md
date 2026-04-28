@@ -422,8 +422,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](/rehacq_fan/ids/arcYBqJcY8w "wikilink")
     -   公開日: 2024-01-27
-    -   視聴数: 1,116,367
-    -   **いいね数: 14,524**
+    -   視聴数: 1,116,857
+    -   **いいね数: 14,526**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
 1.  [【高橋弘樹vs辞めゴールドマン】年収1億円…行く人、行かない人違いは？【ReHacQ】](/rehacq_fan/ids/Ipck99H_vjU "wikilink")
     -   公開日: 2025-01-13
@@ -442,8 +442,8 @@
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](/rehacq_fan/ids/w-ToOG5rMTc "wikilink")
     -   公開日: 2023-10-01
-    -   視聴数: 1,093,650
-    -   **いいね数: 11,163**
+    -   視聴数: 1,096,039
+    -   **いいね数: 11,186**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【石丸伸二vs吉村洋文】石丸新党の構想判明！国民民主vs維新…解決策は？【ReHacQ・高橋弘樹】](/rehacq_fan/ids/DQkpV-2rV3I "wikilink")
     -   公開日: 2024-12-23
