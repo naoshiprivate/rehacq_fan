@@ -1,31 +1,31 @@
+1.  [【高橋弘樹vs桑田龍征】年商53億！通販の虎代表...実はコンプレックスだらけ？「令和の虎」の正体とは？恋愛病院の裏話【ReHacQ】](/rehacq_fan/ids/SjIJGCxCi30 "wikilink")
+    -   公開日: 2026-04-28
+    -   視聴数: 6,115
+    -   **いいね数: 327**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/SjIJGCxCi30/hqdefault.jpg)](https://www.youtube.com/watch?v=SjIJGCxCi30)
 1.  [【ReHacQvs税金】衝撃事実!!国民は騙されている!?日本税制の闇...26年度税制改正徹底解説【脱税理士スガワラくんvs東留伽】](/rehacq_fan/ids/0jTksmzJ-Ac "wikilink")
     -   公開日: 2026-04-27
-    -   視聴数: 72,032
-    -   **いいね数: 2,030**
+    -   視聴数: 117,384
+    -   **いいね数: 3,033**
     -   出演者: 
     - [![](https://img.youtube.com/vi/0jTksmzJ-Ac/hqdefault.jpg)](https://www.youtube.com/watch?v=0jTksmzJ-Ac)
 1.  [【高橋弘樹vs元1兆円企業役員】年収1億でも辞めた本当の理由…ヤバすぎるM&Aの裏側【ReHacQ】](/rehacq_fan/ids/ZAx6E4yE3uo "wikilink")
     -   公開日: 2026-04-27
-    -   視聴数: 49,692
-    -   **いいね数: 726**
+    -   視聴数: 65,789
+    -   **いいね数: 907**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ZAx6E4yE3uo/hqdefault.jpg)](https://www.youtube.com/watch?v=ZAx6E4yE3uo)
 1.  [【恋愛病院】本気の恋を忘れたワケあり男女10人の恋愛だけに向き合う2泊3日のリハビリ生活スタート！【ReHacQ】](/rehacq_fan/ids/OnSZF_o9uMY "wikilink")
     -   公開日: 2026-04-26
-    -   視聴数: 124,259
-    -   **いいね数: 2,072**
+    -   視聴数: 126,406
+    -   **いいね数: 2,093**
     -   出演者: 
     - [![](https://img.youtube.com/vi/OnSZF_o9uMY/hqdefault.jpg)](https://www.youtube.com/watch?v=OnSZF_o9uMY)
 1.  [【高橋弘樹vs国山ハセン】赤字6,000万円!?渡米起業も組織崩壊で大失敗!?全部ぶっちゃけ赤裸々告白…【ReHacQ &須賀川拓】](/rehacq_fan/ids/6Wp5cCtzyEo "wikilink")
     -   公開日: 2026-04-26
-    -   視聴数: 332,933
-    -   **いいね数: 4,235**
+    -   視聴数: 354,448
+    -   **いいね数: 4,468**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6Wp5cCtzyEo/hqdefault.jpg)](https://www.youtube.com/watch?v=6Wp5cCtzyEo)
-1.  [【中島聡vs未来予測】仕事が消える未来…働かない社会で人間の生きがいは残るのか？【田中渓&ReHacQ】](/rehacq_fan/ids/yzFgatvCJc8 "wikilink")
-    -   公開日: 2026-04-26
-    -   視聴数: 81,096
-    -   **いいね数: 1,223**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/yzFgatvCJc8/hqdefault.jpg)](https://www.youtube.com/watch?v=yzFgatvCJc8)
 
