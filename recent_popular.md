@@ -1,3 +1,9 @@
+1.  [【ReHacQ緊急生配信】激論！玉木雄一郎が本音で語る国民民主党の目指す未来【玉木雄一郎vs今野忍vs高橋弘樹】](/rehacq_fan/ids/zAO5Jk4o_Cw "wikilink")
+    -   公開日: 2026-04-17
+    -   視聴数: 541,697
+    -   **いいね数: 7,570**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/zAO5Jk4o_Cw/hqdefault.jpg)](https://www.youtube.com/watch?v=zAO5Jk4o_Cw)
 1.  [【高橋弘樹vs冤罪】証拠捏造...刑事司法の闇を衝撃告白！郵便不正事件の裏側とは？村木厚子【ReHacQ】](/rehacq_fan/ids/PTUa4PxfT7Q "wikilink")
     -   公開日: 2026-04-17
     -   視聴数: 553,418
@@ -22,10 +28,4 @@
     -   **いいね数: 10,127**
     -   出演者: 小泉悠, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/hvXLADpNwqs/hqdefault.jpg)](https://www.youtube.com/watch?v=hvXLADpNwqs)
-1.  [【ReHacQ生配信】「恋愛病院」観賞会！みんなで石丸伸二の恋を見守る会【箕輪厚介&今野忍&音喜多駿&西田亮介&高橋弘樹】](/rehacq_fan/ids/cIGIy4AbYJU "wikilink")
-    -   公開日: 2026-04-03
-    -   視聴数: 659,946
-    -   **いいね数: 12,647**
-    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/cIGIy4AbYJU/hqdefault.jpg)](https://www.youtube.com/watch?v=cIGIy4AbYJU)
 
