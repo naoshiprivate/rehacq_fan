@@ -3,4 +3,4 @@
 -   公開日: 2026-03-05
 -   視聴数: 127,421
 -   **いいね数: 946**
--   出演者: 東留伽, [牧野知弘](/rehacq_fan/people/牧野知弘 "wikilink"), 藤代浩一
+-   出演者: [東留伽](/rehacq_fan/people/東留伽 "wikilink"), [牧野知弘](/rehacq_fan/people/牧野知弘 "wikilink"), 藤代浩一

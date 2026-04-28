@@ -6,8 +6,8 @@
     - [![](https://img.youtube.com/vi/PTUa4PxfT7Q/hqdefault.jpg)](https://www.youtube.com/watch?v=PTUa4PxfT7Q)
 1.  [【ひろゆきvs石丸伸二vs東京都政】東京の財政が激変！？衝撃ガチプレゼン！【ReHacQ今野忍vs西田亮介vs中室牧子vs高橋弘樹vs音喜多駿】](/rehacq_fan/ids/uQ9EoatHzBs "wikilink")
     -   公開日: 2026-04-12
-    -   視聴数: 508,046
-    -   **いいね数: 9,500**
+    -   視聴数: 524,244
+    -   **いいね数: 9,615**
     -   出演者: 
     - [![](https://img.youtube.com/vi/uQ9EoatHzBs/hqdefault.jpg)](https://www.youtube.com/watch?v=uQ9EoatHzBs)
 1.  [【小泉悠vs高橋弘樹】核保有の是非...日米同盟は破棄される!?台湾有事・イラン・ロシアウクライナ...混沌とした世界での安全保障とは？弱小国日本が具体的にすべきこと【ReHacQvs戦争】](/rehacq_fan/ids/O0rdxFIsK-I "wikilink")
