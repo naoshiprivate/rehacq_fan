@@ -3,4 +3,4 @@
 -   公開日: 2026-03-04
 -   視聴数: 45,619
 -   **いいね数: 376**
--   出演者: 松尾英里子, [熊野英生](/rehacq_fan/people/熊野英生 "wikilink")
+-   出演者: [松尾英里子](/rehacq_fan/people/松尾英里子 "wikilink"), [熊野英生](/rehacq_fan/people/熊野英生 "wikilink")

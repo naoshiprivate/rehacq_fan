@@ -3,4 +3,4 @@
 -   公開日: 2026-04-10
 -   視聴数: 59,405
 -   **いいね数: 981**
--   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 齋藤健
+-   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), [齋藤健](/rehacq_fan/people/齋藤健 "wikilink")

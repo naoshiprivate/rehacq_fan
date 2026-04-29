@@ -3,4 +3,4 @@
 -   公開日: 2026-04-15
 -   視聴数: 373,577
 -   **いいね数: 9,016**
--   出演者: 
+-   出演者: [井上咲楽](/rehacq_fan/people/井上咲楽 "wikilink"), [岩田明子](/rehacq_fan/people/岩田明子 "wikilink"), 池田陽花, [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [黒岩里奈](/rehacq_fan/people/黒岩里奈 "wikilink")

@@ -3,4 +3,4 @@
 -   公開日: 2025-12-12
 -   視聴数: 85,391
 -   **いいね数: 847**
--   出演者: 岡崎康平, 松尾英里子, [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
+-   出演者: 岡崎康平, [松尾英里子](/rehacq_fan/people/松尾英里子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")

@@ -3,4 +3,4 @@
 -   公開日: 2026-04-16
 -   視聴数: 199,921
 -   **いいね数: 2,416**
--   出演者: 
+-   出演者: [中島聡](/rehacq_fan/people/中島聡 "wikilink"), [田中渓](/rehacq_fan/people/田中渓 "wikilink")

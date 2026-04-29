@@ -3,4 +3,4 @@
 -   公開日: 2025-10-18
 -   視聴数: 419,183
 -   **いいね数: 3,410**
--   出演者: [加納裕三](/rehacq_fan/people/加納裕三 "wikilink"), 岡部典孝, [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [加納裕三](/rehacq_fan/people/加納裕三 "wikilink"), [岡部典孝](/rehacq_fan/people/岡部典孝 "wikilink"), [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
