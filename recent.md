@@ -1,31 +1,31 @@
 1.  [【市場の分岐点】“中央銀行ウィーク”で日銀・FRB・ECBの政策判断は？【嶋津洋樹&永濱利廣&森本智子&ReHacQ】](/rehacq_fan/ids/hMAppnWFN9g "wikilink")
     -   公開日: 2026-05-01
-    -   視聴数: 252
-    -   **いいね数: 18**
+    -   視聴数: 3,006
+    -   **いいね数: 85**
     -   出演者: 
     - [![](https://img.youtube.com/vi/hMAppnWFN9g/hqdefault.jpg)](https://www.youtube.com/watch?v=hMAppnWFN9g)
 1.  [【高橋弘樹vs元駐オーストラリア大使】日本外交はなぜ弱腰？中国やアメリカとどう向き合う？【ReHacQvs山上信吾】](/rehacq_fan/ids/v3KQs-g_co "wikilink")
     -   公開日: 2026-05-01
-    -   視聴数: 2,788
-    -   **いいね数: 187**
+    -   視聴数: 5,320
+    -   **いいね数: 383**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_v3KQs-g_co/hqdefault.jpg)](https://www.youtube.com/watch?v=_v3KQs-g_co)
 1.  [【生配信】衝撃の転職！Jリーガーから料理研究家へ...なぜ？恋愛病院の裏話【ReHacQ】](/rehacq_fan/ids/VMjXd1hymtc "wikilink")
     -   公開日: 2026-05-01
-    -   視聴数: 23,418
-    -   **いいね数: 1,296**
+    -   視聴数: 32,178
+    -   **いいね数: 1,636**
     -   出演者: 
     - [![](https://img.youtube.com/vi/VMjXd1hymtc/hqdefault.jpg)](https://www.youtube.com/watch?v=VMjXd1hymtc)
 1.  [【ReHacQ生配信】第5回「恋愛病院」観賞会！みんなで石丸伸二の恋を見守る会【箕輪厚介&今野忍&音喜多駿&西田亮介&斎藤幸平&横田一&高橋弘樹】](/rehacq_fan/ids/tWa8WZZzTdw "wikilink")
     -   公開日: 2026-04-30
-    -   視聴数: 262,591
-    -   **いいね数: 5,796**
+    -   視聴数: 269,891
+    -   **いいね数: 5,878**
     -   出演者: 
     - [![](https://img.youtube.com/vi/tWa8WZZzTdw/hqdefault.jpg)](https://www.youtube.com/watch?v=tWa8WZZzTdw)
 1.  [【ReHacQ生配信】最近の気になるニュースにガチ回答！【今野忍&西田亮介&高橋弘樹】](/rehacq_fan/ids/1Utq8_mrdk4 "wikilink")
     -   公開日: 2026-04-30
-    -   視聴数: 207,672
-    -   **いいね数: 2,981**
+    -   視聴数: 211,317
+    -   **いいね数: 3,018**
     -   出演者: 
     - [![](https://img.youtube.com/vi/1Utq8_mrdk4/hqdefault.jpg)](https://www.youtube.com/watch?v=1Utq8_mrdk4)
 
