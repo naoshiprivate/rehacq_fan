@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs認知症の予防】衝撃！70歳の認知症は30年前から始まっている！？アルツハイマー防ぐには？【ReHacQvsアメリカ天才医学者】](https://www.youtube.com/watch?v=ZsLG3B_waNI)
 [![](https://img.youtube.com/vi/ZsLG3B_waNI/sddefault.jpg)](https://www.youtube.com/watch?v=ZsLG3B_waNI)
 -   公開日: 2025-06-25
--   視聴数: 948,852
--   **いいね数: 15,506**
+-   視聴数: 955,665
+-   **いいね数: 15,566**
 -   出演者: 山田悠史, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
