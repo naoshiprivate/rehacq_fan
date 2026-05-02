@@ -1,31 +1,31 @@
 1.  [【高橋弘樹vs斎藤幸平】気候崩壊…生存のための計画経済…暗黒社会主義とは？【ReHacQ】](/rehacq_fan/ids/3TODD_WXbqA "wikilink")
     -   公開日: 2026-05-02
-    -   視聴数: 26,504
-    -   **いいね数: 793**
+    -   視聴数: 37,417
+    -   **いいね数: 918**
     -   出演者: 
     - [![](https://img.youtube.com/vi/3TODD_WXbqA/hqdefault.jpg)](https://www.youtube.com/watch?v=3TODD_WXbqA)
 1.  [【ReHacQvs糖化ストレス】人は血管から老いる！？認知症、腎症、動脈硬化…危険な病気のリスクを専門家が徹底解説！【八木雅之vs加藤シルビア】](/rehacq_fan/ids/ElqQ8OeuMCE "wikilink")
     -   公開日: 2026-05-02
-    -   視聴数: 5,980
-    -   **いいね数: 167**
+    -   視聴数: 7,572
+    -   **いいね数: 176**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ElqQ8OeuMCE/hqdefault.jpg)](https://www.youtube.com/watch?v=ElqQ8OeuMCE)
 1.  [【生配信】高知放送を退社しフリーアナウンサーへ！経営者としての顔…恋愛病院の裏話【ReHacQ】](/rehacq_fan/ids/NZRyheK5zqc "wikilink")
     -   公開日: 2026-05-02
-    -   視聴数: 45,855
-    -   **いいね数: 2,027**
+    -   視聴数: 51,344
+    -   **いいね数: 2,114**
     -   出演者: 
     - [![](https://img.youtube.com/vi/NZRyheK5zqc/hqdefault.jpg)](https://www.youtube.com/watch?v=NZRyheK5zqc)
 1.  [【ReHacQ生配信】視聴者の気になるニュースにガチ回答！【西田亮介&高橋弘樹】](/rehacq_fan/ids/xVxTSdynGPU "wikilink")
     -   公開日: 2026-05-01
-    -   視聴数: 158,101
-    -   **いいね数: 2,296**
+    -   視聴数: 159,942
+    -   **いいね数: 2,308**
     -   出演者: 
     - [![](https://img.youtube.com/vi/xVxTSdynGPU/hqdefault.jpg)](https://www.youtube.com/watch?v=xVxTSdynGPU)
 1.  [【市場の分岐点】“中央銀行ウィーク”で日銀・FRB・ECBの政策判断は？【嶋津洋樹&永濱利廣&森本智子&ReHacQ】](/rehacq_fan/ids/hMAppnWFN9g "wikilink")
     -   公開日: 2026-05-01
-    -   視聴数: 25,307
-    -   **いいね数: 311**
+    -   視聴数: 25,433
+    -   **いいね数: 315**
     -   出演者: 
     - [![](https://img.youtube.com/vi/hMAppnWFN9g/hqdefault.jpg)](https://www.youtube.com/watch?v=hMAppnWFN9g)
 
