@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】視聴者の気になるニュースにガチ回答！【西田亮介&高橋弘樹】](https://www.youtube.com/watch?v=xVxTSdynGPU)
 [![](https://img.youtube.com/vi/xVxTSdynGPU/sddefault.jpg)](https://www.youtube.com/watch?v=xVxTSdynGPU)
 -   公開日: 2026-05-01
--   視聴数: 94,240
--   **いいね数: 1,499**
+-   視聴数: 119,617
+-   **いいね数: 1,875**
 -   出演者: 
