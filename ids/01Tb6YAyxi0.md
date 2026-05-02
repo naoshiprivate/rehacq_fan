@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】京都府知事選挙 ネット討論会【高橋弘樹vs藤井伸生vsにしわき隆俊vs浜田聡】](https://www.youtube.com/watch?v=01Tb6YAyxi0)
 [![](https://img.youtube.com/vi/01Tb6YAyxi0/sddefault.jpg)](https://www.youtube.com/watch?v=01Tb6YAyxi0)
 -   公開日: 2026-04-02
--   視聴数: 242,369
--   **いいね数: 6,814**
+-   視聴数: 242,630
+-   **いいね数: 6,811**
 -   出演者: にしわき隆俊, 浜田聡, 藤井伸生, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
