@@ -237,8 +237,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【ひろゆきvs衆院選2024】ほぼ落選！音喜多駿が緊急参戦…なぜ負けた？石丸伸二VTR出演&緊急生電話【藤井サチvsさとうさおりvs高橋弘樹】](/rehacq_fan/ids/AmCukzP6Gwc "wikilink")
     -   公開日: 2024-10-27
-    -   視聴数: 1,451,829
-    -   **いいね数: 11,663**
+    -   視聴数: 1,455,502
+    -   **いいね数: 11,667**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也！投資ガチ議論】パックン！アメリカ金融教育とは？【長期投資】](/rehacq_fan/ids/DnaUPmvmoHU "wikilink")
     -   公開日: 2023-11-30
