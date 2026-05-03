@@ -1,6 +1,6 @@
 ### [【ReHacQvs腸活】死亡率の高い大腸ガンを理化学研究所の名誉教授が徹底解説！長寿の秘訣は腸活！？【須黒清華vs辨野義己】](https://www.youtube.com/watch?v=Cy-QWGoSMsQ)
 [![](https://img.youtube.com/vi/Cy-QWGoSMsQ/sddefault.jpg)](https://www.youtube.com/watch?v=Cy-QWGoSMsQ)
 -   公開日: 2026-04-03
--   視聴数: 34,689
--   **いいね数: 509**
+-   視聴数: 35,093
+-   **いいね数: 514**
 -   出演者: 辨野義己, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
