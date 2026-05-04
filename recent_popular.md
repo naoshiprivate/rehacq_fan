@@ -6,8 +6,8 @@
     - [![](https://img.youtube.com/vi/zAO5Jk4o_Cw/hqdefault.jpg)](https://www.youtube.com/watch?v=zAO5Jk4o_Cw)
 1.  [【高橋弘樹vs冤罪】証拠捏造...刑事司法の闇を衝撃告白！郵便不正事件の裏側とは？村木厚子【ReHacQ】](/rehacq_fan/ids/PTUa4PxfT7Q "wikilink")
     -   公開日: 2026-04-17
-    -   視聴数: 553,418
-    -   **いいね数: 8,534**
+    -   視聴数: 616,671
+    -   **いいね数: 9,163**
     -   出演者: 村木厚子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/PTUa4PxfT7Q/hqdefault.jpg)](https://www.youtube.com/watch?v=PTUa4PxfT7Q)
 1.  [【ひろゆきvs石丸伸二vs東京都政】東京の財政が激変！？衝撃ガチプレゼン！【ReHacQ今野忍vs西田亮介vs中室牧子vs高橋弘樹vs音喜多駿】](/rehacq_fan/ids/uQ9EoatHzBs "wikilink")
@@ -24,8 +24,8 @@
     - [![](https://img.youtube.com/vi/O0rdxFIsK-I/hqdefault.jpg)](https://www.youtube.com/watch?v=O0rdxFIsK-I)
 1.  [【ロシア・ウクライナ戦争】徹底解説…終わらない理由…プーチンが求める真の終戦条件は？イラン戦争でトランプが世界秩序を変えた!?台湾有事の可能性と日本の影響は…【ReHacQ高橋弘樹vs小泉悠】](/rehacq_fan/ids/hvXLADpNwqs "wikilink")
     -   公開日: 2026-04-04
-    -   視聴数: 997,617
-    -   **いいね数: 10,127**
+    -   視聴数: 1,038,640
+    -   **いいね数: 10,445**
     -   出演者: 小泉悠, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/hvXLADpNwqs/hqdefault.jpg)](https://www.youtube.com/watch?v=hvXLADpNwqs)
 
