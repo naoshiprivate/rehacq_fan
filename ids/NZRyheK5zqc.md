@@ -1,6 +1,6 @@
 ### [【生配信】高知放送を退社しフリーアナウンサーへ！経営者としての顔…恋愛病院の裏話【ReHacQ】](https://www.youtube.com/watch?v=NZRyheK5zqc)
 [![](https://img.youtube.com/vi/NZRyheK5zqc/sddefault.jpg)](https://www.youtube.com/watch?v=NZRyheK5zqc)
 -   公開日: 2026-05-02
--   視聴数: 95,727
--   **いいね数: 2,991**
+-   視聴数: 98,875
+-   **いいね数: 3,055**
 -   出演者: 
