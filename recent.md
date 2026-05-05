@@ -1,31 +1,31 @@
 1.  [【今野忍vs鈴木宗男】政治家人生最後の野望とは…？幻の引退会見で衝撃事実【ReHacQ高橋弘樹】](/rehacq_fan/ids/2aEmKTGOgoc "wikilink")
     -   公開日: 2026-05-05
-    -   視聴数: 25,293
-    -   **いいね数: 1,098**
+    -   視聴数: 35,643
+    -   **いいね数: 1,303**
     -   出演者: 
     - [![](https://img.youtube.com/vi/2aEmKTGOgoc/hqdefault.jpg)](https://www.youtube.com/watch?v=2aEmKTGOgoc)
 1.  [【高橋弘樹vs小田切ヒロ】今があるのは「毒親のおかげ…」なぜ？トップ美容家の人生を賭けた野望とは【ReHacQ】](/rehacq_fan/ids/XuaUXJX1sTU "wikilink")
     -   公開日: 2026-05-05
-    -   視聴数: 25,676
-    -   **いいね数: 1,537**
+    -   視聴数: 33,463
+    -   **いいね数: 1,743**
     -   出演者: 
     - [![](https://img.youtube.com/vi/XuaUXJX1sTU/hqdefault.jpg)](https://www.youtube.com/watch?v=XuaUXJX1sTU)
 1.  [【脱・税理士スガワラくん】人生100年時代！お金に困らないために...家族を守る知識徹底解説【ReHacQ&東留伽】](/rehacq_fan/ids/ALYgZFRnv7Y "wikilink")
     -   公開日: 2026-05-04
-    -   視聴数: 162,835
-    -   **いいね数: 2,157**
+    -   視聴数: 166,342
+    -   **いいね数: 2,182**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ALYgZFRnv7Y/hqdefault.jpg)](https://www.youtube.com/watch?v=ALYgZFRnv7Y)
 1.  [【高橋弘樹vs国民民主党】9兆円規模！？自動車ユーザーへの重税構造…自動車総連の元幹部が激白！【ReHacQvs浜口誠】](/rehacq_fan/ids/pm1QXCy5Elk "wikilink")
     -   公開日: 2026-05-04
-    -   視聴数: 52,528
-    -   **いいね数: 1,114**
+    -   視聴数: 53,168
+    -   **いいね数: 1,126**
     -   出演者: 
     - [![](https://img.youtube.com/vi/pm1QXCy5Elk/hqdefault.jpg)](https://www.youtube.com/watch?v=pm1QXCy5Elk)
 1.  [【ReHacQ生配信】4月振り返り！ゴールデンウィークまったり雑談生配信【高橋弘樹】](/rehacq_fan/ids/DrkbDRX3pZ8 "wikilink")
     -   公開日: 2026-05-03
-    -   視聴数: 164,169
-    -   **いいね数: 2,421**
+    -   視聴数: 164,975
+    -   **いいね数: 2,429**
     -   出演者: 
     - [![](https://img.youtube.com/vi/DrkbDRX3pZ8/hqdefault.jpg)](https://www.youtube.com/watch?v=DrkbDRX3pZ8)
 
