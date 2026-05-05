@@ -1,7 +1,7 @@
 1.  [【ReHacQ緊急生配信】激論！玉木雄一郎が本音で語る国民民主党の目指す未来【玉木雄一郎vs今野忍vs高橋弘樹】](/rehacq_fan/ids/zAO5Jk4o_Cw "wikilink")
     -   公開日: 2026-04-17
-    -   視聴数: 541,697
-    -   **いいね数: 7,570**
+    -   視聴数: 555,094
+    -   **いいね数: 7,627**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/zAO5Jk4o_Cw/hqdefault.jpg)](https://www.youtube.com/watch?v=zAO5Jk4o_Cw)
 1.  [【高橋弘樹vs冤罪】証拠捏造...刑事司法の闇を衝撃告白！郵便不正事件の裏側とは？村木厚子【ReHacQ】](/rehacq_fan/ids/PTUa4PxfT7Q "wikilink")
