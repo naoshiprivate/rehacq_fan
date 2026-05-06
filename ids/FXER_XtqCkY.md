@@ -3,4 +3,4 @@
 -   公開日: 2026-04-30
 -   視聴数: 4
 -   **いいね数: 65**
--   出演者: 
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
