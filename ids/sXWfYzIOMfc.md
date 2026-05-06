@@ -3,4 +3,4 @@
 -   公開日: 2026-05-03
 -   視聴数: 258,434
 -   **いいね数: 3,049**
--   出演者: 
+-   出演者: [国山ハセン](/rehacq_fan/people/国山ハセン "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

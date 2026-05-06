@@ -3,4 +3,4 @@
 -   公開日: 2026-05-01
 -   視聴数: 28,991
 -   **いいね数: 371**
--   出演者: 
+-   出演者: 嶋津洋樹, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")

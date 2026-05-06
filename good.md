@@ -104,7 +104,7 @@
     -   公開日: 2023-08-01
     -   視聴数: 2,511,654
     -   **いいね数: 27,390**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [鈴木宗男](/rehacq_fan/people/鈴木宗男 "wikilink")
 1.  [【Google賞金4.5億】睡眠革命！「朝型がいい」はウソ!?最新研究【柳沢正史】](/rehacq_fan/ids/IWqndzRAJnQ "wikilink")
     -   公開日: 2023-11-07
     -   視聴数: 2,229,594
@@ -274,7 +274,7 @@
     -   公開日: 2023-07-23
     -   視聴数: 2,240,271
     -   **いいね数: 19,976**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [鈴木宗男](/rehacq_fan/people/鈴木宗男 "wikilink")
 1.  [【石丸伸二vs吉村洋文】緊迫！石丸伸二が野党に激怒…今後のロードマップは？【高橋弘樹】](/rehacq_fan/ids/Lb9U4acxhs4 "wikilink")
     -   公開日: 2024-09-07
     -   視聴数: 1,064,402

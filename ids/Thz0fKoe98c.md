@@ -3,4 +3,4 @@
 -   公開日: 2023-07-23
 -   視聴数: 2,240,271
 -   **いいね数: 19,976**
--   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [鈴木宗男](/rehacq_fan/people/鈴木宗男 "wikilink")
