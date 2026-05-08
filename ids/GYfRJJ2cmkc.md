@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs経済学】市場原理の限界...独占と外部性とは？どう規制する？WBC放映権問題と電波オークション【ReHacQ】](https://www.youtube.com/watch?v=GYfRJJ2cmkc)
 [![](https://img.youtube.com/vi/GYfRJJ2cmkc/sddefault.jpg)](https://www.youtube.com/watch?v=GYfRJJ2cmkc)
 -   公開日: 2026-05-06
--   視聴数: 50,007
--   **いいね数: 690**
+-   視聴数: 52,390
+-   **いいね数: 714**
 -   出演者: 
