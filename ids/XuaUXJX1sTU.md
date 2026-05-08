@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs小田切ヒロ】今があるのは「毒親のおかげ…」なぜ？トップ美容家の人生を賭けた野望とは【ReHacQ】](https://www.youtube.com/watch?v=XuaUXJX1sTU)
 [![](https://img.youtube.com/vi/XuaUXJX1sTU/sddefault.jpg)](https://www.youtube.com/watch?v=XuaUXJX1sTU)
 -   公開日: 2026-05-05
--   視聴数: 131,808
--   **いいね数: 4,246**
+-   視聴数: 132,562
+-   **いいね数: 4,273**
 -   出演者: 小田切ヒロ, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
