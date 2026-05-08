@@ -36,13 +36,13 @@
 
 # 平均いいね数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 13,496 (12)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 11,905 (168)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 13,498 (12)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 11,906 (168)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 8,511 (25)
 1. [今野忍](/rehacq_fan/people/今野忍): 7,965 (38)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 7,607 (32)
 1. [西田亮介](/rehacq_fan/people/西田亮介): 7,514 (169)
-1. [東出昌大](/rehacq_fan/people/東出昌大): 6,780 (21)
+1. [東出昌大](/rehacq_fan/people/東出昌大): 6,781 (21)
 1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 6,750 (31)
 1. [ひろゆき](/rehacq_fan/people/ひろゆき): 6,530 (250)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 6,338 (10)
@@ -54,22 +54,22 @@
 1. [田中渓](/rehacq_fan/people/田中渓): 4,834 (11)
 1. [玉木雄一郎](/rehacq_fan/people/玉木雄一郎): 4,823 (64)
 1. [スーツ](/rehacq_fan/people/スーツ): 4,786 (20)
-1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 4,779 (903)
-1. [斎藤幸平](/rehacq_fan/people/斎藤幸平): 4,513 (45)
+1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 4,780 (903)
+1. [斎藤幸平](/rehacq_fan/people/斎藤幸平): 4,516 (45)
 
 
 # 平均視聴数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 687,939 (12)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 688,116 (12)
 1. [今野忍](/rehacq_fan/people/今野忍): 610,851 (38)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 577,381 (10)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 572,773 (168)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 572,796 (168)
 1. [西田亮介](/rehacq_fan/people/西田亮介): 567,902 (169)
-1. [音喜多駿](/rehacq_fan/people/音喜多駿): 519,438 (25)
+1. [音喜多駿](/rehacq_fan/people/音喜多駿): 519,441 (25)
 1. [ひろゆき](/rehacq_fan/people/ひろゆき): 512,916 (250)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 502,787 (32)
 1. [土田しん](/rehacq_fan/people/土田しん): 449,543 (12)
-1. [東出昌大](/rehacq_fan/people/東出昌大): 443,343 (21)
+1. [東出昌大](/rehacq_fan/people/東出昌大): 443,421 (21)
 1. [テスタ](/rehacq_fan/people/テスタ): 423,622 (12)
 1. [野村泰紀](/rehacq_fan/people/野村泰紀): 420,896 (29)
 1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 418,999 (31)
@@ -79,4 +79,4 @@
 1. [後藤達也](/rehacq_fan/people/後藤達也): 384,272 (158)
 1. [川上量生](/rehacq_fan/people/川上量生): 327,561 (33)
 1. [馬場伸幸](/rehacq_fan/people/馬場伸幸): 326,428 (11)
-1. [スーツ](/rehacq_fan/people/スーツ): 326,211 (20)
+1. [スーツ](/rehacq_fan/people/スーツ): 326,223 (20)
