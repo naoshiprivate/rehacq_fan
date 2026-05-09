@@ -1,3 +1,9 @@
+1.  [【坂上忍vsひろゆきvs箕輪厚介】炎上は恐れない！？芸歴56年…“ヒール”の流儀・生き様を語る！【ReHacQ】](/rehacq_fan/ids/FXER_XtqCkY "wikilink")
+    -   公開日: 2026-05-03
+    -   視聴数: 959,630
+    -   **いいね数: 11,795**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
+    - [![](https://img.youtube.com/vi/FXER_XtqCkY/hqdefault.jpg)](https://www.youtube.com/watch?v=FXER_XtqCkY)
 1.  [【高橋弘樹vs国山ハセン】赤字6,000万円!?渡米起業も組織崩壊で大失敗!?全部ぶっちゃけ赤裸々告白…【ReHacQ &須賀川拓】](/rehacq_fan/ids/6Wp5cCtzyEo "wikilink")
     -   公開日: 2026-04-26
     -   視聴数: 592,301
@@ -22,10 +28,4 @@
     -   **いいね数: 9,678**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [中室牧子](/rehacq_fan/people/中室牧子 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [石崎徹](/rehacq_fan/people/石崎徹 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/uQ9EoatHzBs/hqdefault.jpg)](https://www.youtube.com/watch?v=uQ9EoatHzBs)
-1.  [【小泉悠vs高橋弘樹】核保有の是非...日米同盟は破棄される!?台湾有事・イラン・ロシアウクライナ...混沌とした世界での安全保障とは？弱小国日本が具体的にすべきこと【ReHacQvs戦争】](/rehacq_fan/ids/O0rdxFIsK-I "wikilink")
-    -   公開日: 2026-04-11
-    -   視聴数: 638,062
-    -   **いいね数: 7,749**
-    -   出演者: 小泉悠, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/O0rdxFIsK-I/hqdefault.jpg)](https://www.youtube.com/watch?v=O0rdxFIsK-I)
 
