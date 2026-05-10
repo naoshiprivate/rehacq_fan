@@ -4,6 +4,12 @@
     -   **いいね数: 11,795**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
     - [![](https://img.youtube.com/vi/FXER_XtqCkY/hqdefault.jpg)](https://www.youtube.com/watch?v=FXER_XtqCkY)
+1.  [【高橋弘樹vs元駐オーストラリア大使】日本外交はなぜ弱腰？中国やアメリカとどう向き合う？【ReHacQvs山上信吾】](/rehacq_fan/ids/v3KQs-g_co "wikilink")
+    -   公開日: 2026-05-01
+    -   視聴数: 570,690
+    -   **いいね数: 13,658**
+    -   出演者: 山上信吾, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/_v3KQs-g_co/hqdefault.jpg)](https://www.youtube.com/watch?v=_v3KQs-g_co)
 1.  [【高橋弘樹vs国山ハセン】赤字6,000万円!?渡米起業も組織崩壊で大失敗!?全部ぶっちゃけ赤裸々告白…【ReHacQ &須賀川拓】](/rehacq_fan/ids/6Wp5cCtzyEo "wikilink")
     -   公開日: 2026-04-26
     -   視聴数: 592,301
@@ -22,10 +28,4 @@
     -   **いいね数: 9,163**
     -   出演者: 村木厚子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/PTUa4PxfT7Q/hqdefault.jpg)](https://www.youtube.com/watch?v=PTUa4PxfT7Q)
-1.  [【ひろゆきvs石丸伸二vs東京都政】東京の財政が激変！？衝撃ガチプレゼン！【ReHacQ今野忍vs西田亮介vs中室牧子vs高橋弘樹vs音喜多駿】](/rehacq_fan/ids/uQ9EoatHzBs "wikilink")
-    -   公開日: 2026-04-12
-    -   視聴数: 534,784
-    -   **いいね数: 9,678**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [中室牧子](/rehacq_fan/people/中室牧子 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [石崎徹](/rehacq_fan/people/石崎徹 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/uQ9EoatHzBs/hqdefault.jpg)](https://www.youtube.com/watch?v=uQ9EoatHzBs)
 
