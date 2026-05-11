@@ -1,31 +1,31 @@
 1.  [【ReHacQ生配信】最近の気になるニュースにガチ回答！【西田亮介&高橋弘樹】](/rehacq_fan/ids/7Uqs9MranzM "wikilink")
     -   公開日: 2026-05-11
-    -   視聴数: 28,545
-    -   **いいね数: 721**
+    -   視聴数: 39,363
+    -   **いいね数: 868**
     -   出演者: 
     - [![](https://img.youtube.com/vi/7Uqs9MranzM/hqdefault.jpg)](https://www.youtube.com/watch?v=7Uqs9MranzM)
 1.  [【アルコ＆ピースvs田中渓】ラジオで鍛えた話術！日常を笑いに変える芸風にたどり着くまで何があった？【ReHacQ】](/rehacq_fan/ids/aJIsneYM6tM "wikilink")
     -   公開日: 2026-05-11
-    -   視聴数: 16,539
-    -   **いいね数: 436**
+    -   視聴数: 19,424
+    -   **いいね数: 461**
     -   出演者: 
     - [![](https://img.youtube.com/vi/aJIsneYM6tM/hqdefault.jpg)](https://www.youtube.com/watch?v=aJIsneYM6tM)
 1.  [【高橋弘樹vs元駐オーストラリア大使②】日本外交の足枷とは？中国との歴史戦どう向き合う？【ReHacQvs山上信吾】](/rehacq_fan/ids/8yy7kUPOTuI "wikilink")
     -   公開日: 2026-05-10
-    -   視聴数: 261,691
-    -   **いいね数: 5,296**
+    -   視聴数: 266,914
+    -   **いいね数: 5,336**
     -   出演者: 
     - [![](https://img.youtube.com/vi/8yy7kUPOTuI/hqdefault.jpg)](https://www.youtube.com/watch?v=8yy7kUPOTuI)
 1.  [【ReHacQvs糖化ストレス】知らないと怖い糖化の真実！寿命を縮める食べ方と対策を専門家が徹底解説【八木雅之vs加藤シルビア】](/rehacq_fan/ids/O82EGtcM2PE "wikilink")
     -   公開日: 2026-05-10
-    -   視聴数: 67,360
-    -   **いいね数: 883**
+    -   視聴数: 68,615
+    -   **いいね数: 894**
     -   出演者: 
     - [![](https://img.youtube.com/vi/O82EGtcM2PE/hqdefault.jpg)](https://www.youtube.com/watch?v=O82EGtcM2PE)
 1.  [【ReHacQ生配信】第6回「恋愛病院」観賞会！みんなで石丸伸二の恋を見守る会・二次会！【石丸伸二＆箕輪厚介&今野忍&音喜多駿&西田亮介&高橋弘樹】](/rehacq_fan/ids/Ahbf07Feb9g "wikilink")
     -   公開日: 2026-05-10
-    -   視聴数: 262,304
-    -   **いいね数: 6,007**
+    -   視聴数: 265,274
+    -   **いいね数: 6,028**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Ahbf07Feb9g/hqdefault.jpg)](https://www.youtube.com/watch?v=Ahbf07Feb9g)
 
