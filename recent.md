@@ -1,31 +1,31 @@
 1.  [【高橋弘樹vs参政党】政治不信の3児の母が出馬！子どもの未来に感じた危機とは？【ReHacQvs吉川りな】](/rehacq_fan/ids/oAmh2nu7UnA "wikilink")
     -   公開日: 2026-05-13
-    -   視聴数: 7,393
-    -   **いいね数: 712**
+    -   視聴数: 11,724
+    -   **いいね数: 965**
     -   出演者: 
     - [![](https://img.youtube.com/vi/oAmh2nu7UnA/hqdefault.jpg)](https://www.youtube.com/watch?v=oAmh2nu7UnA)
 1.  [【恋愛病院 特別編】女子メンバー集結！2泊3日のリハビリ生活から4ヶ月以上経った今、何を語るのか…？【ReHacQ 藤井サチ】](/rehacq_fan/ids/PdyNGBe49C4 "wikilink")
     -   公開日: 2026-05-13
-    -   視聴数: 118,157
-    -   **いいね数: 3,640**
+    -   視聴数: 139,129
+    -   **いいね数: 3,873**
     -   出演者: 
     - [![](https://img.youtube.com/vi/PdyNGBe49C4/hqdefault.jpg)](https://www.youtube.com/watch?v=PdyNGBe49C4)
 1.  [【高橋弘樹vs国民民主党】地方を救う？高速道路500円乗り放題構想とは【ReHacQvs浜口誠】](/rehacq_fan/ids/qmnz4OdLkGw "wikilink")
     -   公開日: 2026-05-12
-    -   視聴数: 50,588
-    -   **いいね数: 897**
+    -   視聴数: 51,597
+    -   **いいね数: 907**
     -   出演者: 
     - [![](https://img.youtube.com/vi/qmnz4OdLkGw/hqdefault.jpg)](https://www.youtube.com/watch?v=qmnz4OdLkGw)
 1.  [【須賀川拓vs宗教学者】宗教が米国政治を支配...終わりの日に何が起きる？【ReHacQvs加藤喜之】](/rehacq_fan/ids/YheMoxJd7GA "wikilink")
     -   公開日: 2026-05-12
-    -   視聴数: 59,229
-    -   **いいね数: 1,258**
+    -   視聴数: 60,684
+    -   **いいね数: 1,289**
     -   出演者: 
     - [![](https://img.youtube.com/vi/YheMoxJd7GA/hqdefault.jpg)](https://www.youtube.com/watch?v=YheMoxJd7GA)
 1.  [【国民民主党】玉木代表 中東危機緊急対策を政府に提言 約3兆円規模の補正予算を編成を求める【ReHacQ記者会見 5月12日(火)】](/rehacq_fan/ids/KE0C-Fl_ifo "wikilink")
     -   公開日: 2026-05-12
-    -   視聴数: 8,287
-    -   **いいね数: 104**
+    -   視聴数: 8,358
+    -   **いいね数: 105**
     -   出演者: 
     - [![](https://img.youtube.com/vi/KE0C-Fl_ifo/hqdefault.jpg)](https://www.youtube.com/watch?v=KE0C-Fl_ifo)
 
