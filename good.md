@@ -77,8 +77,8 @@
     -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
-    -   視聴数: 1,323,422
-    -   **いいね数: 30,919**
+    -   視聴数: 1,324,452
+    -   **いいね数: 30,913**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】前兵庫県知事が緊急生出演...「パワハラ」「告発文書」「PC文書」の真相は？【ReHacQ】](/rehacq_fan/ids/jNGjngpf05U "wikilink")
     -   公開日: 2024-10-03
@@ -415,6 +415,11 @@
     -   視聴数: 1,034,629
     -   **いいね数: 16,695**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
+1.  [【恋愛病院 特別編】男子メンバー集結！2泊3日のリハビリ生活から4ヶ月以上経った今、何を語るのか…？【ReHacQ 高橋弘樹】](/rehacq_fan/ids/ukhxM0D0Itg "wikilink")
+    -   公開日: 2026-05-12
+    -   視聴数: 354,515
+    -   **いいね数: 16,601**
+    -   出演者: 
 1.  [【ひろゆきvs玉木雄一郎】５兆円！○○国債を！【野党の存在意義は？】](/rehacq_fan/ids/vJ2MS0ZjLdA "wikilink")
     -   公開日: 2023-05-23
     -   視聴数: 1,131,609
@@ -430,11 +435,6 @@
     -   視聴数: 1,073,418
     -   **いいね数: 16,516**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【恋愛病院 特別編】男子メンバー集結！2泊3日のリハビリ生活から4ヶ月以上経った今、何を語るのか…？【ReHacQ 高橋弘樹】](/rehacq_fan/ids/ukhxM0D0Itg "wikilink")
-    -   公開日: 2026-05-12
-    -   視聴数: 346,931
-    -   **いいね数: 16,408**
-    -   出演者: 
 1.  [【東出昌大vs石丸伸二】幸せとは？キャリア捨て…異質な道選んだ2人の幸福論！ちょいズレキャリア塾【ReHacQ高橋弘樹】](/rehacq_fan/ids/K-27iBFVXfo "wikilink")
     -   公開日: 2025-03-08
     -   視聴数: 926,651
