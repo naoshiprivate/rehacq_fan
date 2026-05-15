@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/VwX1nM9Uu7A/sddefault.jpg)](https://www.youtube.com/watch?v=VwX1nM9Uu7A)
 -   公開日: 2025-08-29
 -   視聴数: 16,717
--   **いいね数: 122**
+-   **いいね数: 121**
 -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")

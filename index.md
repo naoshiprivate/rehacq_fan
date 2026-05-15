@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【高橋弘樹vs不動産】悪質業者見極めるには…不動産業界の闇を暴く【ReHacQvs弥田有三vs夏原武】](/rehacq_fan/ids/x3UJf_0FhTc "wikilink")
+    -   公開日: 2026-05-15
+    -   視聴数: 3,060
+    -   **いいね数: 86**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/x3UJf_0FhTc/hqdefault.jpg)](https://www.youtube.com/watch?v=x3UJf_0FhTc)
 1.  [【為替介入の裏側】高市総理・米財務長官会談に見る日米の思惑とは？気になるソフトバンク決算は？【木野内栄治&永濱利廣＆東留伽&ReHacQ】](/rehacq_fan/ids/PK5ZHPEqFgA "wikilink")
     -   公開日: 2026-05-15
-    -   視聴数: 6,081
-    -   **いいね数: 190**
+    -   視聴数: 11,223
+    -   **いいね数: 230**
     -   出演者: 
     - [![](https://img.youtube.com/vi/PK5ZHPEqFgA/hqdefault.jpg)](https://www.youtube.com/watch?v=PK5ZHPEqFgA)
 1.  [【ひろゆきvs安野貴博vs地方議員】朝からガチ安野衝撃延長戦！地方の課題徹底議論【ReHacQ高橋弘樹vsチームみらい】](/rehacq_fan/ids/CvBnXN3wVtA "wikilink")
     -   公開日: 2026-05-15
-    -   視聴数: 29,931
-    -   **いいね数: 460**
+    -   視聴数: 32,240
+    -   **いいね数: 475**
     -   出演者: 
     - [![](https://img.youtube.com/vi/CvBnXN3wVtA/hqdefault.jpg)](https://www.youtube.com/watch?v=CvBnXN3wVtA)
 1.  [【日本外交vsロシア情報工作】侵略に“加担”!?ロシア資源をてこに日本外交揺さぶり…安全保障政策は岐路に【ReHacQ須賀川拓・田中浩一郎・東野篤子】](/rehacq_fan/ids/uNa8sXiNyWg "wikilink")
     -   公開日: 2026-05-14
-    -   視聴数: 43,100
-    -   **いいね数: 641**
+    -   視聴数: 43,737
+    -   **いいね数: 650**
     -   出演者: 
     - [![](https://img.youtube.com/vi/uNa8sXiNyWg/hqdefault.jpg)](https://www.youtube.com/watch?v=uNa8sXiNyWg)
 1.  [【今野忍vs鈴木宗男②】最後の野望…北方領土返還への道筋とは？政治への想い誰に託す？【ReHacQ高橋弘樹】](/rehacq_fan/ids/hjdLwN3ryCA "wikilink")
     -   公開日: 2026-05-14
-    -   視聴数: 50,257
-    -   **いいね数: 1,091**
+    -   視聴数: 51,762
+    -   **いいね数: 1,112**
     -   出演者: 
     - [![](https://img.youtube.com/vi/hjdLwN3ryCA/hqdefault.jpg)](https://www.youtube.com/watch?v=hjdLwN3ryCA)
-1.  [【高橋弘樹vs伝統芸能】能はなぜ“人ならざるもの”を演じるのか？神・幽霊・鬼…死者と再会の物語に迫る！【ReHacQvs武田文志】](/rehacq_fan/ids/vkOMLYVjsj8 "wikilink")
-    -   公開日: 2026-05-14
-    -   視聴数: 33,472
-    -   **いいね数: 722**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/vkOMLYVjsj8/hqdefault.jpg)](https://www.youtube.com/watch?v=vkOMLYVjsj8)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -76,7 +76,7 @@
 ## 時系列データ
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 50, 視聴数: 8,077,327, いいね数: 149,072
+-   動画数: 51, 視聴数: 8,092,148, いいね数: 149,286
 
 #### [2026年04月](videos/202604 "wikilink")
 
@@ -92,7 +92,7 @@
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 21,789,842, いいね数: 324,332
+-   動画数: 90, 視聴数: 21,789,926, いいね数: 324,330
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -104,15 +104,15 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 25,395,445, いいね数: 354,740
+-   動画数: 102, 視聴数: 25,396,559, いいね数: 354,765
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 17,886,653, いいね数: 280,599
+-   動画数: 87, 視聴数: 17,887,960, いいね数: 280,604
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 16,195,859, いいね数: 270,125
+-   動画数: 65, 視聴数: 16,203,248, いいね数: 270,163
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -164,7 +164,7 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 16,455,126, いいね数: 293,980
+-   動画数: 44, 視聴数: 16,457,511, いいね数: 293,981
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -231,4 +231,4 @@
 -   動画数: 14, 視聴数: 8,161,285, いいね数: 141,768
 
 ---
-2026-05-15 21:00
+2026-05-15 22:00
