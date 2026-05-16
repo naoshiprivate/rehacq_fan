@@ -6,8 +6,8 @@
     - [![](https://img.youtube.com/vi/tSHZ_VGY8jQ/hqdefault.jpg)](https://www.youtube.com/watch?v=tSHZ_VGY8jQ)
 1.  [【坂上忍vsひろゆきvs箕輪厚介】炎上は恐れない！？芸歴56年…“ヒール”の流儀・生き様を語る！【ReHacQ】](/rehacq_fan/ids/FXER_XtqCkY "wikilink")
     -   公開日: 2026-05-03
-    -   視聴数: 959,630
-    -   **いいね数: 11,795**
+    -   視聴数: 1,190,273
+    -   **いいね数: 14,026**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
     - [![](https://img.youtube.com/vi/FXER_XtqCkY/hqdefault.jpg)](https://www.youtube.com/watch?v=FXER_XtqCkY)
 1.  [【高橋弘樹vs元駐オーストラリア大使】日本外交はなぜ弱腰？中国やアメリカとどう向き合う？【ReHacQvs山上信吾】](/rehacq_fan/ids/v3KQs-g_co "wikilink")
