@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/l33fXJtn-rE/sddefault.jpg)](https://www.youtube.com/watch?v=l33fXJtn-rE)
 -   公開日: 2025-10-28
 -   視聴数: 69,532
--   **いいね数: 796**
+-   **いいね数: 795**
 -   出演者: [前嶋和弘](/rehacq_fan/people/前嶋和弘 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
