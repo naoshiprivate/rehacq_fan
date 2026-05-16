@@ -1,13 +1,13 @@
 1.  [【ReHacQ生配信】トランプ氏が訪中...米中首脳会談の結果は？日本にはどんな影響が？【前嶋和弘&阿古智子&高橋弘樹】](/rehacq_fan/ids/cw6Sw9anEuc "wikilink")
     -   公開日: 2026-05-16
-    -   視聴数: 8,842
-    -   **いいね数: 205**
+    -   視聴数: 14,642
+    -   **いいね数: 351**
     -   出演者: 
     - [![](https://img.youtube.com/vi/cw6Sw9anEuc/hqdefault.jpg)](https://www.youtube.com/watch?v=cw6Sw9anEuc)
 1.  [【勝倉千尋vs神谷明采】本気の恋愛相談！戻れるならやり直したい…後悔のワケ…今後のキャリア【ReHacQ】](/rehacq_fan/ids/KYfjPDs1BOw "wikilink")
     -   公開日: 2026-05-16
-    -   視聴数: 53,361
-    -   **いいね数: 2,774**
+    -   視聴数: 64,614
+    -   **いいね数: 3,123**
     -   出演者: 
     - [![](https://img.youtube.com/vi/KYfjPDs1BOw/hqdefault.jpg)](https://www.youtube.com/watch?v=KYfjPDs1BOw)
 1.  [【高橋弘樹vs兵庫の秘境】兵庫最果ての地で見つけた衝撃の景色とは【ReHacQ旅豊岡最終回】](/rehacq_fan/ids/8KPXSV89BY4 "wikilink")
@@ -18,14 +18,14 @@
     - [![](https://img.youtube.com/vi/8KPXSV89BY4/hqdefault.jpg)](https://www.youtube.com/watch?v=8KPXSV89BY4)
 1.  [【勝倉千尋vs千間泉実】小学校教員から市議会議員へ転身…なぜ？理想と現実のギャップ…それでも続けられたワケ【ReHacQ】](/rehacq_fan/ids/bEeEZZW1rA "wikilink")
     -   公開日: 2026-05-16
-    -   視聴数: 57,548
-    -   **いいね数: 1,821**
+    -   視聴数: 61,670
+    -   **いいね数: 1,886**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_bEeEZZW1rA/hqdefault.jpg)](https://www.youtube.com/watch?v=_bEeEZZW1rA)
 1.  [【ひろゆきvsニュース】最近の気になるニュースにガチ回答！【ReHacQ高橋弘樹vs西田亮介】](/rehacq_fan/ids/pA4KCoXaX_4 "wikilink")
     -   公開日: 2026-05-15
-    -   視聴数: 246,319
-    -   **いいね数: 3,140**
+    -   視聴数: 251,476
+    -   **いいね数: 3,169**
     -   出演者: 
     - [![](https://img.youtube.com/vi/pA4KCoXaX_4/hqdefault.jpg)](https://www.youtube.com/watch?v=pA4KCoXaX_4)
 
