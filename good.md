@@ -290,6 +290,11 @@
     -   視聴数: 410,849
     -   **いいね数: 18,884**
     -   出演者: 百田尚樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
+    -   公開日: 2023-11-01
+    -   視聴数: 1,086,935
+    -   **いいね数: 18,848**
+    -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
     -   公開日: 2025-11-21
     -   視聴数: 1,052,770
@@ -300,11 +305,6 @@
     -   視聴数: 1,147,809
     -   **いいね数: 18,832**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
-1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
-    -   公開日: 2023-11-01
-    -   視聴数: 1,085,701
-    -   **いいね数: 18,828**
-    -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs後藤達也】ReHacQスタート！緊急生配信【日経テレ東大学、超えるには？】](/rehacq_fan/ids/qUU0-PC6yyk "wikilink")
     -   公開日: 2023-03-05
     -   視聴数: 816,397
@@ -322,8 +322,8 @@
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【成田悠輔の推薦】ビジネスと量子力学！超弦理論の謎【野村泰紀と宇宙】](/rehacq_fan/ids/lp7PPFsnQAE "wikilink")
     -   公開日: 2023-07-14
-    -   視聴数: 1,718,927
-    -   **いいね数: 18,546**
+    -   視聴数: 1,722,854
+    -   **いいね数: 18,584**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](/rehacq_fan/ids/KihRlwlSPCI "wikilink")
     -   公開日: 2025-07-12
