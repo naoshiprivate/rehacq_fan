@@ -1,6 +1,6 @@
 ### [【恋愛病院の裏側】幼少期の経験…なりたい自分との葛藤…今後の目標とは…？【ナレソメ勝倉vs平川愛里菜】](https://www.youtube.com/watch?v=iTC8fatqHL0)
 [![](https://img.youtube.com/vi/iTC8fatqHL0/sddefault.jpg)](https://www.youtube.com/watch?v=iTC8fatqHL0)
 -   公開日: 2026-05-17
--   視聴数: 80,259
--   **いいね数: 1,336**
+-   視聴数: 81,400
+-   **いいね数: 1,345**
 -   出演者: 
