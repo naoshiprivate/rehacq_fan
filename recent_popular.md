@@ -24,8 +24,8 @@
     - [![](https://img.youtube.com/vi/_v3KQs-g_co/hqdefault.jpg)](https://www.youtube.com/watch?v=_v3KQs-g_co)
 1.  [【高橋弘樹vs国山ハセン】赤字6,000万円!?渡米起業も組織崩壊で大失敗!?全部ぶっちゃけ赤裸々告白…【ReHacQ &須賀川拓】](/rehacq_fan/ids/6Wp5cCtzyEo "wikilink")
     -   公開日: 2026-04-26
-    -   視聴数: 629,073
-    -   **いいね数: 6,768**
+    -   視聴数: 650,102
+    -   **いいね数: 6,879**
     -   出演者: [国山ハセン](/rehacq_fan/people/国山ハセン "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/6Wp5cCtzyEo/hqdefault.jpg)](https://www.youtube.com/watch?v=6Wp5cCtzyEo)
 
