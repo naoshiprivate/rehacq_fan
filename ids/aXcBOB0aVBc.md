@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs参政党】深夜2時まで質問準備…3児の母・参政党副代表が語る国会議員のリアルと「子どもの未来」への危機感【ReHacQvs吉川りな】](https://www.youtube.com/watch?v=aXcBOB0aVBc)
 [![](https://img.youtube.com/vi/aXcBOB0aVBc/sddefault.jpg)](https://www.youtube.com/watch?v=aXcBOB0aVBc)
 -   公開日: 2026-05-18
--   視聴数: 82,126
--   **いいね数: 3,857**
+-   視聴数: 86,047
+-   **いいね数: 3,972**
 -   出演者: 
