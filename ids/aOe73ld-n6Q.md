@@ -1,6 +1,6 @@
 ### [【須賀川拓vs宗教学者】資源や覇権の争いが激化...神聖化されるトランプとは？【ReHacQvs加藤喜之】](https://www.youtube.com/watch?v=aOe73ld-n6Q)
 [![](https://img.youtube.com/vi/aOe73ld-n6Q/sddefault.jpg)](https://www.youtube.com/watch?v=aOe73ld-n6Q)
 -   公開日: 2026-05-19
--   視聴数: 34,497
--   **いいね数: 903**
+-   視聴数: 35,732
+-   **いいね数: 919**
 -   出演者: 
