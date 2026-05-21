@@ -1,6 +1,6 @@
 ### [【日本維新の会】副首都構想 藤田共同代表「大阪は副首都に逸早くなった方がいい」【ReHacQ記者会見 5月20日(水)】](https://www.youtube.com/watch?v=7txGPhWpzaE)
 [![](https://img.youtube.com/vi/7txGPhWpzaE/sddefault.jpg)](https://www.youtube.com/watch?v=7txGPhWpzaE)
 -   公開日: 2026-05-20
--   視聴数: 7,896
--   **いいね数: 0**
+-   視聴数: 8,535
+-   **いいね数: 204**
 -   出演者: 
