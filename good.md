@@ -232,8 +232,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs 斎藤知事に激怒の議員】兵庫県告発文書！百条委員会の委員長の本音【ReHacQ】](/rehacq_fan/ids/uY0Jmw4wR7Y "wikilink")
     -   公開日: 2024-10-04
-    -   視聴数: 1,710,665
-    -   **いいね数: 21,165**
+    -   視聴数: 1,710,994
+    -   **いいね数: 21,164**
     -   出演者: 奥谷謙一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs徳川家】徳川慶喜・明治天皇の玄孫が語る…家宝の歴史的価値、現在のお金事情とは？【ReHacQ高橋弘樹vs山岸美喜vs竹田恒泰】](/rehacq_fan/ids/GBWLEsCykyo "wikilink")
     -   公開日: 2026-01-25
@@ -277,8 +277,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [鈴木宗男](/rehacq_fan/people/鈴木宗男 "wikilink")
 1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
     -   公開日: 2025-08-09
-    -   視聴数: 1,459,152
-    -   **いいね数: 19,287**
+    -   視聴数: 1,475,763
+    -   **いいね数: 19,383**
     -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】緊迫！石丸伸二が野党に激怒…今後のロードマップは？【高橋弘樹】](/rehacq_fan/ids/Lb9U4acxhs4 "wikilink")
     -   公開日: 2024-09-07
