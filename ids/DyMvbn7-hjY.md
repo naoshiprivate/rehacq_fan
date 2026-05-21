@@ -1,6 +1,6 @@
-### [【高橋弘樹vs100億企業】「3年で辞める」就活で衝撃発言！？里子4人に囲まれ…異色の経営者が見る日本の現在地【ReHacQvs北川共史】](https://www.youtube.com/watch?v=DyMvbn7-hjY)
+### [【高橋弘樹vs博報堂の最年少役員】なぜ？42歳で大出世のワケ【ReHacQキャリア塾】](https://www.youtube.com/watch?v=DyMvbn7-hjY)
 [![](https://img.youtube.com/vi/DyMvbn7-hjY/sddefault.jpg)](https://www.youtube.com/watch?v=DyMvbn7-hjY)
 -   公開日: 2026-05-20
--   視聴数: 24,179
--   **いいね数: 240**
+-   視聴数: 27,957
+-   **いいね数: 293**
 -   出演者: 
