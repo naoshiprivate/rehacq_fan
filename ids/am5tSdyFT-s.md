@@ -1,0 +1,6 @@
+### [【辺野古沖転覆・核心へ】証言「船が消えた」辺野古住民のリアルと葛藤【ReHacQ高橋弘樹・須賀川拓・今野忍】](https://www.youtube.com/watch?v=am5tSdyFT-s)
+[![](https://img.youtube.com/vi/am5tSdyFT-s/sddefault.jpg)](https://www.youtube.com/watch?v=am5tSdyFT-s)
+-   公開日: 2026-05-23
+-   視聴数: 33,165
+-   **いいね数: 1,800**
+-   出演者: 
