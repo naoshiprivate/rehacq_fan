@@ -1,6 +1,6 @@
 ### [【動ける人が勝つ】日本的経営の終焉で会社は卒業するものに？元GS流“なんとかなる思考”とは？【河村真木子&山口真由&ReHacQ】](https://www.youtube.com/watch?v=JkkMWn-lckA)
 [![](https://img.youtube.com/vi/JkkMWn-lckA/sddefault.jpg)](https://www.youtube.com/watch?v=JkkMWn-lckA)
 -   公開日: 2026-03-27
--   視聴数: 287,471
--   **いいね数: 5,744**
+-   視聴数: 294,926
+-   **いいね数: 5,899**
 -   出演者: 山口真由, [河村真木子](/rehacq_fan/people/河村真木子 "wikilink")
