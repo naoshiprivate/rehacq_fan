@@ -3,4 +3,4 @@
 -   公開日: 2026-05-16
 -   視聴数: 165,719
 -   **いいね数: 4,731**
--   出演者: 
+-   出演者: [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), [神谷明采](/rehacq_fan/people/神谷明采 "wikilink")

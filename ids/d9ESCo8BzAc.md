@@ -3,4 +3,4 @@
 -   公開日: 2026-03-24
 -   視聴数: 415,690
 -   **いいね数: 5,486**
--   出演者: 山口真由, [河村真木子](/rehacq_fan/people/河村真木子 "wikilink")
+-   出演者: [山口真由](/rehacq_fan/people/山口真由 "wikilink"), [河村真木子](/rehacq_fan/people/河村真木子 "wikilink")

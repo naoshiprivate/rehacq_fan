@@ -3,4 +3,4 @@
 -   公開日: 2023-04-29
 -   視聴数: 195,255
 -   **いいね数: 3,424**
--   出演者: 小島武仁, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [小島武仁](/rehacq_fan/people/小島武仁 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

@@ -3,4 +3,4 @@
 -   公開日: 2026-05-16
 -   視聴数: 222,707
 -   **いいね数: 2,842**
--   出演者: 
+-   出演者: [前嶋和弘](/rehacq_fan/people/前嶋和弘 "wikilink"), [阿古智子](/rehacq_fan/people/阿古智子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

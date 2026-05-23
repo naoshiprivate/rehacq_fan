@@ -3,4 +3,4 @@
 -   公開日: 2026-02-18
 -   視聴数: 88,444
 -   **いいね数: 897**
--   出演者: 周来友, 阿古智子, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
+-   出演者: 周来友, [阿古智子](/rehacq_fan/people/阿古智子 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")

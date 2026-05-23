@@ -3,4 +3,4 @@
 -   公開日: 2026-05-20
 -   視聴数: 116,703
 -   **いいね数: 1,389**
--   出演者: 
+-   出演者: 今井優里, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

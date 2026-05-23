@@ -3,4 +3,4 @@
 -   公開日: 2024-11-20
 -   視聴数: 214,113
 -   **いいね数: 3,169**
--   出演者: 東野篤子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [東野篤子](/rehacq_fan/people/東野篤子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

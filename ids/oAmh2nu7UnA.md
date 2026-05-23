@@ -3,4 +3,4 @@
 -   公開日: 2026-05-13
 -   視聴数: 127,128
 -   **いいね数: 5,784**
--   出演者: 
+-   出演者: [吉川りな](/rehacq_fan/people/吉川りな "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

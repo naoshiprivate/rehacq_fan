@@ -3,4 +3,4 @@
 -   公開日: 2026-05-11
 -   視聴数: 228,142
 -   **いいね数: 2,389**
--   出演者: 
+-   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

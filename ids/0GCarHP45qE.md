@@ -3,4 +3,4 @@
 -   公開日: 2026-05-08
 -   視聴数: 312,774
 -   **いいね数: 2,245**
--   出演者: 
+-   出演者: [夏原武](/rehacq_fan/people/夏原武 "wikilink"), [弥田有三](/rehacq_fan/people/弥田有三 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

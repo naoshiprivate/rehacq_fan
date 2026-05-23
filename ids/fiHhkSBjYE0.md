@@ -3,4 +3,4 @@
 -   公開日: 2025-12-01
 -   視聴数: 76,326
 -   **いいね数: 782**
--   出演者: 莫邦富, 阿古智子, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
+-   出演者: 莫邦富, [阿古智子](/rehacq_fan/people/阿古智子 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")

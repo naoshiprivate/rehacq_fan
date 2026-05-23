@@ -3,4 +3,4 @@
 -   公開日: 2025-12-31
 -   視聴数: 18,413
 -   **いいね数: 262**
--   出演者: 柳澤寿男, 神谷明采, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
+-   出演者: 柳澤寿男, [神谷明采](/rehacq_fan/people/神谷明采 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")

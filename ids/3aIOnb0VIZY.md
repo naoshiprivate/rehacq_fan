@@ -3,4 +3,4 @@
 -   公開日: 2025-09-27
 -   視聴数: 69,377
 -   **いいね数: 825**
--   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元島新, 千間泉実, 鳴海加絵
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元島新, [千間泉実](/rehacq_fan/people/千間泉実 "wikilink"), 鳴海加絵
