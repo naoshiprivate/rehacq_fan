@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【コムドットやまとvsベテランちvs高田ふーみん】学歴社会の功罪...生きづらさを生むワケとは？AI時代の義務教育と大学の研究費について【ReHacQ】](/rehacq_fan/ids/RKjEA5RWNfc "wikilink")
+    -   公開日: 2026-05-24
+    -   視聴数: 2,881
+    -   **いいね数: 96**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/RKjEA5RWNfc/hqdefault.jpg)](https://www.youtube.com/watch?v=RKjEA5RWNfc)
 1.  [【辺野古沖転覆・核心へ】証言「船が消えた」辺野古住民のリアルと葛藤【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/am5tSdyFT-s "wikilink")
     -   公開日: 2026-05-23
-    -   視聴数: 213,432
-    -   **いいね数: 5,630**
+    -   視聴数: 264,439
+    -   **いいね数: 7,544**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/am5tSdyFT-s/hqdefault.jpg)](https://www.youtube.com/watch?v=am5tSdyFT-s)
 1.  [【高橋弘樹vs常見陽平】テレ朝「モーニングショー」で玉川徹氏が発言制止...なぜ？テレビ朝日は何を守りたいのか？【ReHacQ】](/rehacq_fan/ids/Vie-86lFZ0A "wikilink")
     -   公開日: 2026-05-23
-    -   視聴数: 140,737
-    -   **いいね数: 1,916**
+    -   視聴数: 187,155
+    -   **いいね数: 2,417**
     -   出演者: 常見陽平, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/Vie-86lFZ0A/hqdefault.jpg)](https://www.youtube.com/watch?v=Vie-86lFZ0A)
 1.  [【高橋弘樹vs歌舞伎】映画『国宝』の裏側…歌舞伎はなぜ400年続いたのか？出雲阿国、坂東玉三郎、市川 團十郎…【ReHacQ R大学】](/rehacq_fan/ids/obmQ_H44uL4 "wikilink")
     -   公開日: 2026-05-23
-    -   視聴数: 26,677
-    -   **いいね数: 526**
+    -   視聴数: 29,820
+    -   **いいね数: 597**
     -   出演者: 児玉竜一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/obmQ_H44uL4/hqdefault.jpg)](https://www.youtube.com/watch?v=obmQ_H44uL4)
 1.  [【G7 vs 高市JAPAN】株高シナリオ始動？市場が警戒する日本経済の火種は？【永濱利廣&馬渕磨理子&森本智子&ReHacQ】](/rehacq_fan/ids/vEkWgPPSkT8 "wikilink")
     -   公開日: 2026-05-22
-    -   視聴数: 75,371
-    -   **いいね数: 865**
+    -   視聴数: 77,978
+    -   **いいね数: 894**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [馬渕磨理子](/rehacq_fan/people/馬渕磨理子 "wikilink")
     - [![](https://img.youtube.com/vi/vEkWgPPSkT8/hqdefault.jpg)](https://www.youtube.com/watch?v=vEkWgPPSkT8)
-1.  [【高橋弘樹vs皮膚科学】かゆみの正体とは...最新研究！肌の老化を防ぐ方法【ReHacQvs椛島健治】](/rehacq_fan/ids/IE_6gdR1IwU "wikilink")
-    -   公開日: 2026-05-22
-    -   視聴数: 105,247
-    -   **いいね数: 1,991**
-    -   出演者: 椛島健治, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/IE_6gdR1IwU/hqdefault.jpg)](https://www.youtube.com/watch?v=IE_6gdR1IwU)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -76,19 +76,19 @@
 ## 時系列データ
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 85, 視聴数: 14,534,942, いいね数: 258,109
+-   動画数: 86, 視聴数: 14,675,722, いいね数: 261,250
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 21,864,370, いいね数: 352,236
+-   動画数: 96, 視聴数: 21,871,168, いいね数: 352,259
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 19,103,823, いいね数: 262,677
+-   動画数: 89, 視聴数: 19,174,116, いいね数: 263,272
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 24,319,936, いいね数: 356,414
+-   動画数: 98, 視聴数: 24,323,432, いいね数: 356,422
 
 #### [2026年01月](videos/202601 "wikilink")
 
@@ -100,23 +100,23 @@
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 13,103,580, いいね数: 180,978
+-   動画数: 79, 視聴数: 13,103,603, いいね数: 180,978
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 25,480,881, いいね数: 355,620
+-   動画数: 102, 視聴数: 25,483,169, いいね数: 355,648
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 17,995,368, いいね数: 281,387
+-   動画数: 87, 視聴数: 17,995,403, いいね数: 281,387
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 16,296,642, いいね数: 270,546
+-   動画数: 65, 視聴数: 16,296,987, いいね数: 270,544
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 22,789,031, いいね数: 381,205
+-   動画数: 76, 視聴数: 22,789,112, いいね数: 381,204
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -152,7 +152,7 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,313,385, いいね数: 344,348
+-   動画数: 72, 視聴数: 23,313,598, いいね数: 344,351
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -231,4 +231,4 @@
 -   動画数: 14, 視聴数: 8,174,377, いいね数: 141,849
 
 ---
-2026-05-24 07:00
+2026-05-24 12:00
