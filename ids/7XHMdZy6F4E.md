@@ -1,6 +1,6 @@
 ### [【国民民主党】玉木代表 連立与党入りは...!?「ガリレオ・ガリレイのような気持ちかな」【ReHacQ記者会見 5月26日(火)】](https://www.youtube.com/watch?v=7XHMdZy6F4E)
 [![](https://img.youtube.com/vi/7XHMdZy6F4E/sddefault.jpg)](https://www.youtube.com/watch?v=7XHMdZy6F4E)
 -   公開日: 2026-05-26
--   視聴数: 8,407
--   **いいね数: 150**
+-   視聴数: 9,290
+-   **いいね数: 157**
 -   出演者: 
