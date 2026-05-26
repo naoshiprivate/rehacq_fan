@@ -1,3 +1,9 @@
+1.  [【辺野古沖転覆・核心へ】証言「船が消えた」辺野古住民のリアルと葛藤【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/am5tSdyFT-s "wikilink")
+    -   公開日: 2026-05-23
+    -   視聴数: 504,651
+    -   **いいね数: 13,269**
+    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/am5tSdyFT-s/hqdefault.jpg)](https://www.youtube.com/watch?v=am5tSdyFT-s)
 1.  [【坂上忍vsひろゆきvs箕輪厚介】動物に年間１億円！？保護犬保護猫の闇…芸能活動引退後を語る【ReHacQ】](/rehacq_fan/ids/E4WP-h_fhUc "wikilink")
     -   公開日: 2026-05-10
     -   視聴数: 1,126,067
@@ -22,10 +28,4 @@
     -   **いいね数: 17,316**
     -   出演者: 山上信吾, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/_v3KQs-g_co/hqdefault.jpg)](https://www.youtube.com/watch?v=_v3KQs-g_co)
-1.  [【高橋弘樹vs国山ハセン】赤字6,000万円!?渡米起業も組織崩壊で大失敗!?全部ぶっちゃけ赤裸々告白…【ReHacQ &須賀川拓】](/rehacq_fan/ids/6Wp5cCtzyEo "wikilink")
-    -   公開日: 2026-04-26
-    -   視聴数: 650,102
-    -   **いいね数: 6,879**
-    -   出演者: [国山ハセン](/rehacq_fan/people/国山ハセン "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/6Wp5cCtzyEo/hqdefault.jpg)](https://www.youtube.com/watch?v=6Wp5cCtzyEo)
 
