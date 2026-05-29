@@ -322,8 +322,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](/rehacq_fan/ids/LyfcqUBmBlc "wikilink")
     -   公開日: 2024-06-15
-    -   視聴数: 1,242,642
-    -   **いいね数: 15,870**
+    -   視聴数: 1,242,940
+    -   **いいね数: 15,872**
     -   出演者: 暇空茜, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【衆院選2026】あつまれ！落選の森...今後どうする？まったり緊急生配信【中谷一馬vs川上りゅうせいvs吉田あやvs今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/HEsGRg73oiw "wikilink")
     -   公開日: 2026-02-09
@@ -492,7 +492,7 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【緊急生配信】石丸市長…なぜ市長辞めるんですか？安芸高田市【石丸伸二vs西田亮介vs高橋弘樹】](/rehacq_fan/ids/FPkSBwYeFs "wikilink")
     -   公開日: 2024-05-13
-    -   視聴数: 1,074,013
+    -   視聴数: 1,074,337
     -   **いいね数: 16,528**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](/rehacq_fan/ids/0mVSxF0JYRs "wikilink")
