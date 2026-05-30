@@ -1,8 +1,8 @@
 # TETSUYAの出演動画
 
 - 出演本数: 6
-- 平均視聴数: 173,316
-- 平均いいね数: 2,053
+- 平均視聴数: 173,337
+- 平均いいね数: 2,052
 - [エンゲージメント](/rehacq_fan/engagement) (いいね/視聴数x100): 1.18
 
 
@@ -10,13 +10,13 @@
 
 1.  [【ひろゆきvsアフリカ旅】棺桶工場で衝撃！コーラの棺桶？EXILEが絶句【ReHacQ旅】](/rehacq_fan/ids/WsXY3apN3BM "wikilink")
     -   公開日: 2025-02-08
-    -   視聴数: 76,646
-    -   **いいね数: 1,093**
+    -   視聴数: 76,704
+    -   **いいね数: 1,092**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
     - [![](https://img.youtube.com/vi/WsXY3apN3BM/hqdefault.jpg)](https://www.youtube.com/watch?v=WsXY3apN3BM)
 1.  [【ひろゆき×EXILE】アフリカガーナの医療最前線！ワクチンどう届ける【ドローン＆謎の車】](/rehacq_fan/ids/JQaEQQSnGT8 "wikilink")
     -   公開日: 2025-02-01
-    -   視聴数: 160,523
+    -   視聴数: 160,592
     -   **いいね数: 1,161**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
     - [![](https://img.youtube.com/vi/JQaEQQSnGT8/hqdefault.jpg)](https://www.youtube.com/watch?v=JQaEQQSnGT8)
