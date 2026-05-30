@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs元朝日新聞主筆】失われた40年の理由激白！アメリカと中国の狭間で日本がすべきこと【ReHacQvs船橋洋一】](https://www.youtube.com/watch?v=nfsVbkXaxic)
 [![](https://img.youtube.com/vi/nfsVbkXaxic/sddefault.jpg)](https://www.youtube.com/watch?v=nfsVbkXaxic)
 -   公開日: 2026-05-07
--   視聴数: 68,011
--   **いいね数: 1,027**
+-   視聴数: 69,193
+-   **いいね数: 1,043**
 -   出演者: 船橋洋一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
