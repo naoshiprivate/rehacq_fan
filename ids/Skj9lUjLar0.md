@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】視聴者の気になるニュースにガチ回答！【ひろゆき&斎藤幸平&高橋弘樹】](https://www.youtube.com/watch?v=Skj9lUjLar0)
 [![](https://img.youtube.com/vi/Skj9lUjLar0/sddefault.jpg)](https://www.youtube.com/watch?v=Skj9lUjLar0)
 -   公開日: 2026-05-29
--   視聴数: 270,604
--   **いいね数: 3,824**
+-   視聴数: 276,034
+-   **いいね数: 3,872**
 -   出演者: 
