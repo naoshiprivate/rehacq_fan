@@ -1,6 +1,6 @@
 ### [【新番組SaHacQ】大激論！左派とリベラルの違いは？欲望で駆動する世界【ReHacQvs斎藤幸平vs箕輪厚介】](https://www.youtube.com/watch?v=mE_a49yxMY8)
 [![](https://img.youtube.com/vi/mE_a49yxMY8/sddefault.jpg)](https://www.youtube.com/watch?v=mE_a49yxMY8)
 -   公開日: 2026-05-31
--   視聴数: 98,540
--   **いいね数: 2,725**
+-   視聴数: 140,632
+-   **いいね数: 3,218**
 -   出演者: 
