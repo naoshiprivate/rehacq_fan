@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/3RbmQA6W_rM/sddefault.jpg)](https://www.youtube.com/watch?v=3RbmQA6W_rM)
 -   公開日: 2024-10-20
 -   視聴数: 24,158
--   **いいね数: 255**
+-   **いいね数: 254**
 -   出演者: 
