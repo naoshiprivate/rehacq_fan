@@ -360,16 +360,16 @@
     -   視聴数: 1,194,439
     -   **いいね数: 20,320**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
+    -   公開日: 2026-02-13
+    -   視聴数: 1,193,069
+    -   **いいね数: 12,155**
+    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsボビー・オロゴン】兄弟34人！父のスパルタ教育とは？【ガチの一夫多妻制】](/rehacq_fan/ids/hvJ0lBxFILU "wikilink")
     -   公開日: 2024-08-04
     -   視聴数: 1,177,974
     -   **いいね数: 17,065**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
-1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
-    -   公開日: 2026-02-13
-    -   視聴数: 1,174,687
-    -   **いいね数: 12,115**
-    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](/rehacq_fan/ids/2XMbvuYkbeQ "wikilink")
     -   公開日: 2023-12-28
     -   視聴数: 1,165,827
@@ -382,8 +382,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](/rehacq_fan/ids/JxdSFPP3_Bg "wikilink")
     -   公開日: 2025-05-13
-    -   視聴数: 1,155,854
-    -   **いいね数: 7,850**
+    -   視聴数: 1,159,836
+    -   **いいね数: 7,878**
     -   出演者: 渡部雅浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs国民民主党】衝撃的!日本倍増計画とは?【玉木雄一郎の野望 episode2】](/rehacq_fan/ids/EYKExpig3-4 "wikilink")
     -   公開日: 2023-05-28
