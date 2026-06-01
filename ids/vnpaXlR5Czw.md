@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs橋本吉史】なぜラジオは100年続くのか？YouTube時代でも消えない理由とは？【ReHacQ R大学】](https://www.youtube.com/watch?v=vnpaXlR5Czw)
 [![](https://img.youtube.com/vi/vnpaXlR5Czw/sddefault.jpg)](https://www.youtube.com/watch?v=vnpaXlR5Czw)
 -   公開日: 2026-06-01
--   視聴数: 4,196
--   **いいね数: 191**
+-   視聴数: 7,099
+-   **いいね数: 231**
 -   出演者: 
