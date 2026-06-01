@@ -1,6 +1,6 @@
 ### [【呉座勇一vs高橋弘樹】徳川家康のウソ！知られざる中世の関東とは？【ReHacQ】](https://www.youtube.com/watch?v=lZALQ8kz4ZU)
 [![](https://img.youtube.com/vi/lZALQ8kz4ZU/sddefault.jpg)](https://www.youtube.com/watch?v=lZALQ8kz4ZU)
 -   公開日: 2026-05-31
--   視聴数: 140,238
--   **いいね数: 2,362**
+-   視聴数: 159,906
+-   **いいね数: 2,594**
 -   出演者: 
