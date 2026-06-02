@@ -1,6 +1,6 @@
 ### [【石丸伸二vs兵庫の秘境】浦島太郎は逆ナンされた!?かに道楽の秘密【ReHacQ旅in豊岡 高橋弘樹】](https://www.youtube.com/watch?v=yOtd_KnzPFo)
 [![](https://img.youtube.com/vi/yOtd_KnzPFo/sddefault.jpg)](https://www.youtube.com/watch?v=yOtd_KnzPFo)
 -   公開日: 2026-05-09
--   視聴数: 78,794
--   **いいね数: 3,263**
+-   視聴数: 82,350
+-   **いいね数: 3,321**
 -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
