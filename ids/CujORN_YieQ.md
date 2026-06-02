@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs高橋陽介】関ヶ原の戦い•••通説が崩壊する？ 『シン・関ヶ原』が暴く歴史の大嘘とは？【ReHacQ R大学】](https://www.youtube.com/watch?v=CujORN_YieQ)
 [![](https://img.youtube.com/vi/CujORN_YieQ/sddefault.jpg)](https://www.youtube.com/watch?v=CujORN_YieQ)
 -   公開日: 2026-05-08
--   視聴数: 148,664
--   **いいね数: 1,270**
+-   視聴数: 161,341
+-   **いいね数: 1,397**
 -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 高橋陽介
