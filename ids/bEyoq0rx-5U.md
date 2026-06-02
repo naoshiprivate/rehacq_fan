@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/bEyoq0rx-5U/sddefault.jpg)](https://www.youtube.com/watch?v=bEyoq0rx-5U)
 -   公開日: 2025-06-19
 -   視聴数: 33,977
--   **いいね数: 1,065**
+-   **いいね数: 1,064**
 -   出演者: さんのへあや, [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
