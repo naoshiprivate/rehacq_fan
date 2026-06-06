@@ -1,31 +1,31 @@
+1.  [【呉座勇一vs高橋陽介】大激論！通説vs新説『シン・関ヶ原』【ReHacQ高橋弘樹】](/rehacq_fan/ids/lBHA3zxPhis "wikilink")
+    -   公開日: 2026-06-07
+    -   視聴数: 7
+    -   **いいね数: 10**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/lBHA3zxPhis/hqdefault.jpg)](https://www.youtube.com/watch?v=lBHA3zxPhis)
 1.  [【ReHacQ生配信】視聴者の気になるニュースにガチ回答！【ひろゆき&今野忍&高橋弘樹】](/rehacq_fan/ids/eA4nr7D3Mqg "wikilink")
     -   公開日: 2026-06-06
-    -   視聴数: 94,124
-    -   **いいね数: 1,901**
+    -   視聴数: 212,010
+    -   **いいね数: 2,650**
     -   出演者: 
     - [![](https://img.youtube.com/vi/eA4nr7D3Mqg/hqdefault.jpg)](https://www.youtube.com/watch?v=eA4nr7D3Mqg)
 1.  [【野村泰紀vsノーベル賞】物理学最大のバグとは...？ガチ解説！日本人ノーベル賞【ReHacQ高橋弘樹】](/rehacq_fan/ids/3o2_d7wUwu8 "wikilink")
     -   公開日: 2026-06-06
-    -   視聴数: 49,308
-    -   **いいね数: 1,140**
+    -   視聴数: 68,173
+    -   **いいね数: 1,301**
     -   出演者: 
     - [![](https://img.youtube.com/vi/3o2_d7wUwu8/hqdefault.jpg)](https://www.youtube.com/watch?v=3o2_d7wUwu8)
 1.  [【溝口勇児vs箕輪厚介】まったり緊急生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/gyvnXxO7I10 "wikilink")
     -   公開日: 2026-06-05
-    -   視聴数: 401,450
-    -   **いいね数: 5,627**
+    -   視聴数: 428,602
+    -   **いいね数: 5,786**
     -   出演者: 
     - [![](https://img.youtube.com/vi/gyvnXxO7I10/hqdefault.jpg)](https://www.youtube.com/watch?v=gyvnXxO7I10)
 1.  [【新規株式公開】世界の視線が集中！スペースX ＆アンソロピックのIPOはどうなる？【宮嶋貴之&永濱利廣&森本智子&ReHacQ】](/rehacq_fan/ids/Gx3oRc-btP0 "wikilink")
     -   公開日: 2026-06-05
-    -   視聴数: 31,311
-    -   **いいね数: 350**
+    -   視聴数: 31,908
+    -   **いいね数: 355**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Gx3oRc-btP0/hqdefault.jpg)](https://www.youtube.com/watch?v=Gx3oRc-btP0)
-1.  [【高橋弘樹vsエンジン】電気自動車の罠... 世界が追随！日本のエンジンとは？【ReHacQvs草鹿仁】](/rehacq_fan/ids/Hg712G-UvHo "wikilink")
-    -   公開日: 2026-06-05
-    -   視聴数: 274,480
-    -   **いいね数: 3,778**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/Hg712G-UvHo/hqdefault.jpg)](https://www.youtube.com/watch?v=Hg712G-UvHo)
 
