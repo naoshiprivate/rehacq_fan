@@ -22,10 +22,4 @@
     -   **いいね数: 13,788**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/tSHZ_VGY8jQ/hqdefault.jpg)](https://www.youtube.com/watch?v=tSHZ_VGY8jQ)
-1.  [【坂上忍vsひろゆきvs箕輪厚介】炎上は恐れない！？芸歴56年…“ヒール”の流儀・生き様を語る！【ReHacQ】](/rehacq_fan/ids/FXER_XtqCkY "wikilink")
-    -   公開日: 2026-05-03
-    -   視聴数: 1,297,119
-    -   **いいね数: 14,875**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
-    - [![](https://img.youtube.com/vi/FXER_XtqCkY/hqdefault.jpg)](https://www.youtube.com/watch?v=FXER_XtqCkY)
 
