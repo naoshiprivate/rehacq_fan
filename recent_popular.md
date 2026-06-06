@@ -4,6 +4,12 @@
     -   **いいね数: 13,823**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/am5tSdyFT-s/hqdefault.jpg)](https://www.youtube.com/watch?v=am5tSdyFT-s)
+1.  [【高橋弘樹vs常見陽平】テレ朝「モーニングショー」で玉川徹氏が発言制止...なぜ？テレビ朝日は何を守りたいのか？【ReHacQ】](/rehacq_fan/ids/Vie-86lFZ0A "wikilink")
+    -   公開日: 2026-05-23
+    -   視聴数: 541,569
+    -   **いいね数: 5,689**
+    -   出演者: 常見陽平, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/Vie-86lFZ0A/hqdefault.jpg)](https://www.youtube.com/watch?v=Vie-86lFZ0A)
 1.  [【辺野古沖事故】あの日一体何が？積み重ねた証言で見えてきたあの日の「海」＆辺野古住民の“本音”【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/sgFpR-0dGtQ "wikilink")
     -   公開日: 2026-05-18
     -   視聴数: 620,026
