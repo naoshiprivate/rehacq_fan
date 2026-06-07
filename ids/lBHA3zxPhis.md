@@ -1,6 +1,6 @@
 ### [【呉座勇一vs高橋陽介】大激論！通説vs新説『シン・関ヶ原』【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=lBHA3zxPhis)
 [![](https://img.youtube.com/vi/lBHA3zxPhis/sddefault.jpg)](https://www.youtube.com/watch?v=lBHA3zxPhis)
 -   公開日: 2026-06-07
--   視聴数: 96,765
--   **いいね数: 1,625**
+-   視聴数: 113,108
+-   **いいね数: 1,732**
 -   出演者: 
