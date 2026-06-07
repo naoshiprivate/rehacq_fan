@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】視聴者の気になるニュースにガチ回答！【ひろゆき&今野忍&高橋弘樹】](https://www.youtube.com/watch?v=eA4nr7D3Mqg)
 [![](https://img.youtube.com/vi/eA4nr7D3Mqg/sddefault.jpg)](https://www.youtube.com/watch?v=eA4nr7D3Mqg)
 -   公開日: 2026-06-06
--   視聴数: 212,010
--   **いいね数: 2,650**
+-   視聴数: 256,336
+-   **いいね数: 3,227**
 -   出演者: 

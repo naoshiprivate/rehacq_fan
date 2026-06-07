@@ -25,7 +25,7 @@
 1. [内田稔](/rehacq_fan/people/内田稔): 1.43 (12)
 1. [須黒清華](/rehacq_fan/people/須黒清華): 1.43 (20)
 1. [斎藤幸平](/rehacq_fan/people/斎藤幸平): 1.40 (46)
-1. [加藤シルビア](/rehacq_fan/people/加藤シルビア): 1.40 (10)
+1. [加藤シルビア](/rehacq_fan/people/加藤シルビア): 1.39 (10)
 1. [後藤達也](/rehacq_fan/people/後藤達也): 1.36 (158)
 1. [羽田圭介](/rehacq_fan/people/羽田圭介): 1.35 (10)
 1. [今野忍](/rehacq_fan/people/今野忍): 1.34 (45)
@@ -61,9 +61,9 @@
 # 平均視聴数ランキング
 
 1. [吉村洋文](/rehacq_fan/people/吉村洋文): 695,609 (12)
-1. [今野忍](/rehacq_fan/people/今野忍): 606,375 (45)
+1. [今野忍](/rehacq_fan/people/今野忍): 606,407 (45)
 1. [石丸伸二](/rehacq_fan/people/石丸伸二): 573,429 (171)
-1. [西田亮介](/rehacq_fan/people/西田亮介): 560,500 (178)
+1. [西田亮介](/rehacq_fan/people/西田亮介): 560,508 (178)
 1. [ひろゆき](/rehacq_fan/people/ひろゆき): 523,829 (253)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 511,479 (12)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 505,745 (29)

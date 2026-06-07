@@ -1,6 +1,6 @@
 ### [【野村泰紀vsノーベル賞】物理学最大のバグとは...？ガチ解説！日本人ノーベル賞【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=3o2_d7wUwu8)
 [![](https://img.youtube.com/vi/3o2_d7wUwu8/sddefault.jpg)](https://www.youtube.com/watch?v=3o2_d7wUwu8)
 -   公開日: 2026-06-06
--   視聴数: 68,173
--   **いいね数: 1,301**
+-   視聴数: 80,364
+-   **いいね数: 1,497**
 -   出演者: 
