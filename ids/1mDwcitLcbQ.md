@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】中野区長選挙ネット討論会【高橋弘樹vs酒井直人vs吉田康一郎vs石倉こうじろうvs森川たけひろvsあきいけ幹雄】](https://www.youtube.com/watch?v=1mDwcitLcbQ)
 [![](https://img.youtube.com/vi/1mDwcitLcbQ/sddefault.jpg)](https://www.youtube.com/watch?v=1mDwcitLcbQ)
 -   公開日: 2026-06-04
--   視聴数: 31,998
--   **いいね数: 638**
+-   視聴数: 32,309
+-   **いいね数: 640**
 -   出演者: 
