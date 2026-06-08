@@ -1,7 +1,7 @@
 1.  [【溝口勇児vs箕輪厚介】まったり緊急生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/gyvnXxO7I10 "wikilink")
     -   公開日: 2026-06-05
-    -   視聴数: 551,218
-    -   **いいね数: 6,982**
+    -   視聴数: 575,014
+    -   **いいね数: 7,186**
     -   出演者: 
     - [![](https://img.youtube.com/vi/gyvnXxO7I10/hqdefault.jpg)](https://www.youtube.com/watch?v=gyvnXxO7I10)
 1.  [【辺野古沖転覆・核心へ】証言「船が消えた」辺野古住民のリアルと葛藤【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/am5tSdyFT-s "wikilink")
