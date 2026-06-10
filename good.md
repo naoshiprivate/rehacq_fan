@@ -480,6 +480,11 @@
     -   視聴数: 856,753
     -   **いいね数: 16,399**
     -   出演者: 小野龍光, [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
+1.  [【高橋弘樹vs認知症の予防】衝撃！70歳の認知症は30年前から始まっている！？アルツハイマー防ぐには？【ReHacQvsアメリカ天才医学者】](/rehacq_fan/ids/ZsLG3B_waNI "wikilink")
+    -   公開日: 2025-06-25
+    -   視聴数: 1,024,841
+    -   **いいね数: 16,384**
+    -   出演者: 山田悠史, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【立花孝志vs高橋弘樹】NHK党にNG無し質問！ReHacQ【西田亮介&横田一】](/rehacq_fan/ids/qzFJpEy_rI "wikilink")
     -   公開日: 2025-07-14
     -   視聴数: 780,163
@@ -490,11 +495,6 @@
     -   視聴数: 895,005
     -   **いいね数: 16,328**
     -   出演者: [中田敦彦](/rehacq_fan/people/中田敦彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs認知症の予防】衝撃！70歳の認知症は30年前から始まっている！？アルツハイマー防ぐには？【ReHacQvsアメリカ天才医学者】](/rehacq_fan/ids/ZsLG3B_waNI "wikilink")
-    -   公開日: 2025-06-25
-    -   視聴数: 1,013,462
-    -   **いいね数: 16,253**
-    -   出演者: 山田悠史, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](/rehacq_fan/ids/xVW1qk9pj9s "wikilink")
     -   公開日: 2025-01-22
     -   視聴数: 1,211,076
