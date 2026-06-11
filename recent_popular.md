@@ -1,3 +1,9 @@
+1.  [【ReHacQ生配信】SNS誹謗中傷について【高橋弘樹vsいさ進一vs今野忍vs西田亮介】](/rehacq_fan/ids/LFDdFaHyDMU "wikilink")
+    -   公開日: 2026-06-08
+    -   視聴数: 504,762
+    -   **いいね数: 10,452**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/LFDdFaHyDMU/hqdefault.jpg)](https://www.youtube.com/watch?v=LFDdFaHyDMU)
 1.  [【溝口勇児vs箕輪厚介】まったり緊急生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/gyvnXxO7I10 "wikilink")
     -   公開日: 2026-06-05
     -   視聴数: 642,596
@@ -22,10 +28,4 @@
     -   **いいね数: 5,689**
     -   出演者: 常見陽平, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/Vie-86lFZ0A/hqdefault.jpg)](https://www.youtube.com/watch?v=Vie-86lFZ0A)
-1.  [【辺野古沖事故】あの日一体何が？積み重ねた証言で見えてきたあの日の「海」＆辺野古住民の“本音”【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/sgFpR-0dGtQ "wikilink")
-    -   公開日: 2026-05-18
-    -   視聴数: 669,156
-    -   **いいね数: 16,545**
-    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/sgFpR-0dGtQ/hqdefault.jpg)](https://www.youtube.com/watch?v=sgFpR-0dGtQ)
 
