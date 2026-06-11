@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】茨城県石岡市長選挙ネット討論会【高橋弘樹vsといた和之vs幕内みきおvsやじまようじ】](https://www.youtube.com/watch?v=h6o0uLl-xTI)
 [![](https://img.youtube.com/vi/h6o0uLl-xTI/sddefault.jpg)](https://www.youtube.com/watch?v=h6o0uLl-xTI)
 -   公開日: 2026-06-11
--   視聴数: 1,452
--   **いいね数: 64**
+-   視聴数: 3,994
+-   **いいね数: 131**
 -   出演者: 
