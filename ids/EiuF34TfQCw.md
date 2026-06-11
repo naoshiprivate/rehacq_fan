@@ -1,6 +1,6 @@
 ### [【ひろゆきvs村上愛花】年収が3倍！？北関東の世界最先端のデジタル教育現場にひろゆきが潜入！【ReHacQvs北関東】](https://www.youtube.com/watch?v=EiuF34TfQCw)
 [![](https://img.youtube.com/vi/EiuF34TfQCw/sddefault.jpg)](https://www.youtube.com/watch?v=EiuF34TfQCw)
 -   公開日: 2026-01-28
--   視聴数: 47,894
--   **いいね数: 647**
+-   視聴数: 47,976
+-   **いいね数: 648**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [村上愛花](/rehacq_fan/people/村上愛花 "wikilink"), 清水義教
