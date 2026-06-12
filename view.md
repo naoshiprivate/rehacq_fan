@@ -175,16 +175,16 @@
     -   視聴数: 1,711,949
     -   **いいね数: 21,162**
     -   出演者: 奥谷謙一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
+    -   公開日: 2024-09-10
+    -   視聴数: 1,705,704
+    -   **いいね数: 17,713**
+    -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs鈴木おさむ】SMAP生んだ天才・謎のP！初めて明かされる仕事術【リスクマネジメントの鬼】](/rehacq_fan/ids/7PgJY5fY5NY "wikilink")
     -   公開日: 2024-04-26
     -   視聴数: 1,689,476
     -   **いいね数: 11,094**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [鈴木おさむ](/rehacq_fan/people/鈴木おさむ "wikilink")
-1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
-    -   公開日: 2024-09-10
-    -   視聴数: 1,688,595
-    -   **いいね数: 17,615**
-    -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【国民民主vsひろゆき】全部言う！玉木氏が衝撃告白！参院選で重大発表【ReHacQ高橋弘樹】](/rehacq_fan/ids/3WIDjkmg6xY "wikilink")
     -   公開日: 2025-02-02
     -   視聴数: 1,676,406
@@ -392,8 +392,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【ひろゆきvs自民党税調会長】緊急参戦！宮沢洋一がすべて告白！103万の壁…決着の裏側【ReHacQ西田亮介&高橋弘樹】](/rehacq_fan/ids/mf37-gaqcFE "wikilink")
     -   公開日: 2025-04-06
-    -   視聴数: 1,147,366
-    -   **いいね数: 21,320**
+    -   視聴数: 1,147,534
+    -   **いいね数: 21,314**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮沢洋一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【兵庫県知事選でも問題】公職選挙法の闇！なぜ逮捕？【石丸伸二を生んだ男】](/rehacq_fan/ids/smDf7a0Z_-w "wikilink")
     -   公開日: 2024-11-29
@@ -440,6 +440,11 @@
     -   視聴数: 1,123,616
     -   **いいね数: 12,597**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
+1.  [【ロシア・ウクライナ戦争】徹底解説…終わらない理由…プーチンが求める真の終戦条件は？イラン戦争でトランプが世界秩序を変えた!?台湾有事の可能性と日本の影響は…【ReHacQ高橋弘樹vs小泉悠】](/rehacq_fan/ids/hvXLADpNwqs "wikilink")
+    -   公開日: 2026-04-04
+    -   視聴数: 1,122,748
+    -   **いいね数: 11,138**
+    -   出演者: 小泉悠, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](/rehacq_fan/ids/QPmOX-9hDpY "wikilink")
     -   公開日: 2025-02-27
     -   視聴数: 1,117,248
@@ -450,11 +455,6 @@
     -   視聴数: 1,111,039
     -   **いいね数: 11,296**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
-1.  [【ロシア・ウクライナ戦争】徹底解説…終わらない理由…プーチンが求める真の終戦条件は？イラン戦争でトランプが世界秩序を変えた!?台湾有事の可能性と日本の影響は…【ReHacQ高橋弘樹vs小泉悠】](/rehacq_fan/ids/hvXLADpNwqs "wikilink")
-    -   公開日: 2026-04-04
-    -   視聴数: 1,106,174
-    -   **いいね数: 11,000**
-    -   出演者: 小泉悠, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【参院選2025】自公大敗…どうなる？まったり雑談【ReHacQ】](/rehacq_fan/ids/nqXDm5gzm7g "wikilink")
     -   公開日: 2025-07-20
     -   視聴数: 1,104,319
