@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/nF6-5DJuWSg/sddefault.jpg)](https://www.youtube.com/watch?v=nF6-5DJuWSg)
 -   公開日: 2024-05-22
 -   視聴数: 95,857
--   **いいね数: 1,113**
+-   **いいね数: 1,112**
 -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), 田内学

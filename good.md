@@ -442,8 +442,8 @@
     -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 1,035,790
-    -   **いいね数: 16,692**
+    -   視聴数: 1,036,019
+    -   **いいね数: 16,689**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【辺野古沖事故】あの日一体何が？積み重ねた証言で見えてきたあの日の「海」＆辺野古住民の“本音”【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/sgFpR-0dGtQ "wikilink")
     -   公開日: 2026-05-18
