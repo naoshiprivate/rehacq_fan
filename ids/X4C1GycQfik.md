@@ -1,6 +1,6 @@
 ### [【10倍株の条件】負ける人必見！勝つ投資方法と大化け株の探し方とは？【窪田真之＆永濱利廣＆東留伽＆ReHacQ】](https://www.youtube.com/watch?v=X4C1GycQfik)
 [![](https://img.youtube.com/vi/X4C1GycQfik/sddefault.jpg)](https://www.youtube.com/watch?v=X4C1GycQfik)
 -   公開日: 2026-06-12
--   視聴数: 22,864
--   **いいね数: 317**
+-   視聴数: 26,470
+-   **いいね数: 373**
 -   出演者: 
