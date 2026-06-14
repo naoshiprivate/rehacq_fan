@@ -18,8 +18,8 @@
     - [![](https://img.youtube.com/vi/b1apBqi1q7M/hqdefault.jpg)](https://www.youtube.com/watch?v=b1apBqi1q7M)
 1.  [【辺野古沖転覆・核心へ】証言「船が消えた」辺野古住民のリアルと葛藤【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/am5tSdyFT-s "wikilink")
     -   公開日: 2026-05-23
-    -   視聴数: 589,415
-    -   **いいね数: 14,481**
+    -   視聴数: 593,126
+    -   **いいね数: 14,503**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/am5tSdyFT-s/hqdefault.jpg)](https://www.youtube.com/watch?v=am5tSdyFT-s)
 1.  [【高橋弘樹vs常見陽平】テレ朝「モーニングショー」で玉川徹氏が発言制止...なぜ？テレビ朝日は何を守りたいのか？【ReHacQ】](/rehacq_fan/ids/Vie-86lFZ0A "wikilink")

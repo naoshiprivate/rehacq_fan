@@ -392,8 +392,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【衆院選2026】あつまれ！落選の森...今後どうする？まったり緊急生配信【中谷一馬vs川上りゅうせいvs吉田あやvs今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/HEsGRg73oiw "wikilink")
     -   公開日: 2026-02-09
-    -   視聴数: 1,232,874
-    -   **いいね数: 17,243**
+    -   視聴数: 1,233,564
+    -   **いいね数: 17,239**
     -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 吉田あや, 川上りゅうせい, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【藤井サチvs再生の道】東京都議選2025！代表者インタビュー【石丸伸二】](/rehacq_fan/ids/zU6zLhzkdVI "wikilink")
     -   公開日: 2025-06-20
@@ -445,6 +445,11 @@
     -   視聴数: 1,036,019
     -   **いいね数: 16,689**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
+1.  [【東出昌大vs石丸伸二】幸せとは？キャリア捨て…異質な道選んだ2人の幸福論！ちょいズレキャリア塾【ReHacQ高橋弘樹】](/rehacq_fan/ids/K-27iBFVXfo "wikilink")
+    -   公開日: 2025-03-08
+    -   視聴数: 945,340
+    -   **いいね数: 16,574**
+    -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【辺野古沖事故】あの日一体何が？積み重ねた証言で見えてきたあの日の「海」＆辺野古住民の“本音”【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/sgFpR-0dGtQ "wikilink")
     -   公開日: 2026-05-18
     -   視聴数: 669,156
@@ -460,11 +465,6 @@
     -   視聴数: 1,074,738
     -   **いいね数: 16,534**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【東出昌大vs石丸伸二】幸せとは？キャリア捨て…異質な道選んだ2人の幸福論！ちょいズレキャリア塾【ReHacQ高橋弘樹】](/rehacq_fan/ids/K-27iBFVXfo "wikilink")
-    -   公開日: 2025-03-08
-    -   視聴数: 941,362
-    -   **いいね数: 16,528**
-    -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【緊急生配信】「再生の道」会見…参院選について【ReHacQ】](/rehacq_fan/ids/yiiG5BdgrW0 "wikilink")
     -   公開日: 2025-04-25
     -   視聴数: 381,539
