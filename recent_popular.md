@@ -24,8 +24,8 @@
     - [![](https://img.youtube.com/vi/am5tSdyFT-s/hqdefault.jpg)](https://www.youtube.com/watch?v=am5tSdyFT-s)
 1.  [【高橋弘樹vs常見陽平】テレ朝「モーニングショー」で玉川徹氏が発言制止...なぜ？テレビ朝日は何を守りたいのか？【ReHacQ】](/rehacq_fan/ids/Vie-86lFZ0A "wikilink")
     -   公開日: 2026-05-23
-    -   視聴数: 541,569
-    -   **いいね数: 5,689**
+    -   視聴数: 554,561
+    -   **いいね数: 5,757**
     -   出演者: 常見陽平, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/Vie-86lFZ0A/hqdefault.jpg)](https://www.youtube.com/watch?v=Vie-86lFZ0A)
 
