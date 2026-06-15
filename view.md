@@ -297,8 +297,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石破総理が緊急出演】楽しい日本とは？103万の壁は？SNS規制は？夫婦別姓は？総理が本音激白【ReHacQ高橋弘樹】](/rehacq_fan/ids/k2jbKFIP--s "wikilink")
     -   公開日: 2025-01-26
-    -   視聴数: 1,309,333
-    -   **いいね数: 18,018**
+    -   視聴数: 1,317,987
+    -   **いいね数: 18,014**
     -   出演者: [石破茂](/rehacq_fan/people/石破茂 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】ちょっとだけ大切なお知らせ…兵庫県知事選に関して【神戸新聞さん…ランチしましょう】](/rehacq_fan/ids/0P-1c-mn2mc "wikilink")
     -   公開日: 2024-12-08
