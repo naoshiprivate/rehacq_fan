@@ -342,8 +342,8 @@
     -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【恋愛病院 特別編】男子メンバー集結！2泊3日のリハビリ生活から4ヶ月以上経った今、何を語るのか…？【ReHacQ 高橋弘樹】](/rehacq_fan/ids/ukhxM0D0Itg "wikilink")
     -   公開日: 2026-05-12
-    -   視聴数: 498,279
-    -   **いいね数: 18,428**
+    -   視聴数: 503,175
+    -   **いいね数: 18,466**
     -   出演者: 小泉勇人, 桑田龍征, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石黒英雄, 雫石将克, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](/rehacq_fan/ids/KihRlwlSPCI "wikilink")
     -   公開日: 2025-07-12
@@ -445,16 +445,16 @@
     -   視聴数: 1,036,019
     -   **いいね数: 16,689**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
+1.  [【辺野古沖事故】あの日一体何が？積み重ねた証言で見えてきたあの日の「海」＆辺野古住民の“本音”【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/sgFpR-0dGtQ "wikilink")
+    -   公開日: 2026-05-18
+    -   視聴数: 677,148
+    -   **いいね数: 16,576**
+    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【東出昌大vs石丸伸二】幸せとは？キャリア捨て…異質な道選んだ2人の幸福論！ちょいズレキャリア塾【ReHacQ高橋弘樹】](/rehacq_fan/ids/K-27iBFVXfo "wikilink")
     -   公開日: 2025-03-08
     -   視聴数: 945,340
     -   **いいね数: 16,574**
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【辺野古沖事故】あの日一体何が？積み重ねた証言で見えてきたあの日の「海」＆辺野古住民の“本音”【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/sgFpR-0dGtQ "wikilink")
-    -   公開日: 2026-05-18
-    -   視聴数: 669,156
-    -   **いいね数: 16,545**
-    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs玉木雄一郎】５兆円！○○国債を！【野党の存在意義は？】](/rehacq_fan/ids/vJ2MS0ZjLdA "wikilink")
     -   公開日: 2023-05-23
     -   視聴数: 1,132,124
