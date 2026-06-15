@@ -60,11 +60,11 @@
 
 # 平均視聴数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 696,515 (12)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 696,518 (12)
 1. [今野忍](/rehacq_fan/people/今野忍): 614,966 (45)
 1. [石丸伸二](/rehacq_fan/people/石丸伸二): 574,751 (171)
 1. [西田亮介](/rehacq_fan/people/西田亮介): 562,344 (178)
-1. [ひろゆき](/rehacq_fan/people/ひろゆき): 526,105 (253)
+1. [ひろゆき](/rehacq_fan/people/ひろゆき): 526,107 (253)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 514,059 (12)
 1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 512,683 (34)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 507,534 (29)
