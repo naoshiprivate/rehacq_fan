@@ -1,31 +1,31 @@
 1.  [【凡人の覚醒】漫画で勝てた理由…累計400万部突破の漫画家が教える天才の作り方とは？【かっぴー＆田中渓&ReHacQ】](/rehacq_fan/ids/jeuJ-TrEU34 "wikilink")
     -   公開日: 2026-06-16
-    -   視聴数: 1,759
-    -   **いいね数: 87**
+    -   視聴数: 3,258
+    -   **いいね数: 130**
     -   出演者: 
     - [![](https://img.youtube.com/vi/jeuJ-TrEU34/hqdefault.jpg)](https://www.youtube.com/watch?v=jeuJ-TrEU34)
 1.  [【国民民主党】玉木代表 古賀千景議員の豊かな子どもたちは自衛隊とかならない発言に対し「侮辱だ」【ReHacQ記者会見 6月16日(火)】](/rehacq_fan/ids/Z7qsfpo1j2s "wikilink")
     -   公開日: 2026-06-16
-    -   視聴数: 5,545
-    -   **いいね数: 110**
+    -   視聴数: 6,178
+    -   **いいね数: 119**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Z7qsfpo1j2s/hqdefault.jpg)](https://www.youtube.com/watch?v=Z7qsfpo1j2s)
 1.  [【高橋弘樹vs自動車】早稲田人気ゼミに潜入！自動車研究の裏側とは？【ReHacQvs草鹿仁】](/rehacq_fan/ids/rbM0P0wA_XU "wikilink")
     -   公開日: 2026-06-16
-    -   視聴数: 27,477
-    -   **いいね数: 629**
+    -   視聴数: 31,246
+    -   **いいね数: 693**
     -   出演者: 
     - [![](https://img.youtube.com/vi/rbM0P0wA_XU/hqdefault.jpg)](https://www.youtube.com/watch?v=rbM0P0wA_XU)
 1.  [【ReHacQ討論会】杉並区長選挙ネット討論会【高橋弘樹vs大和田伸vs上梨ゆうすけvs岸本さとこvs田中良vs増田よしひこ】](/rehacq_fan/ids/4EAj5rHFCmw "wikilink")
     -   公開日: 2026-06-15
-    -   視聴数: 70,000
-    -   **いいね数: 1,653**
+    -   視聴数: 70,758
+    -   **いいね数: 1,669**
     -   出演者: 
     - [![](https://img.youtube.com/vi/4EAj5rHFCmw/hqdefault.jpg)](https://www.youtube.com/watch?v=4EAj5rHFCmw)
 1.  [【ReHacQ討論会】滋賀県知事選挙ネット討論会【高橋弘樹vs坪田いくおvs三日月大造】](/rehacq_fan/ids/odcTlN6PHmo "wikilink")
     -   公開日: 2026-06-15
-    -   視聴数: 12,419
-    -   **いいね数: 184**
+    -   視聴数: 12,550
+    -   **いいね数: 186**
     -   出演者: 
     - [![](https://img.youtube.com/vi/odcTlN6PHmo/hqdefault.jpg)](https://www.youtube.com/watch?v=odcTlN6PHmo)
 
