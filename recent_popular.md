@@ -6,8 +6,8 @@
     - [![](https://img.youtube.com/vi/LFDdFaHyDMU/hqdefault.jpg)](https://www.youtube.com/watch?v=LFDdFaHyDMU)
 1.  [【溝口勇児vs箕輪厚介】まったり緊急生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/gyvnXxO7I10 "wikilink")
     -   公開日: 2026-06-05
-    -   視聴数: 642,596
-    -   **いいね数: 7,635**
+    -   視聴数: 735,393
+    -   **いいね数: 8,337**
     -   出演者: 
     - [![](https://img.youtube.com/vi/gyvnXxO7I10/hqdefault.jpg)](https://www.youtube.com/watch?v=gyvnXxO7I10)
 1.  [【高橋弘樹vsエンジン】電気自動車の罠... 世界が追随！日本のエンジンとは？【ReHacQvs草鹿仁】](/rehacq_fan/ids/Hg712G-UvHo "wikilink")
