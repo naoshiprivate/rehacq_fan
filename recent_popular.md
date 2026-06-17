@@ -18,8 +18,8 @@
     - [![](https://img.youtube.com/vi/Hg712G-UvHo/hqdefault.jpg)](https://www.youtube.com/watch?v=Hg712G-UvHo)
 1.  [【辺野古沖転覆】文科省が学校の対応を調査報告...教育基本法に違反...なぜ？【ReHacQ高橋弘樹 &今野忍&伊藤たかえ】](/rehacq_fan/ids/b1apBqi1q7M "wikilink")
     -   公開日: 2026-05-27
-    -   視聴数: 566,234
-    -   **いいね数: 12,156**
+    -   視聴数: 592,033
+    -   **いいね数: 12,275**
     -   出演者: 
     - [![](https://img.youtube.com/vi/b1apBqi1q7M/hqdefault.jpg)](https://www.youtube.com/watch?v=b1apBqi1q7M)
 1.  [【辺野古沖転覆・核心へ】証言「船が消えた」辺野古住民のリアルと葛藤【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/am5tSdyFT-s "wikilink")
