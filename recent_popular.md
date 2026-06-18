@@ -4,6 +4,12 @@
     -   **いいね数: 10,452**
     -   出演者: 
     - [![](https://img.youtube.com/vi/LFDdFaHyDMU/hqdefault.jpg)](https://www.youtube.com/watch?v=LFDdFaHyDMU)
+1.  [【ReHacQ生配信】視聴者の気になるニュースにガチ回答！【ひろゆき&今野忍&高橋弘樹】](/rehacq_fan/ids/eA4nr7D3Mqg "wikilink")
+    -   公開日: 2026-06-06
+    -   視聴数: 531,191
+    -   **いいね数: 5,337**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/eA4nr7D3Mqg/hqdefault.jpg)](https://www.youtube.com/watch?v=eA4nr7D3Mqg)
 1.  [【溝口勇児vs箕輪厚介】まったり緊急生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/gyvnXxO7I10 "wikilink")
     -   公開日: 2026-06-05
     -   視聴数: 735,393
@@ -22,10 +28,4 @@
     -   **いいね数: 12,275**
     -   出演者: 
     - [![](https://img.youtube.com/vi/b1apBqi1q7M/hqdefault.jpg)](https://www.youtube.com/watch?v=b1apBqi1q7M)
-1.  [【辺野古沖転覆・核心へ】証言「船が消えた」辺野古住民のリアルと葛藤【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/am5tSdyFT-s "wikilink")
-    -   公開日: 2026-05-23
-    -   視聴数: 593,126
-    -   **いいね数: 14,503**
-    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/am5tSdyFT-s/hqdefault.jpg)](https://www.youtube.com/watch?v=am5tSdyFT-s)
 
