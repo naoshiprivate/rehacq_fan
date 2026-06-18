@@ -22,7 +22,7 @@
     -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](/rehacq_fan/ids/H_e67-Dxr8o "wikilink")
     -   公開日: 2024-11-18
-    -   視聴数: 2,826,323
+    -   視聴数: 2,830,822
     -   **いいね数: 59,749**
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が絶賛】6歳でもわかる!?天才物理学者のガチ授業【野村泰紀】](/rehacq_fan/ids/jyAZpcjzxFU "wikilink")
@@ -77,8 +77,8 @@
     -   出演者: [近藤大介](/rehacq_fan/people/近藤大介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs玉木雄一郎】再びの生対談！石丸新党立ち上げ…国民民主躍進.兵庫県知事選…本音激論【ReHacQ高橋弘樹】](/rehacq_fan/ids/6Vww3vD7jHg "wikilink")
     -   公開日: 2024-11-19
-    -   視聴数: 2,303,970
-    -   **いいね数: 43,361**
+    -   視聴数: 2,305,592
+    -   **いいね数: 43,357**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【Google賞金4.5億】睡眠革命！「朝型がいい」はウソ!?最新研究【柳沢正史】](/rehacq_fan/ids/IWqndzRAJnQ "wikilink")
     -   公開日: 2023-11-07
@@ -202,8 +202,8 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ討論会】兵庫県知事選挙【候補者7人vs高橋弘樹】](/rehacq_fan/ids/b-bNBgMhpNM "wikilink")
     -   公開日: 2024-11-01
-    -   視聴数: 1,562,458
-    -   **いいね数: 32,362**
+    -   視聴数: 1,562,849
+    -   **いいね数: 32,356**
     -   出演者: 大澤芳清, [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), 木島洋嗣, 清水貴之, 福本繁幸, 稲村和美, [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【石丸伸二vs会見入れなかったジャーナリスト】前代未聞の激論…なぜ？取材会見時のジャーナリスト制限に関して【ひろゆきvs横田一vs西田亮介vs箕輪厚介vs高橋弘樹ReHacQ】](/rehacq_fan/ids/23N6ICQ55-c "wikilink")
     -   公開日: 2025-01-16
@@ -237,7 +237,7 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs衆院選2024】ほぼ落選！音喜多駿が緊急参戦…なぜ負けた？石丸伸二VTR出演&緊急生電話【藤井サチvsさとうさおりvs高橋弘樹】](/rehacq_fan/ids/AmCukzP6Gwc "wikilink")
     -   公開日: 2024-10-27
-    -   視聴数: 1,486,150
+    -   視聴数: 1,488,394
     -   **いいね数: 11,696**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs泉 前明石市長】172億はどこから？退任直前…赤裸々告白【市町村のやるべき事】](/rehacq_fan/ids/WyDR8GuPC_k "wikilink")
