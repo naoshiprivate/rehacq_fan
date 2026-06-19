@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】視聴者の気になるニュースにガチ回答！【高橋弘樹&今野忍&中室牧子】](https://www.youtube.com/watch?v=jq8KJxDb4rU)
 [![](https://img.youtube.com/vi/jq8KJxDb4rU/sddefault.jpg)](https://www.youtube.com/watch?v=jq8KJxDb4rU)
 -   公開日: 2026-06-17
--   視聴数: 283,286
--   **いいね数: 3,616**
+-   視聴数: 285,458
+-   **いいね数: 3,637**
 -   出演者: 
