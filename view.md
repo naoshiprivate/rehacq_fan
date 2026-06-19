@@ -2,8 +2,8 @@
 
 1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](/rehacq_fan/ids/MxSVlnm0qc4 "wikilink")
     -   公開日: 2024-11-17
-    -   視聴数: 3,792,949
-    -   **いいね数: 55,089**
+    -   視聴数: 3,799,585
+    -   **いいね数: 55,129**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](/rehacq_fan/ids/eOz1CzMBmuQ "wikilink")
     -   公開日: 2023-11-25
@@ -67,8 +67,8 @@
     -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs日本保守党】河村たかしが激怒！政治屋をぶっつぶす【西田亮介vsリハックマReHacQ】](/rehacq_fan/ids/0ecD5gpE0i8 "wikilink")
     -   公開日: 2024-11-09
-    -   視聴数: 2,421,094
-    -   **いいね数: 32,896**
+    -   視聴数: 2,422,973
+    -   **いいね数: 32,904**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【高橋弘樹vs近藤大介②】激動する中国政治_習近平の権力構造と地政学リスクとは？【ReHacQ中国経済SP】](/rehacq_fan/ids/ubUYvwixxCg "wikilink")
     -   公開日: 2025-10-09
@@ -120,16 +120,16 @@
     -   視聴数: 1,931,744
     -   **いいね数: 22,389**
     -   出演者: 鎌田浩毅, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【ひろゆきvs斎藤幸平】絶対NG！リベラルの真の敵は誰？【東京大学准教授・マルクス主義者】](/rehacq_fan/ids/gpoohY5z6MI "wikilink")
+    -   公開日: 2024-08-16
+    -   視聴数: 1,891,858
+    -   **いいね数: 16,827**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
     -   公開日: 2024-02-12
     -   視聴数: 1,888,985
     -   **いいね数: 16,087**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
-1.  [【ひろゆきvs斎藤幸平】絶対NG！リベラルの真の敵は誰？【東京大学准教授・マルクス主義者】](/rehacq_fan/ids/gpoohY5z6MI "wikilink")
-    -   公開日: 2024-08-16
-    -   視聴数: 1,882,472
-    -   **いいね数: 16,774**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](/rehacq_fan/ids/4G8qsbpfLNo "wikilink")
     -   公開日: 2024-02-20
     -   視聴数: 1,854,743
@@ -187,8 +187,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [鈴木おさむ](/rehacq_fan/people/鈴木おさむ "wikilink")
 1.  [【国民民主vsひろゆき】全部言う！玉木氏が衝撃告白！参院選で重大発表【ReHacQ高橋弘樹】](/rehacq_fan/ids/3WIDjkmg6xY "wikilink")
     -   公開日: 2025-02-02
-    -   視聴数: 1,676,540
-    -   **いいね数: 21,584**
+    -   視聴数: 1,676,633
+    -   **いいね数: 21,583**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔が推薦の天才】シン量子力学！6歳にわかるように説明してみよう！【ReHacQvs野村泰紀】](/rehacq_fan/ids/DEG9OZoYzIU "wikilink")
     -   公開日: 2024-03-02
@@ -247,8 +247,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【ひろゆきvs立憲民主党②】小西洋之が激怒…一体なぜ？【中谷一馬vs高橋弘樹vs西田亮介】](/rehacq_fan/ids/jfuZDsUN4JY "wikilink")
     -   公開日: 2024-10-13
-    -   視聴数: 1,458,281
-    -   **いいね数: 8,232**
+    -   視聴数: 1,460,573
+    -   **いいね数: 8,236**
     -   出演者: [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也！投資ガチ議論】パックン！アメリカ金融教育とは？【長期投資】](/rehacq_fan/ids/DnaUPmvmoHU "wikilink")
     -   公開日: 2023-11-30
@@ -307,7 +307,7 @@
     -   出演者: 
 1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](/rehacq_fan/ids/v6K85s-g9Oc "wikilink")
     -   公開日: 2025-02-05
-    -   視聴数: 1,286,955
+    -   視聴数: 1,287,076
     -   **いいね数: 17,567**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs銀行の元上司】半沢直樹か否か…銀行時代、上司を詰めた理由とは？【高橋弘樹】](/rehacq_fan/ids/9Ost8DSs1uU "wikilink")
@@ -367,8 +367,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsボビー・オロゴン】兄弟34人！父のスパルタ教育とは？【ガチの一夫多妻制】](/rehacq_fan/ids/hvJ0lBxFILU "wikilink")
     -   公開日: 2024-08-04
-    -   視聴数: 1,182,873
-    -   **いいね数: 17,104**
+    -   視聴数: 1,195,191
+    -   **いいね数: 17,143**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【成田悠輔が推薦】動きに注目！天才物理学者の楽しすぎる量子力学入門【野村泰紀・宇宙とは？】](/rehacq_fan/ids/5iuWBR80ZWs "wikilink")
     -   公開日: 2023-07-07
