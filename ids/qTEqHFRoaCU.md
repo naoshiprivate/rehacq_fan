@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs幼魚】魚の赤ちゃんは別の生き物だった？透明化・擬態・毒…命懸けの生存戦略とは？【ReHacQ R大学】](https://www.youtube.com/watch?v=qTEqHFRoaCU)
 [![](https://img.youtube.com/vi/qTEqHFRoaCU/sddefault.jpg)](https://www.youtube.com/watch?v=qTEqHFRoaCU)
 -   公開日: 2026-06-20
--   視聴数: 8,297
--   **いいね数: 222**
+-   視聴数: 11,253
+-   **いいね数: 263**
 -   出演者: 
