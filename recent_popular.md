@@ -1,3 +1,9 @@
+1.  [【ReHacQ生配信】辞めマスコミ本音座談会！どうなる？マスメディアの未来【高橋弘樹vs今野忍vs岩田明子vs古田大輔vs石戸諭】](/rehacq_fan/ids/OPGzdWsRoe0 "wikilink")
+    -   公開日: 2026-06-12
+    -   視聴数: 511,050
+    -   **いいね数: 6,172**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/OPGzdWsRoe0/hqdefault.jpg)](https://www.youtube.com/watch?v=OPGzdWsRoe0)
 1.  [【ReHacQ生配信】SNS誹謗中傷について【高橋弘樹vsいさ進一vs今野忍vs西田亮介】](/rehacq_fan/ids/LFDdFaHyDMU "wikilink")
     -   公開日: 2026-06-08
     -   視聴数: 575,690
@@ -22,10 +28,4 @@
     -   **いいね数: 7,302**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Hg712G-UvHo/hqdefault.jpg)](https://www.youtube.com/watch?v=Hg712G-UvHo)
-1.  [【辺野古沖転覆】文科省が学校の対応を調査報告...教育基本法に違反...なぜ？【ReHacQ高橋弘樹 &今野忍&伊藤たかえ】](/rehacq_fan/ids/b1apBqi1q7M "wikilink")
-    -   公開日: 2026-05-27
-    -   視聴数: 592,033
-    -   **いいね数: 12,275**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/b1apBqi1q7M/hqdefault.jpg)](https://www.youtube.com/watch?v=b1apBqi1q7M)
 
