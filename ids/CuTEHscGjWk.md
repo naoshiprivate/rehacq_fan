@@ -1,6 +1,6 @@
 ### [【参政党】比例代表の議員定数45議席削減「不誠実であり、やり方が強引」【ReHacQ記者会見 6月24日(火)】](https://www.youtube.com/watch?v=CuTEHscGjWk)
 [![](https://img.youtube.com/vi/CuTEHscGjWk/sddefault.jpg)](https://www.youtube.com/watch?v=CuTEHscGjWk)
 -   公開日: 2026-06-24
--   視聴数: 2,933
--   **いいね数: 131**
+-   視聴数: 3,675
+-   **いいね数: 138**
 -   出演者: 

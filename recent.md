@@ -1,31 +1,31 @@
 1.  [【高橋弘樹vs政治学者】なぜ自民党は強い？地方選挙の闇とは【ReHacQvs堀内勇作】](/rehacq_fan/ids/yYLmlcgnRAo "wikilink")
     -   公開日: 2026-06-24
-    -   視聴数: 9,474
-    -   **いいね数: 290**
+    -   視聴数: 12,161
+    -   **いいね数: 316**
     -   出演者: 
     - [![](https://img.youtube.com/vi/yYLmlcgnRAo/hqdefault.jpg)](https://www.youtube.com/watch?v=yYLmlcgnRAo)
 1.  [【参政党】比例代表の議員定数45議席削減「不誠実であり、やり方が強引」【ReHacQ記者会見 6月24日(火)】](/rehacq_fan/ids/CuTEHscGjWk "wikilink")
     -   公開日: 2026-06-24
-    -   視聴数: 2,933
-    -   **いいね数: 131**
+    -   視聴数: 3,675
+    -   **いいね数: 138**
     -   出演者: 
     - [![](https://img.youtube.com/vi/CuTEHscGjWk/hqdefault.jpg)](https://www.youtube.com/watch?v=CuTEHscGjWk)
 1.  [【国民民主党】国民民主党が5万円減税案を提示 玉木代表が与党案を批判【ReHacQ記者会見 6月24日(水)】](/rehacq_fan/ids/SO033G39bIk "wikilink")
     -   公開日: 2026-06-24
-    -   視聴数: 3,668
-    -   **いいね数: 87**
+    -   視聴数: 4,317
+    -   **いいね数: 90**
     -   出演者: 
     - [![](https://img.youtube.com/vi/SO033G39bIk/hqdefault.jpg)](https://www.youtube.com/watch?v=SO033G39bIk)
 1.  [【日本維新の会】皇位継承どうなる？維新が皇室制度見直しを要求【ReHacQ記者会見 6月24日(水)】](/rehacq_fan/ids/hHTOT23vJGA "wikilink")
     -   公開日: 2026-06-24
-    -   視聴数: 5,499
-    -   **いいね数: 189**
+    -   視聴数: 6,310
+    -   **いいね数: 194**
     -   出演者: 
     - [![](https://img.youtube.com/vi/hHTOT23vJGA/hqdefault.jpg)](https://www.youtube.com/watch?v=hHTOT23vJGA)
 1.  [【朝倉慶vs西田真澄】物価が牙をむく！？株高の代償…フジメディアHG大株主・ダルトンアクティビストが語るインフレの悲劇とは？【ReHacQ】](/rehacq_fan/ids/tjdhxEB-fc "wikilink")
     -   公開日: 2026-06-24
-    -   視聴数: 61,622
-    -   **いいね数: 1,058**
+    -   視聴数: 64,687
+    -   **いいね数: 1,079**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_tjdhxEB-fc/hqdefault.jpg)](https://www.youtube.com/watch?v=_tjdhxEB-fc)
 
