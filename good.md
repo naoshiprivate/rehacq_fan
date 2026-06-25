@@ -470,16 +470,16 @@
     -   視聴数: 1,075,178
     -   **いいね数: 16,535**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vs認知症の予防】衝撃！70歳の認知症は30年前から始まっている！？アルツハイマー防ぐには？【ReHacQvsアメリカ天才医学者】](/rehacq_fan/ids/ZsLG3B_waNI "wikilink")
+    -   公開日: 2025-06-25
+    -   視聴数: 1,040,721
+    -   **いいね数: 16,527**
+    -   出演者: 山田悠史, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】「再生の道」会見…参院選について【ReHacQ】](/rehacq_fan/ids/yiiG5BdgrW0 "wikilink")
     -   公開日: 2025-04-25
     -   視聴数: 381,558
     -   **いいね数: 16,505**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【高橋弘樹vs認知症の予防】衝撃！70歳の認知症は30年前から始まっている！？アルツハイマー防ぐには？【ReHacQvsアメリカ天才医学者】](/rehacq_fan/ids/ZsLG3B_waNI "wikilink")
-    -   公開日: 2025-06-25
-    -   視聴数: 1,031,478
-    -   **いいね数: 16,433**
-    -   出演者: 山田悠史, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔、唖然】欲望地獄と資本主義、生きる道は？【エンタメ系IT起業家の激白】](/rehacq_fan/ids/4t0yL-uIfUA "wikilink")
     -   公開日: 2023-03-26
     -   視聴数: 858,302

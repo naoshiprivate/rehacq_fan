@@ -1,6 +1,6 @@
 ### [【朝倉慶vs西田真澄】物価が牙をむく！？株高の代償…フジメディアHG大株主・ダルトンアクティビストが語るインフレの悲劇とは？【ReHacQ】](https://www.youtube.com/watch?v=_tjdhxEB-fc)
 [![](https://img.youtube.com/vi/_tjdhxEB-fc/sddefault.jpg)](https://www.youtube.com/watch?v=_tjdhxEB-fc)
 -   公開日: 2026-06-24
--   視聴数: 88,273
--   **いいね数: 1,316**
+-   視聴数: 89,359
+-   **いいね数: 1,323**
 -   出演者: 

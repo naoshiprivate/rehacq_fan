@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】調布市長選挙ネット討論会【高橋弘樹vsいそべ隆vs井上こうしvs木下やすこvs林あきひろ】](https://www.youtube.com/watch?v=8ImPDE44Ez4)
 [![](https://img.youtube.com/vi/8ImPDE44Ez4/sddefault.jpg)](https://www.youtube.com/watch?v=8ImPDE44Ez4)
 -   公開日: 2026-06-25
--   視聴数: 4,665
--   **いいね数: 109**
+-   視聴数: 6,832
+-   **いいね数: 115**
 -   出演者: 
