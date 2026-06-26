@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【金利１％】ゼロ金利時代の終わり…日本経済の大転換点！？元日銀審議委員が徹底分析【原田泰＆永濱利廣＆森本智子＆ReHacQ】](/rehacq_fan/ids/xZTCf7y1kJo "wikilink")
+    -   公開日: 2026-06-26
+    -   視聴数: 699
+    -   **いいね数: 16**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/xZTCf7y1kJo/hqdefault.jpg)](https://www.youtube.com/watch?v=xZTCf7y1kJo)
+1.  [【後藤達也vs安倍晋三のブレーン】高市政権への提言！サナエノミクス今後どうなる？【ReHacQ高橋弘樹vs本田悦朗】](/rehacq_fan/ids/ts5L6Gr-GwU "wikilink")
+    -   公開日: 2026-06-26
+    -   視聴数: 4,835
+    -   **いいね数: 203**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/ts5L6Gr-GwU/hqdefault.jpg)](https://www.youtube.com/watch?v=ts5L6Gr-GwU)
 1.  [【ReHacQ討論会】調布市長選挙ネット討論会【高橋弘樹vsいそべ隆vs井上こうしvs木下やすこvs林あきひろ】](/rehacq_fan/ids/8ImPDE44Ez4 "wikilink")
     -   公開日: 2026-06-25
-    -   視聴数: 12,283
-    -   **いいね数: 143**
+    -   視聴数: 13,795
+    -   **いいね数: 156**
     -   出演者: 
     - [![](https://img.youtube.com/vi/8ImPDE44Ez4/hqdefault.jpg)](https://www.youtube.com/watch?v=8ImPDE44Ez4)
 1.  [【高橋弘樹vs休養】休めない現代人…休養の質高めるには？【ReHacQvs今野忍vs片野秀樹vs菱沼信之】](/rehacq_fan/ids/Wytuf5ljmh0 "wikilink")
     -   公開日: 2026-06-25
-    -   視聴数: 51,030
-    -   **いいね数: 775**
+    -   視聴数: 59,202
+    -   **いいね数: 864**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Wytuf5ljmh0/hqdefault.jpg)](https://www.youtube.com/watch?v=Wytuf5ljmh0)
 1.  [【チームみらい】 比例定数削減の受け止めは？ 来年の統一地方選挙について【ReHacQ記者会見 6月25日(木)】](/rehacq_fan/ids/RnLA0ufGnaA "wikilink")
     -   公開日: 2026-06-25
-    -   視聴数: 7,521
-    -   **いいね数: 155**
+    -   視聴数: 8,244
+    -   **いいね数: 172**
     -   出演者: 
     - [![](https://img.youtube.com/vi/RnLA0ufGnaA/hqdefault.jpg)](https://www.youtube.com/watch?v=RnLA0ufGnaA)
-1.  [【サッカーW杯】日本vsスウェーデン戦試合予測！飲みながら徹底解説！【ReHacQvs箕輪厚介vs鄭大世vsミムラユウスケ】](/rehacq_fan/ids/msAEahuOzjM "wikilink")
-    -   公開日: 2026-06-25
-    -   視聴数: 57,087
-    -   **いいね数: 630**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/msAEahuOzjM/hqdefault.jpg)](https://www.youtube.com/watch?v=msAEahuOzjM)
-1.  [【高橋弘樹vs政治学者】なぜ自民党は強い？地方選挙の闇とは【ReHacQvs堀内勇作】](/rehacq_fan/ids/yYLmlcgnRAo "wikilink")
-    -   公開日: 2026-06-24
-    -   視聴数: 44,571
-    -   **いいね数: 767**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/yYLmlcgnRAo/hqdefault.jpg)](https://www.youtube.com/watch?v=yYLmlcgnRAo)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -76,19 +76,19 @@
 ## 時系列データ
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 78, 視聴数: 10,179,321, いいね数: 150,468
+-   動画数: 80, 視聴数: 10,200,315, いいね数: 150,874
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 23,220,520, いいね数: 387,626
+-   動画数: 111, 視聴数: 23,220,932, いいね数: 387,631
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 23,439,767, いいね数: 365,023
+-   動画数: 96, 視聴数: 23,439,938, いいね数: 365,022
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 20,171,774, いいね数: 272,229
+-   動画数: 89, 視聴数: 20,177,227, いいね数: 272,312
 
 #### [2026年02月](videos/202602 "wikilink")
 
@@ -100,7 +100,7 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 17,272,290, いいね数: 213,747
+-   動画数: 83, 視聴数: 17,272,847, いいね数: 213,745
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -108,7 +108,7 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 25,753,602, いいね数: 358,101
+-   動画数: 102, 視聴数: 25,753,703, いいね数: 358,101
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -148,15 +148,15 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 19,072,670, いいね数: 311,965
+-   動画数: 60, 視聴数: 19,081,452, いいね数: 311,980
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 23,482,210, いいね数: 383,708
+-   動画数: 38, 視聴数: 23,491,885, いいね数: 383,703
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,390,964, いいね数: 344,561
+-   動画数: 72, 視聴数: 23,392,789, いいね数: 344,557
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -235,4 +235,4 @@
 -   動画数: 14, 視聴数: 8,212,759, いいね数: 142,006
 
 ---
-2026-06-26 13:00
+2026-06-26 20:00
