@@ -15,7 +15,7 @@
 1. [安野たかひろ](/rehacq_fan/people/安野たかひろ): 1.59 (10)
 1. [須賀川拓](/rehacq_fan/people/須賀川拓): 1.57 (73)
 1. [奥井奈南](/rehacq_fan/people/奥井奈南): 1.56 (10)
-1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 1.53 (34)
+1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 1.52 (34)
 1. [東出昌大](/rehacq_fan/people/東出昌大): 1.52 (21)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 1.51 (32)
 1. [スーツ](/rehacq_fan/people/スーツ): 1.46 (20)
@@ -36,11 +36,11 @@
 
 # 平均いいね数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 13,573 (12)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 13,572 (12)
 1. [石丸伸二](/rehacq_fan/people/石丸伸二): 11,900 (171)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 8,254 (29)
 1. [今野忍](/rehacq_fan/people/今野忍): 8,206 (45)
-1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 7,933 (34)
+1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 7,937 (34)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 7,634 (32)
 1. [西田亮介](/rehacq_fan/people/西田亮介): 7,396 (178)
 1. [東出昌大](/rehacq_fan/people/東出昌大): 7,038 (21)
@@ -60,19 +60,19 @@
 
 # 平均視聴数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 697,077 (12)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 697,090 (12)
 1. [今野忍](/rehacq_fan/people/今野忍): 620,673 (45)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 576,017 (171)
-1. [西田亮介](/rehacq_fan/people/西田亮介): 563,902 (178)
-1. [ひろゆき](/rehacq_fan/people/ひろゆき): 528,192 (253)
-1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 519,858 (34)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 576,019 (171)
+1. [西田亮介](/rehacq_fan/people/西田亮介): 563,904 (178)
+1. [ひろゆき](/rehacq_fan/people/ひろゆき): 528,302 (253)
+1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 520,661 (34)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 515,383 (12)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 509,121 (29)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 506,153 (32)
 1. [東出昌大](/rehacq_fan/people/東出昌大): 461,805 (21)
 1. [野村泰紀](/rehacq_fan/people/野村泰紀): 441,437 (29)
 1. [テスタ](/rehacq_fan/people/テスタ): 427,329 (12)
-1. [宇佐美典也](/rehacq_fan/people/宇佐美典也): 416,919 (13)
+1. [宇佐美典也](/rehacq_fan/people/宇佐美典也): 416,921 (13)
 1. [河村真木子](/rehacq_fan/people/河村真木子): 410,775 (10)
 1. [土田しん](/rehacq_fan/people/土田しん): 410,512 (14)
 1. [ふゆこ](/rehacq_fan/people/ふゆこ): 395,647 (12)
