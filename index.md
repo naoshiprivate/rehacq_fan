@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【呉座勇一vs高橋弘樹】戦国最大の誤解…武田信玄v s上杉謙信、一騎打ちの真実とは？【ReHacQ】](/rehacq_fan/ids/aGUiGGYEWVs "wikilink")
+    -   公開日: 2026-06-26
+    -   視聴数: 1
+    -   **いいね数: 15**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/aGUiGGYEWVs/hqdefault.jpg)](https://www.youtube.com/watch?v=aGUiGGYEWVs)
 1.  [【金利１％】ゼロ金利時代の終わり…日本経済の大転換点！？元日銀審議委員が徹底分析【原田泰＆永濱利廣＆森本智子＆ReHacQ】](/rehacq_fan/ids/xZTCf7y1kJo "wikilink")
     -   公開日: 2026-06-26
-    -   視聴数: 3,832
-    -   **いいね数: 81**
+    -   視聴数: 6,610
+    -   **いいね数: 132**
     -   出演者: 
     - [![](https://img.youtube.com/vi/xZTCf7y1kJo/hqdefault.jpg)](https://www.youtube.com/watch?v=xZTCf7y1kJo)
 1.  [【後藤達也vs安倍晋三のブレーン】高市政権への提言！サナエノミクス今後どうなる？【ReHacQ高橋弘樹vs本田悦朗】](/rehacq_fan/ids/ts5L6Gr-GwU "wikilink")
     -   公開日: 2026-06-26
-    -   視聴数: 8,271
-    -   **いいね数: 254**
+    -   視聴数: 11,431
+    -   **いいね数: 293**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ts5L6Gr-GwU/hqdefault.jpg)](https://www.youtube.com/watch?v=ts5L6Gr-GwU)
 1.  [【ReHacQ討論会】調布市長選挙ネット討論会【高橋弘樹vsいそべ隆vs井上こうしvs木下やすこvs林あきひろ】](/rehacq_fan/ids/8ImPDE44Ez4 "wikilink")
     -   公開日: 2026-06-25
-    -   視聴数: 13,968
-    -   **いいね数: 157**
+    -   視聴数: 14,116
+    -   **いいね数: 159**
     -   出演者: 
     - [![](https://img.youtube.com/vi/8ImPDE44Ez4/hqdefault.jpg)](https://www.youtube.com/watch?v=8ImPDE44Ez4)
 1.  [【高橋弘樹vs休養】休めない現代人…休養の質高めるには？【ReHacQvs今野忍vs片野秀樹vs菱沼信之】](/rehacq_fan/ids/Wytuf5ljmh0 "wikilink")
     -   公開日: 2026-06-25
-    -   視聴数: 60,275
-    -   **いいね数: 872**
+    -   視聴数: 61,151
+    -   **いいね数: 880**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Wytuf5ljmh0/hqdefault.jpg)](https://www.youtube.com/watch?v=Wytuf5ljmh0)
-1.  [【チームみらい】 比例定数削減の受け止めは？ 来年の統一地方選挙について【ReHacQ記者会見 6月25日(木)】](/rehacq_fan/ids/RnLA0ufGnaA "wikilink")
-    -   公開日: 2026-06-25
-    -   視聴数: 8,335
-    -   **いいね数: 172**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/RnLA0ufGnaA/hqdefault.jpg)](https://www.youtube.com/watch?v=RnLA0ufGnaA)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -46,8 +46,8 @@
     - [![](https://img.youtube.com/vi/LFDdFaHyDMU/hqdefault.jpg)](https://www.youtube.com/watch?v=LFDdFaHyDMU)
 1.  [【ReHacQ生配信】視聴者の気になるニュースにガチ回答！【ひろゆき&今野忍&高橋弘樹】](/rehacq_fan/ids/eA4nr7D3Mqg "wikilink")
     -   公開日: 2026-06-06
-    -   視聴数: 531,191
-    -   **いいね数: 5,337**
+    -   視聴数: 538,327
+    -   **いいね数: 5,360**
     -   出演者: 
     - [![](https://img.youtube.com/vi/eA4nr7D3Mqg/hqdefault.jpg)](https://www.youtube.com/watch?v=eA4nr7D3Mqg)
 1.  [【溝口勇児vs箕輪厚介】まったり緊急生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/gyvnXxO7I10 "wikilink")
@@ -76,23 +76,23 @@
 ## 時系列データ
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 80, 視聴数: 10,208,780, いいね数: 151,008
+-   動画数: 80, 視聴数: 10,232,030, いいね数: 151,163
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 23,302,149, いいね数: 388,443
+-   動画数: 111, 視聴数: 23,303,358, いいね数: 388,461
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 23,439,938, いいね数: 365,022
+-   動画数: 96, 視聴数: 23,442,303, いいね数: 365,023
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 20,177,227, いいね数: 272,312
+-   動画数: 89, 視聴数: 20,203,974, いいね数: 272,380
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 24,961,327, いいね数: 360,038
+-   動画数: 98, 視聴数: 24,963,468, いいね数: 360,047
 
 #### [2026年01月](videos/202601 "wikilink")
 
@@ -112,15 +112,15 @@
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 18,227,876, いいね数: 282,912
+-   動画数: 87, 視聴数: 18,227,915, いいね数: 282,912
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 16,610,341, いいね数: 271,960
+-   動画数: 65, 視聴数: 16,610,671, いいね数: 271,964
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 23,110,170, いいね数: 384,342
+-   動画数: 76, 視聴数: 23,110,241, いいね数: 384,336
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -156,7 +156,7 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,393,189, いいね数: 344,558
+-   動画数: 72, 視聴数: 23,393,440, いいね数: 344,560
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -235,4 +235,4 @@
 -   動画数: 14, 視聴数: 8,212,759, いいね数: 142,006
 
 ---
-2026-06-26 21:00
+2026-06-26 22:00
