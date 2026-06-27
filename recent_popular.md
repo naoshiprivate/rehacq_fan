@@ -6,8 +6,8 @@
     - [![](https://img.youtube.com/vi/OPGzdWsRoe0/hqdefault.jpg)](https://www.youtube.com/watch?v=OPGzdWsRoe0)
 1.  [【ReHacQ生配信】SNS誹謗中傷について【高橋弘樹vsいさ進一vs今野忍vs西田亮介】](/rehacq_fan/ids/LFDdFaHyDMU "wikilink")
     -   公開日: 2026-06-08
-    -   視聴数: 575,690
-    -   **いいね数: 11,230**
+    -   視聴数: 588,653
+    -   **いいね数: 11,417**
     -   出演者: 
     - [![](https://img.youtube.com/vi/LFDdFaHyDMU/hqdefault.jpg)](https://www.youtube.com/watch?v=LFDdFaHyDMU)
 1.  [【ReHacQ生配信】視聴者の気になるニュースにガチ回答！【ひろゆき&今野忍&高橋弘樹】](/rehacq_fan/ids/eA4nr7D3Mqg "wikilink")
