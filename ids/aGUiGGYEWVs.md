@@ -1,6 +1,6 @@
 ### [【呉座勇一vs高橋弘樹】戦国最大の誤解…武田信玄v s上杉謙信、一騎打ちの真実とは？【ReHacQ】](https://www.youtube.com/watch?v=aGUiGGYEWVs)
 [![](https://img.youtube.com/vi/aGUiGGYEWVs/sddefault.jpg)](https://www.youtube.com/watch?v=aGUiGGYEWVs)
 -   公開日: 2026-06-26
--   視聴数: 144,666
--   **いいね数: 2,213**
+-   視聴数: 148,397
+-   **いいね数: 2,239**
 -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
