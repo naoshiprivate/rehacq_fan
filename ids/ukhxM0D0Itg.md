@@ -3,4 +3,4 @@
 -   公開日: 2026-05-12
 -   視聴数: 506,391
 -   **いいね数: 18,477**
--   出演者: 小泉勇人, 桑田龍征, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石黒英雄, 雫石将克, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: 小泉勇人, 桑田龍征, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石黒英雄, [雫石将克](/rehacq_fan/people/雫石将克 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

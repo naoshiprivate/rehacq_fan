@@ -3,4 +3,4 @@
 -   公開日: 2026-05-02
 -   視聴数: 135,962
 -   **いいね数: 3,561**
--   出演者: 雫石将克, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [雫石将克](/rehacq_fan/people/雫石将克 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

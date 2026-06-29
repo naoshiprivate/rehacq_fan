@@ -197,8 +197,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](/rehacq_fan/ids/2XMbvuYkbeQ "wikilink")
     -   公開日: 2023-12-28
-    -   視聴数: 1,171,084
-    -   **いいね数: 21,828**
+    -   視聴数: 1,172,412
+    -   **いいね数: 21,848**
     -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【石丸新党は？記者会見】なぜテレ朝に激怒？謎だらけ新党の全容は？【ReHacQSP】](/rehacq_fan/ids/lM0cVpbgv5w "wikilink")
     -   公開日: 2025-01-15
@@ -337,14 +337,14 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](/rehacq_fan/ids/RwjSzGvyEoA "wikilink")
     -   公開日: 2025-06-10
-    -   視聴数: 1,064,320
-    -   **いいね数: 18,634**
+    -   視聴数: 1,068,857
+    -   **いいね数: 18,674**
     -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【恋愛病院 特別編】男子メンバー集結！2泊3日のリハビリ生活から4ヶ月以上経った今、何を語るのか…？【ReHacQ 高橋弘樹】](/rehacq_fan/ids/ukhxM0D0Itg "wikilink")
     -   公開日: 2026-05-12
     -   視聴数: 506,391
     -   **いいね数: 18,477**
-    -   出演者: 小泉勇人, 桑田龍征, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石黒英雄, 雫石将克, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    -   出演者: 小泉勇人, 桑田龍征, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石黒英雄, [雫石将克](/rehacq_fan/people/雫石将克 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](/rehacq_fan/ids/KihRlwlSPCI "wikilink")
     -   公開日: 2025-07-12
     -   視聴数: 629,263
