@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/T2SukE6-HH8/sddefault.jpg)](https://www.youtube.com/watch?v=T2SukE6-HH8)
 -   公開日: 2025-06-10
 -   視聴数: 212,531
--   **いいね数: 2,257**
+-   **いいね数: 2,256**
 -   出演者: 山尾しおり
