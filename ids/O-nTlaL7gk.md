@@ -1,0 +1,6 @@
+### [【ReHacQvs仕事術】Googleが採用！最強マネジメント手法徹底解説！管理職として知っておくべきことは？【雫石将克&中谷公三&諸橋峰雄&水野ジュンイチロ】](https://www.youtube.com/watch?v=_O-nTlaL7gk)
+[![](https://img.youtube.com/vi/_O-nTlaL7gk/sddefault.jpg)](https://www.youtube.com/watch?v=_O-nTlaL7gk)
+-   公開日: 2026-06-29
+-   視聴数: 3,034
+-   **いいね数: 126**
+-   出演者: 

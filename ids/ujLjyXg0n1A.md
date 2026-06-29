@@ -3,4 +3,4 @@
 -   公開日: 2025-10-30
 -   視聴数: 236,041
 -   **いいね数: 6,621**
--   出演者: 志位和夫, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
+-   出演者: [志位和夫](/rehacq_fan/people/志位和夫 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
