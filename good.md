@@ -452,8 +452,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【東出昌大vs石丸伸二】幸せとは？キャリア捨て…異質な道選んだ2人の幸福論！ちょいズレキャリア塾【ReHacQ高橋弘樹】](/rehacq_fan/ids/K-27iBFVXfo "wikilink")
     -   公開日: 2025-03-08
-    -   視聴数: 950,860
-    -   **いいね数: 16,615**
+    -   視聴数: 959,174
+    -   **いいね数: 16,672**
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【辺野古沖事故】あの日一体何が？積み重ねた証言で見えてきたあの日の「海」＆辺野古住民の“本音”【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/sgFpR-0dGtQ "wikilink")
     -   公開日: 2026-05-18
