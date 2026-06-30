@@ -3,4 +3,4 @@
 -   公開日: 2026-06-15
 -   視聴数: 122,639
 -   **いいね数: 1,543**
--   出演者: 
+-   出演者: [ミムラユウスケ](/rehacq_fan/people/ミムラユウスケ "wikilink"), [小泉勇人](/rehacq_fan/people/小泉勇人 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西大伍](/rehacq_fan/people/西大伍 "wikilink")

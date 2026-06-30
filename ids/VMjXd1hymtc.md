@@ -3,4 +3,4 @@
 -   公開日: 2026-05-01
 -   視聴数: 127,255
 -   **いいね数: 3,372**
--   出演者: 小泉勇人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [小泉勇人](/rehacq_fan/people/小泉勇人 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
