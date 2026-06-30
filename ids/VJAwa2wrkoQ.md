@@ -3,4 +3,4 @@
 -   公開日: 2026-06-16
 -   視聴数: 147,009
 -   **いいね数: 4,992**
--   出演者: 
+-   出演者: [志位和夫](/rehacq_fan/people/志位和夫 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [石破茂](/rehacq_fan/people/石破茂 "wikilink")

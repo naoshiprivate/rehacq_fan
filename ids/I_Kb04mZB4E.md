@@ -3,4 +3,4 @@
 -   公開日: 2026-06-19
 -   視聴数: 58,846
 -   **いいね数: 567**
--   出演者: 
+-   出演者: [山口真由](/rehacq_fan/people/山口真由 "wikilink"), 岡崎康平, [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
