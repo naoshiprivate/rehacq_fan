@@ -3,4 +3,4 @@
 -   公開日: 2026-06-12
 -   視聴数: 42,640
 -   **いいね数: 548**
--   出演者: 
+-   出演者: [東留伽](/rehacq_fan/people/東留伽 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [窪田真之](/rehacq_fan/people/窪田真之 "wikilink")
