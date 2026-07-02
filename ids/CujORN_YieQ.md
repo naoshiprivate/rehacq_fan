@@ -3,4 +3,4 @@
 -   公開日: 2026-05-08
 -   視聴数: 178,121
 -   **いいね数: 1,503**
--   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 高橋陽介
+-   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), [高橋陽介](/rehacq_fan/people/高橋陽介 "wikilink")

@@ -3,4 +3,4 @@
 -   公開日: 2026-06-14
 -   視聴数: 107,297
 -   **いいね数: 1,435**
--   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 高橋陽介
+-   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), [高橋陽介](/rehacq_fan/people/高橋陽介 "wikilink")

@@ -8,13 +8,13 @@
     -   公開日: 2026-06-08
     -   視聴数: 588,653
     -   **いいね数: 11,417**
-    -   出演者: 
+    -   出演者: [いさ進一](/rehacq_fan/people/いさ進一 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/LFDdFaHyDMU/hqdefault.jpg)](https://www.youtube.com/watch?v=LFDdFaHyDMU)
 1.  [【ReHacQ生配信】視聴者の気になるニュースにガチ回答！【ひろゆき&今野忍&高橋弘樹】](/rehacq_fan/ids/eA4nr7D3Mqg "wikilink")
     -   公開日: 2026-06-06
     -   視聴数: 538,327
     -   **いいね数: 5,360**
-    -   出演者: 
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/eA4nr7D3Mqg/hqdefault.jpg)](https://www.youtube.com/watch?v=eA4nr7D3Mqg)
 1.  [【溝口勇児vs箕輪厚介】まったり緊急生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/gyvnXxO7I10 "wikilink")
     -   公開日: 2026-06-05
