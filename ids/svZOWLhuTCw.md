@@ -1,6 +1,6 @@
 ### [【日本維新の会】国民の総意とは？ 皇室典範について【ReHacQ記者会見 7月1日(水)】](https://www.youtube.com/watch?v=svZOWLhuTCw)
 [![](https://img.youtube.com/vi/svZOWLhuTCw/sddefault.jpg)](https://www.youtube.com/watch?v=svZOWLhuTCw)
 -   公開日: 2026-07-01
--   視聴数: 8,072
+-   視聴数: 8,152
 -   **いいね数: 130**
 -   出演者: 
