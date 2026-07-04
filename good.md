@@ -150,6 +150,11 @@
     -   視聴数: 1,263,062
     -   **いいね数: 24,503**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vs京大名誉教授】完全解説！迫る南海トラフ・首都直下型地震・富士山噴火...国民半分が被災？国家機能は停止し300兆円の損失？安全な都市とは...【ReHacQvs鎌田浩毅】](/rehacq_fan/ids/OaraOYMIles "wikilink")
+    -   公開日: 2026-03-10
+    -   視聴数: 2,268,336
+    -   **いいね数: 24,090**
+    -   出演者: 鎌田浩毅, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsデヴィ夫人】激怒‥国家観なき政治家は去れ？！ガチ放談【リハックマ】](/rehacq_fan/ids/XJbgK1m8j2Q "wikilink")
     -   公開日: 2024-06-23
     -   視聴数: 2,122,622
@@ -180,11 +185,6 @@
     -   視聴数: 2,694,716
     -   **いいね数: 22,547**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs京大名誉教授】完全解説！迫る南海トラフ・首都直下型地震・富士山噴火...国民半分が被災？国家機能は停止し300兆円の損失？安全な都市とは...【ReHacQvs鎌田浩毅】](/rehacq_fan/ids/OaraOYMIles "wikilink")
-    -   公開日: 2026-03-10
-    -   視聴数: 1,958,488
-    -   **いいね数: 22,457**
-    -   出演者: 鎌田浩毅, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン・サックス】年収3億だけど「二度と戻りたくない」外資系投資会社で感じた限界とは？【ReHacQ】](/rehacq_fan/ids/dKXQC1J0VLw "wikilink")
     -   公開日: 2025-07-29
     -   視聴数: 1,797,489
@@ -195,6 +195,11 @@
     -   視聴数: 871,389
     -   **いいね数: 22,077**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【坂上忍vsひろゆきvs箕輪厚介】動物に年間１億円！？保護犬保護猫の闇…芸能活動引退後を語る【ReHacQ】](/rehacq_fan/ids/E4WP-h_fhUc "wikilink")
+    -   公開日: 2026-05-10
+    -   視聴数: 1,515,254
+    -   **いいね数: 22,010**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](/rehacq_fan/ids/2XMbvuYkbeQ "wikilink")
     -   公開日: 2023-12-28
     -   視聴数: 1,172,412
@@ -225,11 +230,6 @@
     -   視聴数: 1,369,277
     -   **いいね数: 21,422**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【坂上忍vsひろゆきvs箕輪厚介】動物に年間１億円！？保護犬保護猫の闇…芸能活動引退後を語る【ReHacQ】](/rehacq_fan/ids/E4WP-h_fhUc "wikilink")
-    -   公開日: 2026-05-10
-    -   視聴数: 1,455,209
-    -   **いいね数: 21,388**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](/rehacq_fan/ids/-67Yfoti-W0 "wikilink")
     -   公開日: 2024-08-07
     -   視聴数: 1,203,106

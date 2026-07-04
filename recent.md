@@ -1,31 +1,31 @@
 1.  [【コムドットやまとvs学歴厨】学歴が人生変える？学生に伝えたい残酷な真実【ReHacQvs雷獣・ベテランち・wakatte.TV高田ふーみん・えびじゃ森山・須賀ありさ】](/rehacq_fan/ids/QcaU2gDrt8g "wikilink")
     -   公開日: 2026-07-04
-    -   視聴数: 11,552
-    -   **いいね数: 606**
+    -   視聴数: 17,704
+    -   **いいね数: 905**
     -   出演者: 
     - [![](https://img.youtube.com/vi/QcaU2gDrt8g/hqdefault.jpg)](https://www.youtube.com/watch?v=QcaU2gDrt8g)
 1.  [【今野忍vs高橋弘樹】政治は推し活？SNS時代の政治、若者の本音とは？【村井英樹vsReHacQ】](/rehacq_fan/ids/O0pkrs2Tj-s "wikilink")
     -   公開日: 2026-07-04
-    -   視聴数: 34,252
-    -   **いいね数: 692**
+    -   視聴数: 37,284
+    -   **いいね数: 727**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 村井英樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 髙子景
     - [![](https://img.youtube.com/vi/O0pkrs2Tj-s/hqdefault.jpg)](https://www.youtube.com/watch?v=O0pkrs2Tj-s)
 1.  [【ひろゆきvsドローン戦争】衝撃映像も…ウクライナで今何が？自衛隊も学ぶ専門家が語る国防の盲点【ReHacQ須賀川拓vs横田徹vs平田知義vs谷川ひとみ】](/rehacq_fan/ids/7SyDrCLL-UU "wikilink")
     -   公開日: 2026-07-03
-    -   視聴数: 71,973
-    -   **いいね数: 1,134**
+    -   視聴数: 73,264
+    -   **いいね数: 1,154**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 平田知義, 横田徹, 谷川ひとみ, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/7SyDrCLL-UU/hqdefault.jpg)](https://www.youtube.com/watch?v=7SyDrCLL-UU)
 1.  [【日米で沸き立つ景気】強気相場の最終局面！？米ISM・雇用統計・日銀短観…株価を動かす次の波とは？【木野内栄治＆永濱利廣＆馬渕磨理子＆ReHacQ】](/rehacq_fan/ids/fjv_u4p20jk "wikilink")
     -   公開日: 2026-07-03
-    -   視聴数: 92,333
-    -   **いいね数: 1,875**
+    -   視聴数: 95,298
+    -   **いいね数: 1,917**
     -   出演者: [木野内栄治](/rehacq_fan/people/木野内栄治 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [馬渕磨理子](/rehacq_fan/people/馬渕磨理子 "wikilink")
     - [![](https://img.youtube.com/vi/fjv_u4p20jk/hqdefault.jpg)](https://www.youtube.com/watch?v=fjv_u4p20jk)
 1.  [【ReHacQvs元UBS証券】なぜ世界的金融機関を辞めた？メディア初告白…二児の母・超バリキャリ女性18年目の決断【花岡恵梨子】](/rehacq_fan/ids/FtvVkuFRcv8 "wikilink")
     -   公開日: 2026-07-03
-    -   視聴数: 31,339
-    -   **いいね数: 406**
+    -   視聴数: 31,772
+    -   **いいね数: 413**
     -   出演者: リハックマ, 花岡恵梨子
     - [![](https://img.youtube.com/vi/FtvVkuFRcv8/hqdefault.jpg)](https://www.youtube.com/watch?v=FtvVkuFRcv8)
 
