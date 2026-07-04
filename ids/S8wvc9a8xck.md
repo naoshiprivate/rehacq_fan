@@ -3,4 +3,4 @@
 -   公開日: 2026-01-23
 -   視聴数: 69,667
 -   **いいね数: 861**
--   出演者: 本田悦朗, [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [馬渕磨理子](/rehacq_fan/people/馬渕磨理子 "wikilink")
+-   出演者: [本田悦朗](/rehacq_fan/people/本田悦朗 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [馬渕磨理子](/rehacq_fan/people/馬渕磨理子 "wikilink")

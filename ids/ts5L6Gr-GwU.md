@@ -3,4 +3,4 @@
 -   公開日: 2026-06-26
 -   視聴数: 46,659
 -   **いいね数: 716**
--   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 本田悦朗
+-   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [本田悦朗](/rehacq_fan/people/本田悦朗 "wikilink")
