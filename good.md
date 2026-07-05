@@ -297,8 +297,8 @@
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
     -   公開日: 2023-11-01
-    -   視聴数: 1,107,356
-    -   **いいね数: 19,087**
+    -   視聴数: 1,109,658
+    -   **いいね数: 19,107**
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
     -   公開日: 2025-11-21
@@ -307,8 +307,8 @@
     -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ生配信】日本保守党にガチ質問...衆院選2026【百田尚樹vs高橋弘樹】](/rehacq_fan/ids/cYLcT1fhacw "wikilink")
     -   公開日: 2026-02-04
-    -   視聴数: 411,455
-    -   **いいね数: 18,860**
+    -   視聴数: 411,560
+    -   **いいね数: 18,849**
     -   出演者: 百田尚樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs国民民主党】衝撃的!日本倍増計画とは?【玉木雄一郎の野望 episode2】](/rehacq_fan/ids/EYKExpig3-4 "wikilink")
     -   公開日: 2023-05-28
@@ -325,16 +325,16 @@
     -   視聴数: 817,759
     -   **いいね数: 18,789**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+1.  [【成田悠輔の推薦】ビジネスと量子力学！超弦理論の謎【野村泰紀と宇宙】](/rehacq_fan/ids/lp7PPFsnQAE "wikilink")
+    -   公開日: 2023-07-14
+    -   視聴数: 1,752,399
+    -   **いいね数: 18,783**
+    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二が唖然】結婚報告東出昌大！衝撃告白…幸せな人生とは？【世界の果てに、東出・ひろゆき置いてきた】](/rehacq_fan/ids/8xFzx_lOouI "wikilink")
     -   公開日: 2024-08-27
     -   視聴数: 900,403
     -   **いいね数: 18,772**
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【成田悠輔の推薦】ビジネスと量子力学！超弦理論の謎【野村泰紀と宇宙】](/rehacq_fan/ids/lp7PPFsnQAE "wikilink")
-    -   公開日: 2023-07-14
-    -   視聴数: 1,748,406
-    -   **いいね数: 18,755**
-    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](/rehacq_fan/ids/RwjSzGvyEoA "wikilink")
     -   公開日: 2025-06-10
     -   視聴数: 1,068,857
@@ -407,8 +407,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【成田悠輔が推薦】動きに注目！天才物理学者の楽しすぎる量子力学入門【野村泰紀・宇宙とは？】](/rehacq_fan/ids/5iuWBR80ZWs "wikilink")
     -   公開日: 2023-07-07
-    -   視聴数: 1,175,985
-    -   **いいね数: 17,161**
+    -   視聴数: 1,178,864
+    -   **いいね数: 17,183**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsボビー・オロゴン】兄弟34人！父のスパルタ教育とは？【ガチの一夫多妻制】](/rehacq_fan/ids/hvJ0lBxFILU "wikilink")
     -   公開日: 2024-08-04

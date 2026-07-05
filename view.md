@@ -167,8 +167,8 @@
     -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔の推薦】ビジネスと量子力学！超弦理論の謎【野村泰紀と宇宙】](/rehacq_fan/ids/lp7PPFsnQAE "wikilink")
     -   公開日: 2023-07-14
-    -   視聴数: 1,748,406
-    -   **いいね数: 18,755**
+    -   視聴数: 1,752,399
+    -   **いいね数: 18,783**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
     -   公開日: 2024-09-10
@@ -377,8 +377,8 @@
     -   出演者: 小林弘幸, [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
 1.  [【成田悠輔が推薦】動きに注目！天才物理学者の楽しすぎる量子力学入門【野村泰紀・宇宙とは？】](/rehacq_fan/ids/5iuWBR80ZWs "wikilink")
     -   公開日: 2023-07-07
-    -   視聴数: 1,175,985
-    -   **いいね数: 17,161**
+    -   視聴数: 1,178,864
+    -   **いいね数: 17,183**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](/rehacq_fan/ids/2XMbvuYkbeQ "wikilink")
     -   公開日: 2023-12-28
@@ -477,8 +477,8 @@
     -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
     -   公開日: 2023-11-01
-    -   視聴数: 1,107,356
-    -   **いいね数: 19,087**
+    -   視聴数: 1,109,658
+    -   **いいね数: 19,107**
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【参院選2025】自公大敗…どうなる？まったり雑談【ReHacQ】](/rehacq_fan/ids/nqXDm5gzm7g "wikilink")
     -   公開日: 2025-07-20
