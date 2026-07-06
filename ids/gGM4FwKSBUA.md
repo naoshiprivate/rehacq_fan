@@ -1,6 +1,6 @@
 ### [【ReHacQvs子育て】全米No.1校が教える！科学的に正しいエリートの育て方！？悩みを抱えた子どもを救う言葉とは【星友啓&尾崎里紗】](https://www.youtube.com/watch?v=gGM4FwKSBUA)
 [![](https://img.youtube.com/vi/gGM4FwKSBUA/sddefault.jpg)](https://www.youtube.com/watch?v=gGM4FwKSBUA)
 -   公開日: 2026-05-17
--   視聴数: 77,733
--   **いいね数: 791**
+-   視聴数: 78,440
+-   **いいね数: 794**
 -   出演者: [尾崎里紗](/rehacq_fan/people/尾崎里紗 "wikilink"), 星友啓
