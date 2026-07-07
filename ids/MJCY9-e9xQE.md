@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/MJCY9-e9xQE/sddefault.jpg)](https://www.youtube.com/watch?v=MJCY9-e9xQE)
 -   公開日: 2025-06-04
 -   視聴数: 120,857
--   **いいね数: 1,377**
+-   **いいね数: 1,376**
 -   出演者: 李相哲, 権容奭, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
