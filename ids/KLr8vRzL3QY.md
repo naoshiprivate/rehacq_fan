@@ -3,4 +3,4 @@
 -   公開日: 2026-07-04
 -   視聴数: 173,304
 -   **いいね数: 4,001**
--   出演者: 
+-   出演者: [みねしま侑也](/rehacq_fan/people/みねしま侑也 "wikilink"), [和田政宗](/rehacq_fan/people/和田政宗 "wikilink"), [森ようすけ](/rehacq_fan/people/森ようすけ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

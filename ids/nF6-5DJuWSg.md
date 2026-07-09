@@ -3,4 +3,4 @@
 -   公開日: 2024-05-22
 -   視聴数: 95,864
 -   **いいね数: 1,110**
--   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), 田内学
+-   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [田内学](/rehacq_fan/people/田内学 "wikilink")

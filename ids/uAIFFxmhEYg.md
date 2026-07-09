@@ -3,4 +3,4 @@
 -   公開日: 2025-08-06
 -   視聴数: 320,727
 -   **いいね数: 3,996**
--   出演者: 本郷和人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [本郷和人](/rehacq_fan/people/本郷和人 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

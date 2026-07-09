@@ -3,4 +3,4 @@
 -   公開日: 2023-04-09
 -   視聴数: 207,371
 -   **いいね数: 3,070**
--   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 和田政宗, 赤川学
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [和田政宗](/rehacq_fan/people/和田政宗 "wikilink"), 赤川学

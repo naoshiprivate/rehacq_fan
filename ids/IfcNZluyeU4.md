@@ -3,4 +3,4 @@
 -   公開日: 2026-07-05
 -   視聴数: 171,714
 -   **いいね数: 2,712**
--   出演者: 
+-   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
