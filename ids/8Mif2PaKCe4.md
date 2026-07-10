@@ -3,4 +3,4 @@
 -   公開日: 2025-04-27
 -   視聴数: 511,869
 -   **いいね数: 7,064**
--   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 岡本三成, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [岡本三成](/rehacq_fan/people/岡本三成 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")

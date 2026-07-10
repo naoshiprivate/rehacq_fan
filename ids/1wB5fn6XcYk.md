@@ -3,4 +3,4 @@
 -   公開日: 2026-07-05
 -   視聴数: 93,778
 -   **いいね数: 1,266**
--   出演者: [川邊健太郎](/rehacq_fan/people/川邊健太郎 "wikilink")
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [川邊健太郎](/rehacq_fan/people/川邊健太郎 "wikilink")
