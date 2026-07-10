@@ -1,6 +1,6 @@
 ### [【長期金利上昇】中東再び緊迫でインフレ懸念…30年ぶり一時2.9%で家計は守りの投資が急務？【宮嵜浩＆永濱利廣&森本智子&ReHacQ】](https://www.youtube.com/watch?v=sK_zRxQ3z60)
 [![](https://img.youtube.com/vi/sK_zRxQ3z60/sddefault.jpg)](https://www.youtube.com/watch?v=sK_zRxQ3z60)
 -   公開日: 2026-07-10
--   視聴数: 14,666
--   **いいね数: 174**
+-   視聴数: 16,251
+-   **いいね数: 183**
 -   出演者: 
