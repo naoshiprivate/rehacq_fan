@@ -3,4 +3,4 @@
 -   公開日: 2025-08-10
 -   視聴数: 539,763
 -   **いいね数: 6,792**
--   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [スーツ](/rehacq_fan/people/スーツ "wikilink"), 五十嵐立青, 小林伸行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [スーツ](/rehacq_fan/people/スーツ "wikilink"), 五十嵐立青, [小林伸行](/rehacq_fan/people/小林伸行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
