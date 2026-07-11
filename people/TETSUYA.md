@@ -1,8 +1,8 @@
 # TETSUYAの出演動画
 
 - 出演本数: 6
-- 平均視聴数: 173,901
-- 平均いいね数: 2,055
+- 平均視聴数: 174,012
+- 平均いいね数: 2,056
 - [エンゲージメント](/rehacq_fan/engagement) (いいね/視聴数x100): 1.18
 
 
@@ -22,24 +22,24 @@
     - [![](https://img.youtube.com/vi/JQaEQQSnGT8/hqdefault.jpg)](https://www.youtube.com/watch?v=JQaEQQSnGT8)
 1.  [【ひろゆき&EXILE】落ちたら即死!断崖絶壁の道の先にあるものとは…【アフリカガーナ秘境旅④】](/rehacq_fan/ids/W3uF1e8-pw8 "wikilink")
     -   公開日: 2025-01-26
-    -   視聴数: 91,129
+    -   視聴数: 91,188
     -   **いいね数: 1,263**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
     - [![](https://img.youtube.com/vi/W3uF1e8-pw8/hqdefault.jpg)](https://www.youtube.com/watch?v=W3uF1e8-pw8)
 1.  [【ひろゆき&EXILE】秘境の地にワクチンを！最先端ドローンの実態【アフリカガーナ旅③】](/rehacq_fan/ids/Dfh9LTFtNRs "wikilink")
     -   公開日: 2025-01-18
-    -   視聴数: 111,697
-    -   **いいね数: 1,705**
+    -   視聴数: 111,785
+    -   **いいね数: 1,706**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
     - [![](https://img.youtube.com/vi/Dfh9LTFtNRs/hqdefault.jpg)](https://www.youtube.com/watch?v=Dfh9LTFtNRs)
 1.  [【ひろゆき&EXILE】なぜ？世界最大級のゴミ山で生きるワケ【アフリカガーナ旅②】](/rehacq_fan/ids/nJDdh9Mi1M0 "wikilink")
     -   公開日: 2025-01-10
-    -   視聴数: 200,276
-    -   **いいね数: 2,543**
+    -   視聴数: 200,442
+    -   **いいね数: 2,544**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
     - [![](https://img.youtube.com/vi/nJDdh9Mi1M0/hqdefault.jpg)](https://www.youtube.com/watch?v=nJDdh9Mi1M0)
 1.  [【ひろゆき&EXILE】毒ガスの町へ…なぜそこに住む？アフリカ・ガーナ編始動【ReHacQ旅】](/rehacq_fan/ids/8T3GTN11i-U "wikilink")
     -   公開日: 2025-01-03
-    -   視聴数: 402,432
-    -   **いいね数: 4,563**
+    -   視聴数: 402,786
+    -   **いいね数: 4,565**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
