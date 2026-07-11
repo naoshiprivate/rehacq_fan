@@ -3,4 +3,4 @@
 -   公開日: 2026-05-30
 -   視聴数: 290,309
 -   **いいね数: 8,347**
--   出演者: 
+-   出演者: [池田陽花](/rehacq_fan/people/池田陽花 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")

@@ -3,4 +3,4 @@
 -   公開日: 2026-05-13
 -   視聴数: 449,339
 -   **いいね数: 5,536**
--   出演者: [千間泉実](/rehacq_fan/people/千間泉実 "wikilink"), 平川愛里菜, 池田陽花, [神谷明采](/rehacq_fan/people/神谷明采 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), 辰巳奈都子
+-   出演者: [千間泉実](/rehacq_fan/people/千間泉実 "wikilink"), 平川愛里菜, [池田陽花](/rehacq_fan/people/池田陽花 "wikilink"), [神谷明采](/rehacq_fan/people/神谷明采 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), 辰巳奈都子

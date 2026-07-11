@@ -3,4 +3,4 @@
 -   公開日: 2026-05-29
 -   視聴数: 64,689
 -   **いいね数: 964**
--   出演者: 
+-   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), 鈴木一之

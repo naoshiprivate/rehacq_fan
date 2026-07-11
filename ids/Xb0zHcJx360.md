@@ -3,4 +3,4 @@
 -   公開日: 2026-05-27
 -   視聴数: 195,656
 -   **いいね数: 3,531**
--   出演者: 
+-   出演者: [ちょる子](/rehacq_fan/people/ちょる子 "wikilink"), [朝倉慶](/rehacq_fan/people/朝倉慶 "wikilink")
