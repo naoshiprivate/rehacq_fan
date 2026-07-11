@@ -3,4 +3,4 @@
 -   公開日: 2025-12-02
 -   視聴数: 37,061
 -   **いいね数: 264**
--   出演者: 前田和馬, 宮嶋貴之, [森本智子](/rehacq_fan/people/森本智子 "wikilink")
+-   出演者: 前田和馬, [宮嶋貴之](/rehacq_fan/people/宮嶋貴之 "wikilink"), [森本智子](/rehacq_fan/people/森本智子 "wikilink")

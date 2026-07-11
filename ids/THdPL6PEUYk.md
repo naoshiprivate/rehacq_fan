@@ -3,4 +3,4 @@
 -   公開日: 2025-03-28
 -   視聴数: 530,072
 -   **いいね数: 5,886**
--   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 溝口勇児, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [溝口勇児](/rehacq_fan/people/溝口勇児 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

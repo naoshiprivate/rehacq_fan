@@ -3,4 +3,4 @@
 -   公開日: 2026-06-06
 -   視聴数: 356,145
 -   **いいね数: 4,473**
--   出演者: 
+-   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

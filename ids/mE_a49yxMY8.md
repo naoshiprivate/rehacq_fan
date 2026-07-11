@@ -3,4 +3,4 @@
 -   公開日: 2026-05-31
 -   視聴数: 426,221
 -   **いいね数: 7,159**
--   出演者: 
+-   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")

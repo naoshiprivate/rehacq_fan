@@ -3,4 +3,4 @@
 -   公開日: 2025-08-29
 -   視聴数: 31,401
 -   **いいね数: 231**
--   出演者: 宮嶋貴之, [横川楓](/rehacq_fan/people/横川楓 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
+-   出演者: [宮嶋貴之](/rehacq_fan/people/宮嶋貴之 "wikilink"), [横川楓](/rehacq_fan/people/横川楓 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
