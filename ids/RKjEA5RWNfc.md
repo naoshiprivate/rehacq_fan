@@ -3,4 +3,4 @@
 -   公開日: 2026-05-24
 -   視聴数: 475,857
 -   **いいね数: 11,602**
--   出演者: 
+-   出演者: [やまと](/rehacq_fan/people/やまと "wikilink"), [ベテランち](/rehacq_fan/people/ベテランち "wikilink"), [高田ふーみん](/rehacq_fan/people/高田ふーみん "wikilink")

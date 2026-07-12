@@ -3,4 +3,4 @@
 -   公開日: 2026-06-17
 -   視聴数: 363,085
 -   **いいね数: 4,156**
--   出演者: 
+-   出演者: [中室牧子](/rehacq_fan/people/中室牧子 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

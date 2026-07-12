@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【ひろゆきvsインターネット②】ネットで成功するには…日本が世界に勝てないワケ【ReHacQvs川邊健太郎】](/rehacq_fan/ids/FsEnG01J3cE "wikilink")
+    -   公開日: 2026-07-12
+    -   視聴数: 3,872
+    -   **いいね数: 155**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/FsEnG01J3cE/hqdefault.jpg)](https://www.youtube.com/watch?v=FsEnG01J3cE)
 1.  [【人生を変える発信術】趣味と仕事…自ら動けば勝てる！？遠回りを強みにする方法とは？【プチ鹿島＆田中渓＆ReHacQ】](/rehacq_fan/ids/nlmwYo_OlSE "wikilink")
     -   公開日: 2026-07-12
-    -   視聴数: 1,414
-    -   **いいね数: 61**
-    -   出演者: 
+    -   視聴数: 9,788
+    -   **いいね数: 164**
+    -   出演者: プチ鹿島, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
     - [![](https://img.youtube.com/vi/nlmwYo_OlSE/hqdefault.jpg)](https://www.youtube.com/watch?v=nlmwYo_OlSE)
 1.  [【ReHacQ生配信】聞きたいニュース！視聴者の質問に答えるニュース番組【高橋弘樹vs今野忍vs斎藤幸平】](/rehacq_fan/ids/mtg9X0bOUPk "wikilink")
     -   公開日: 2026-07-11
-    -   視聴数: 155,896
-    -   **いいね数: 2,030**
-    -   出演者: 
+    -   視聴数: 193,566
+    -   **いいね数: 2,377**
+    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/mtg9X0bOUPk/hqdefault.jpg)](https://www.youtube.com/watch?v=mtg9X0bOUPk)
 1.  [【高橋弘樹vs水難事故】夏に急増…なぜ？溺れた時はこうしろ！命の守り方徹底解説【ReHacQvs斎藤秀俊】](/rehacq_fan/ids/pKb9LA8K0GY "wikilink")
     -   公開日: 2026-07-11
-    -   視聴数: 12,466
-    -   **いいね数: 374**
+    -   視聴数: 16,236
+    -   **いいね数: 469**
     -   出演者: 斎藤秀俊, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/pKb9LA8K0GY/hqdefault.jpg)](https://www.youtube.com/watch?v=pKb9LA8K0GY)
 1.  [【高橋弘樹vs伝統芸能「狂言」】600年前から変わらない"人間の愚かさ"とは？【ReHacQvs野村萬斎】](/rehacq_fan/ids/aBQM5W2jKaY "wikilink")
     -   公開日: 2026-07-11
-    -   視聴数: 88,535
-    -   **いいね数: 2,871**
+    -   視聴数: 108,368
+    -   **いいね数: 3,262**
     -   出演者: 野村萬斎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/aBQM5W2jKaY/hqdefault.jpg)](https://www.youtube.com/watch?v=aBQM5W2jKaY)
-1.  [【高橋弘樹vs維新の会】緊急生配信！どうなる議員定数削減…副首都法案…皇室典範【ReHacQvs金村りゅうなvs音喜多駿】](/rehacq_fan/ids/5GLSU2jKfEw "wikilink")
-    -   公開日: 2026-07-10
-    -   視聴数: 63,600
-    -   **いいね数: 704**
-    -   出演者: 金村りゅうな, [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/5GLSU2jKfEw/hqdefault.jpg)](https://www.youtube.com/watch?v=5GLSU2jKfEw)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -58,7 +58,7 @@
 ## 時系列データ
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 35, 視聴数: 3,463,959, いいね数: 53,452
+-   動画数: 36, 視聴数: 3,544,687, いいね数: 54,625
 
 #### [2026年06月](videos/202606 "wikilink")
 
@@ -70,11 +70,11 @@
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 23,956,580, いいね数: 368,752
+-   動画数: 96, 視聴数: 23,956,680, いいね数: 368,752
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 20,946,929, いいね数: 277,150
+-   動画数: 89, 視聴数: 20,948,228, いいね数: 277,157
 
 #### [2026年02月](videos/202602 "wikilink")
 
@@ -86,7 +86,7 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 17,645,297, いいね数: 216,333
+-   動画数: 83, 視聴数: 17,646,111, いいね数: 216,331
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -94,7 +94,7 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 25,885,896, いいね数: 359,295
+-   動画数: 102, 視聴数: 25,885,970, いいね数: 359,295
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -134,15 +134,15 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 19,109,089, いいね数: 312,144
+-   動画数: 60, 視聴数: 19,112,363, いいね数: 312,139
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 23,528,820, いいね数: 383,882
+-   動画数: 38, 視聴数: 23,535,117, いいね数: 383,846
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,420,223, いいね数: 344,607
+-   動画数: 72, 視聴数: 23,420,284, いいね数: 344,601
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -221,4 +221,4 @@
 -   動画数: 14, 視聴数: 8,231,106, いいね数: 142,053
 
 ---
-2026-07-12 13:00
+2026-07-12 20:00
