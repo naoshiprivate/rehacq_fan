@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/3-j9yTesABg/sddefault.jpg)](https://www.youtube.com/watch?v=3-j9yTesABg)
 -   公開日: 2025-10-08
 -   視聴数: 33,216
--   **いいね数: 366**
+-   **いいね数: 365**
 -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink")
