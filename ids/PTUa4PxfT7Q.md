@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs冤罪】証拠捏造...刑事司法の闇を衝撃告白！郵便不正事件の裏側とは？村木厚子【ReHacQ】](https://www.youtube.com/watch?v=PTUa4PxfT7Q)
 [![](https://img.youtube.com/vi/PTUa4PxfT7Q/sddefault.jpg)](https://www.youtube.com/watch?v=PTUa4PxfT7Q)
 -   公開日: 2026-04-17
--   視聴数: 747,075
--   **いいね数: 10,591**
+-   視聴数: 759,398
+-   **いいね数: 10,716**
 -   出演者: 村木厚子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
