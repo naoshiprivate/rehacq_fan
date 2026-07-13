@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs洞窟壁画】人類はなぜ洞窟に絵を描いたのか？ 4万年前の洞窟壁画が語る人類の起源とは？ラスコー洞窟、ショーヴェ洞窟…【ReHacQ R大学】](https://www.youtube.com/watch?v=GEVhQ4g6_hw)
 [![](https://img.youtube.com/vi/GEVhQ4g6_hw/sddefault.jpg)](https://www.youtube.com/watch?v=GEVhQ4g6_hw)
 -   公開日: 2026-07-13
--   視聴数: 12,005
--   **いいね数: 243**
+-   視聴数: 19,624
+-   **いいね数: 315**
 -   出演者: 
