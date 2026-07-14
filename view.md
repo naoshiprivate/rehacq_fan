@@ -442,8 +442,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](/rehacq_fan/ids/arcYBqJcY8w "wikilink")
     -   公開日: 2024-01-27
-    -   視聴数: 1,141,527
-    -   **いいね数: 14,760**
+    -   視聴数: 1,142,216
+    -   **いいね数: 14,764**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
 1.  [【ひろゆきvsシン・石破茂】ウクライナと中国…衝撃「国防の罠」【ReHacQs】](/rehacq_fan/ids/RUKBNEivcAw "wikilink")
     -   公開日: 2023-03-25
@@ -467,8 +467,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](/rehacq_fan/ids/w-ToOG5rMTc "wikilink")
     -   公開日: 2023-10-01
-    -   視聴数: 1,122,747
-    -   **いいね数: 11,379**
+    -   視聴数: 1,124,955
+    -   **いいね数: 11,396**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](/rehacq_fan/ids/QPmOX-9hDpY "wikilink")
     -   公開日: 2025-02-27
