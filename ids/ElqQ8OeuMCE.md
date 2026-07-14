@@ -1,6 +1,6 @@
 ### [【ReHacQvs糖化ストレス】人は血管から老いる！？認知症、腎症、動脈硬化…危険な病気のリスクを専門家が徹底解説！【八木雅之vs加藤シルビア】](https://www.youtube.com/watch?v=ElqQ8OeuMCE)
 [![](https://img.youtube.com/vi/ElqQ8OeuMCE/sddefault.jpg)](https://www.youtube.com/watch?v=ElqQ8OeuMCE)
 -   公開日: 2026-05-02
--   視聴数: 105,596
--   **いいね数: 1,613**
+-   視聴数: 109,991
+-   **いいね数: 1,658**
 -   出演者: 八木雅之, [加藤シルビア](/rehacq_fan/people/加藤シルビア "wikilink")
