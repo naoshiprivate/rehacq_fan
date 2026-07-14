@@ -1,6 +1,6 @@
 ### [【国民民主党】玉木代表 明日の党首討論について「テーマは２つです！」そのテーマとは...？【ReHacQ記者会見 7月14日(火)】](https://www.youtube.com/watch?v=deJW19ZkeUU)
 [![](https://img.youtube.com/vi/deJW19ZkeUU/sddefault.jpg)](https://www.youtube.com/watch?v=deJW19ZkeUU)
 -   公開日: 2026-07-14
--   視聴数: 3,523
--   **いいね数: 63**
+-   視聴数: 3,878
+-   **いいね数: 68**
 -   出演者: 
