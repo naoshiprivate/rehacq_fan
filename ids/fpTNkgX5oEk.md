@@ -3,4 +3,4 @@
 -   公開日: 2025-10-31
 -   視聴数: 155,047
 -   **いいね数: 2,688**
--   出演者: 田村まみ, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [田村まみ](/rehacq_fan/people/田村まみ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

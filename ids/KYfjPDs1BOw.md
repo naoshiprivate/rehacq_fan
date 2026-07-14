@@ -1,6 +1,6 @@
 ### [【恋愛病院の裏側】東京大学と恋愛…ハイスペ女子の苦悩とは？【ナレソメ勝倉vs 神谷明采】](https://www.youtube.com/watch?v=KYfjPDs1BOw)
 [![](https://img.youtube.com/vi/KYfjPDs1BOw/sddefault.jpg)](https://www.youtube.com/watch?v=KYfjPDs1BOw)
 -   公開日: 2026-05-16
--   視聴数: 199,403
--   **いいね数: 4,999**
+-   視聴数: 200,242
+-   **いいね数: 4,996**
 -   出演者: [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), [神谷明采](/rehacq_fan/people/神谷明采 "wikilink")
