@@ -1,6 +1,6 @@
 ### [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](https://www.youtube.com/watch?v=RwjSzGvyEoA)
 [![](https://img.youtube.com/vi/RwjSzGvyEoA/sddefault.jpg)](https://www.youtube.com/watch?v=RwjSzGvyEoA)
 -   公開日: 2025-06-10
--   視聴数: 1,071,901
--   **いいね数: 18,692**
+-   視聴数: 1,075,722
+-   **いいね数: 18,730**
 -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
