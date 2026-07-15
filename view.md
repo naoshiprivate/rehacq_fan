@@ -355,16 +355,16 @@
     -   視聴数: 1,225,310
     -   **いいね数: 10,520**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [土田しん](/rehacq_fan/people/土田しん "wikilink"), [小西ひろゆき](/rehacq_fan/people/小西ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](/rehacq_fan/ids/CxDT2FaGi8o "wikilink")
+    -   公開日: 2025-07-09
+    -   視聴数: 1,225,233
+    -   **いいね数: 20,326**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【呉座勇一vs高橋弘樹】秀吉は光秀なぜ打てた？衝撃のラッキーパンチ！歴史の罠【 ReHacQ戦国時代】](/rehacq_fan/ids/QkOnCrQTkE0 "wikilink")
     -   公開日: 2025-12-25
     -   視聴数: 1,222,154
     -   **いいね数: 10,693**
     -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](/rehacq_fan/ids/CxDT2FaGi8o "wikilink")
-    -   公開日: 2025-07-09
-    -   視聴数: 1,217,438
-    -   **いいね数: 20,324**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](/rehacq_fan/ids/xVW1qk9pj9s "wikilink")
     -   公開日: 2025-01-22
     -   視聴数: 1,213,807
@@ -472,8 +472,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](/rehacq_fan/ids/QPmOX-9hDpY "wikilink")
     -   公開日: 2025-02-27
-    -   視聴数: 1,122,202
-    -   **いいね数: 12,577**
+    -   視聴数: 1,122,963
+    -   **いいね数: 12,578**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
     -   公開日: 2023-11-01
@@ -485,6 +485,11 @@
     -   視聴数: 1,104,594
     -   **いいね数: 8,092**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](/rehacq_fan/ids/0mVSxF0JYRs "wikilink")
+    -   公開日: 2025-03-06
+    -   視聴数: 1,094,809
+    -   **いいね数: 11,491**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【石丸伸二vs吉村洋文】石丸新党の構想判明！国民民主vs維新…解決策は？【ReHacQ・高橋弘樹】](/rehacq_fan/ids/DQkpV-2rV3I "wikilink")
     -   公開日: 2024-12-23
     -   視聴数: 1,094,308
@@ -495,8 +500,3 @@
     -   視聴数: 1,093,802
     -   **いいね数: 26,826**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【後藤達也vs森永卓郎】投資ブームに警鐘…父から学んだ真の「ジャーナリズム」とは【小池百合子に...】](/rehacq_fan/ids/qWE1MsRmb7k "wikilink")
-    -   公開日: 2024-07-25
-    -   視聴数: 1,093,786
-    -   **いいね数: 20,742**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森永卓郎
