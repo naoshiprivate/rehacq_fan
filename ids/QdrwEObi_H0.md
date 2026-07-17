@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs元外務省のエース】地方のコンテンツで儲ける！価値を高める方法とは？【ReHacQ】](https://www.youtube.com/watch?v=QdrwEObi_H0)
 [![](https://img.youtube.com/vi/QdrwEObi_H0/sddefault.jpg)](https://www.youtube.com/watch?v=QdrwEObi_H0)
 -   公開日: 2025-05-07
--   視聴数: 53,675
--   **いいね数: 651**
+-   視聴数: 53,697
+-   **いいね数: 653**
 -   出演者: 伊藤夢人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

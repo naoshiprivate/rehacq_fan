@@ -272,8 +272,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【緊急生配信】兵庫維新の会を除名・離党した３県議が緊急出演【増山・岸口・白井県議vs高橋弘樹】](/rehacq_fan/ids/Oje8CA9ZhU "wikilink")
     -   公開日: 2025-03-10
-    -   視聴数: 514,241
-    -   **いいね数: 20,338**
+    -   視聴数: 514,474
+    -   **いいね数: 20,334**
     -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](/rehacq_fan/ids/CxDT2FaGi8o "wikilink")
     -   公開日: 2025-07-09
@@ -385,6 +385,11 @@
     -   視聴数: 1,843,812
     -   **いいね数: 17,814**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/y0QYGfiKyj8 "wikilink")
+    -   公開日: 2025-12-22
+    -   視聴数: 1,337,954
+    -   **いいね数: 17,805**
+    -   出演者: 小林弘幸, [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
 1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](/rehacq_fan/ids/v6K85s-g9Oc "wikilink")
     -   公開日: 2025-02-05
     -   視聴数: 1,287,335
@@ -445,11 +450,6 @@
     -   視聴数: 757,595
     -   **いいね数: 16,803**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/y0QYGfiKyj8 "wikilink")
-    -   公開日: 2025-12-22
-    -   視聴数: 1,250,398
-    -   **いいね数: 16,762**
-    -   出演者: 小林弘幸, [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
 1.  [【高橋弘樹vs認知症の予防】衝撃！70歳の認知症は30年前から始まっている！？アルツハイマー防ぐには？【ReHacQvsアメリカ天才医学者】](/rehacq_fan/ids/ZsLG3B_waNI "wikilink")
     -   公開日: 2025-06-25
     -   視聴数: 1,061,111

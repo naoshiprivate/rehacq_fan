@@ -1,6 +1,6 @@
 ### [【コムドットやまとvs学歴厨】学歴が人生変える？学生に伝えたい残酷な真実【ReHacQvs雷獣・ベテランち・wakatte.TV高田ふーみん・えびじゃ森山・須賀ありさ】](https://www.youtube.com/watch?v=QcaU2gDrt8g)
 [![](https://img.youtube.com/vi/QcaU2gDrt8g/sddefault.jpg)](https://www.youtube.com/watch?v=QcaU2gDrt8g)
 -   公開日: 2026-07-04
--   視聴数: 180,799
--   **いいね数: 3,621**
+-   視聴数: 207,777
+-   **いいね数: 3,892**
 -   出演者: [やまと](/rehacq_fan/people/やまと "wikilink"), [ベテランち](/rehacq_fan/people/ベテランち "wikilink"), [森山](/rehacq_fan/people/森山 "wikilink"), [須賀ありさ](/rehacq_fan/people/須賀ありさ "wikilink"), [高田ふーみん](/rehacq_fan/people/高田ふーみん "wikilink")

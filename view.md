@@ -295,6 +295,11 @@
     -   視聴数: 1,342,449
     -   **いいね数: 18,021**
     -   出演者: [石破茂](/rehacq_fan/people/石破茂 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/y0QYGfiKyj8 "wikilink")
+    -   公開日: 2025-12-22
+    -   視聴数: 1,337,954
+    -   **いいね数: 17,805**
+    -   出演者: 小林弘幸, [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
     -   視聴数: 1,328,427
@@ -330,11 +335,6 @@
     -   視聴数: 1,258,320
     -   **いいね数: 7,242**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/y0QYGfiKyj8 "wikilink")
-    -   公開日: 2025-12-22
-    -   視聴数: 1,250,398
-    -   **いいね数: 16,762**
-    -   出演者: 小林弘幸, [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
 1.  [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](/rehacq_fan/ids/LyfcqUBmBlc "wikilink")
     -   公開日: 2024-06-15
     -   視聴数: 1,244,277
