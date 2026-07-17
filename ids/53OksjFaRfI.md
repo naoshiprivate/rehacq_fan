@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】あきる野市長選挙ネット討論会【西田亮介vs高沢かずなりvsうすい建vs小沢たつや】](https://www.youtube.com/watch?v=53OksjFaRfI)
 [![](https://img.youtube.com/vi/53OksjFaRfI/sddefault.jpg)](https://www.youtube.com/watch?v=53OksjFaRfI)
 -   公開日: 2026-07-17
--   視聴数: 3,312
--   **いいね数: 123**
+-   視聴数: 5,109
+-   **いいね数: 194**
 -   出演者: 
