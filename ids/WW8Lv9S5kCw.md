@@ -1,6 +1,6 @@
 ### [【サッカーW杯】日本代表小川航基選手緊急出演！視聴者の質問に答えるサッカー番組【ReHacQvs箕輪厚介vsミムラユウスケ】](https://www.youtube.com/watch?v=WW8Lv9S5kCw)
 [![](https://img.youtube.com/vi/WW8Lv9S5kCw/sddefault.jpg)](https://www.youtube.com/watch?v=WW8Lv9S5kCw)
 -   公開日: 2026-07-18
--   視聴数: 66,237
--   **いいね数: 1,414**
+-   視聴数: 74,140
+-   **いいね数: 1,524**
 -   出演者: 
