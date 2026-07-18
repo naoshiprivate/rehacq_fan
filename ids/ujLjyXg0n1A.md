@@ -1,6 +1,6 @@
 ### [【志位和夫vs斎藤幸平】搾取を許すな!?共産党のドンが激白！資本主義の闇とは？【ReHacQvs共産党】](https://www.youtube.com/watch?v=ujLjyXg0n1A)
 [![](https://img.youtube.com/vi/ujLjyXg0n1A/sddefault.jpg)](https://www.youtube.com/watch?v=ujLjyXg0n1A)
 -   公開日: 2025-10-30
--   視聴数: 239,787
--   **いいね数: 6,705**
+-   視聴数: 241,732
+-   **いいね数: 6,750**
 -   出演者: [志位和夫](/rehacq_fan/people/志位和夫 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
