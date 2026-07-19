@@ -1,6 +1,6 @@
 ### [【ReHacQvs犯罪心理学者】子育ての勘違い！非行少年が生まれる原因は親！？正しい親子関係と子供を救う言葉とは【出口保行&尾崎里紗】](https://www.youtube.com/watch?v=ECHidEuUJNs)
 [![](https://img.youtube.com/vi/ECHidEuUJNs/sddefault.jpg)](https://www.youtube.com/watch?v=ECHidEuUJNs)
 -   公開日: 2026-03-14
--   視聴数: 1,409,657
--   **いいね数: 13,552**
+-   視聴数: 1,431,732
+-   **いいね数: 13,688**
 -   出演者: 出口保行, [尾崎里紗](/rehacq_fan/people/尾崎里紗 "wikilink")
