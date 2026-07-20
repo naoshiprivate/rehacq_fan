@@ -1,6 +1,6 @@
 ### [【日経テレ東大学、消滅記念！】まったり雑談【ひろゆき】](https://www.youtube.com/watch?v=v3FL5FvvYT4)
 [![](https://img.youtube.com/vi/v3FL5FvvYT4/sddefault.jpg)](https://www.youtube.com/watch?v=v3FL5FvvYT4)
 -   公開日: 2023-05-31
--   視聴数: 369,224
--   **いいね数: 5,327**
+-   視聴数: 369,289
+-   **いいね数: 5,326**
 -   出演者: 
