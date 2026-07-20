@@ -1,6 +1,6 @@
 ### [【ひろゆきvs川上量生】歴史は消える！闇に消えたIT秘史【ニコ動の奇跡】](https://www.youtube.com/watch?v=aS9kYbfUdxI)
 [![](https://img.youtube.com/vi/aS9kYbfUdxI/sddefault.jpg)](https://www.youtube.com/watch?v=aS9kYbfUdxI)
 -   公開日: 2023-04-11
--   視聴数: 624,707
--   **いいね数: 7,587**
+-   視聴数: 625,189
+-   **いいね数: 7,589**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [川上量生](/rehacq_fan/people/川上量生 "wikilink")
