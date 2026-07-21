@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【高橋弘樹vs司法解剖】検察が証拠捏造!?闇だらけの司法制度…冤罪がなくならない衝撃事実とは？【ReHacQvs岩瀬博太郎】](/rehacq_fan/ids/mFpm0OHwX5k "wikilink")
+    -   公開日: 2026-07-21
+    -   視聴数: 1
+    -   **いいね数: 12**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/mFpm0OHwX5k/hqdefault.jpg)](https://www.youtube.com/watch?v=mFpm0OHwX5k)
+1.  [【ReHacQ討論会】長野県知事選挙ネット討論会【高橋弘樹vsあべ守一vsたけだ良介】](/rehacq_fan/ids/YSeLwY4-WLw "wikilink")
+    -   公開日: 2026-07-21
+    -   視聴数: 3,649
+    -   **いいね数: 209**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/YSeLwY4-WLw/hqdefault.jpg)](https://www.youtube.com/watch?v=YSeLwY4-WLw)
+1.  [【国民民主党】飲食料品の２年間の消費減税「遅い、めんどくさい、効果がない」来年度からの現役世代減税を提案へ【ReHacQ記者会見 7月21日(火)】](/rehacq_fan/ids/cpuRHtvvu2o "wikilink")
+    -   公開日: 2026-07-21
+    -   視聴数: 6,767
+    -   **いいね数: 108**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/cpuRHtvvu2o/hqdefault.jpg)](https://www.youtube.com/watch?v=cpuRHtvvu2o)
 1.  [【サッカーW杯】大会総括！FIFAと政治の関係は？巨額マネーによる興行化…あるべき姿は？【ReHacQvs斎藤幸平vsミムラユウスケvs鄭大世】](/rehacq_fan/ids/XOHEcPeu2iY "wikilink")
     -   公開日: 2026-07-20
-    -   視聴数: 121,149
-    -   **いいね数: 1,415**
+    -   視聴数: 142,531
+    -   **いいね数: 1,612**
     -   出演者: [ミムラユウスケ](/rehacq_fan/people/ミムラユウスケ "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [鄭大世](/rehacq_fan/people/鄭大世 "wikilink")
     - [![](https://img.youtube.com/vi/XOHEcPeu2iY/hqdefault.jpg)](https://www.youtube.com/watch?v=XOHEcPeu2iY)
 1.  [【ひろゆきvs岩井俊二】精神崩壊寸前！？映画製作の裏側とは【ReHacQ高橋弘樹vs西田亮介】](/rehacq_fan/ids/dhpOxj0JchA "wikilink")
     -   公開日: 2026-07-20
-    -   視聴数: 53,862
-    -   **いいね数: 845**
+    -   視聴数: 62,553
+    -   **いいね数: 950**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 岩井俊二, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/dhpOxj0JchA/hqdefault.jpg)](https://www.youtube.com/watch?v=dhpOxj0JchA)
-1.  [【石丸伸二vs乙武洋匡】衝撃初対談！再生の道と都民ファーストは何を目指しているのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/-_3Ex9p_PSg "wikilink")
-    -   公開日: 2026-07-19
-    -   視聴数: 220,584
-    -   **いいね数: 7,566**
-    -   出演者: [乙武洋匡](/rehacq_fan/people/乙武洋匡 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/-_3Ex9p_PSg/hqdefault.jpg)](https://www.youtube.com/watch?v=-_3Ex9p_PSg)
-1.  [【高橋弘樹vs伝統芸能「狂言」】蚊と大名の攻防戦に大爆笑！600年続く笑いの原点に迫る！【ReHacQvs野村萬斎】](/rehacq_fan/ids/Wi3v8O_nCrI "wikilink")
-    -   公開日: 2026-07-19
-    -   視聴数: 64,776
-    -   **いいね数: 1,970**
-    -   出演者: 野村萬斎, 野村裕基, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/Wi3v8O_nCrI/hqdefault.jpg)](https://www.youtube.com/watch?v=Wi3v8O_nCrI)
-1.  [【サッカーW杯】日本代表小川航基選手緊急出演！赤裸々告白！森保JAPANの舞台裏…オランダ戦のゴールについて【ReHacQvs箕輪厚介vsミムラユウスケ】](/rehacq_fan/ids/WW8Lv9S5kCw "wikilink")
-    -   公開日: 2026-07-18
-    -   視聴数: 206,873
-    -   **いいね数: 2,824**
-    -   出演者: [ミムラユウスケ](/rehacq_fan/people/ミムラユウスケ "wikilink"), 小川航基, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
-    - [![](https://img.youtube.com/vi/WW8Lv9S5kCw/hqdefault.jpg)](https://www.youtube.com/watch?v=WW8Lv9S5kCw)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -58,7 +58,7 @@
 ## 時系列データ
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 58, 視聴数: 6,137,857, いいね数: 98,119
+-   動画数: 60, 視聴数: 6,206,280, いいね数: 99,170
 
 #### [2026年06月](videos/202606 "wikilink")
 
@@ -70,19 +70,19 @@
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 24,206,181, いいね数: 370,559
+-   動画数: 96, 視聴数: 24,206,995, いいね数: 370,559
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 21,297,880, いいね数: 279,214
+-   動画数: 89, 視聴数: 21,299,647, いいね数: 279,254
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 25,327,589, いいね数: 362,043
+-   動画数: 98, 視聴数: 25,327,799, いいね数: 362,045
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 23,150,019, いいね数: 334,536
+-   動画数: 90, 視聴数: 23,150,023, いいね数: 334,536
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -130,15 +130,15 @@
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 19,220,857, いいね数: 300,105
+-   動画数: 48, 視聴数: 19,221,731, いいね数: 300,109
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 19,131,975, いいね数: 312,336
+-   動画数: 60, 視聴数: 19,132,391, いいね数: 312,340
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 23,556,080, いいね数: 384,002
+-   動画数: 38, 視聴数: 23,556,196, いいね数: 384,005
 
 #### [2024年10月](videos/202410 "wikilink")
 
@@ -221,4 +221,4 @@
 -   動画数: 14, 視聴数: 8,239,538, いいね数: 142,068
 
 ---
-2026-07-21 13:00
+2026-07-21 20:00
