@@ -1,6 +1,6 @@
 ### [【新規株式公開】世界の視線が集中！スペースX ＆アンソロピックのIPOはどうなる？【宮嶋貴之&永濱利廣&森本智子&ReHacQ】](https://www.youtube.com/watch?v=Gx3oRc-btP0)
 [![](https://img.youtube.com/vi/Gx3oRc-btP0/sddefault.jpg)](https://www.youtube.com/watch?v=Gx3oRc-btP0)
 -   公開日: 2026-06-05
--   視聴数: 44,729
--   **いいね数: 460**
+-   視聴数: 44,760
+-   **いいね数: 459**
 -   出演者: [宮嶋貴之](/rehacq_fan/people/宮嶋貴之 "wikilink"), [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
