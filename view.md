@@ -230,6 +230,11 @@
     -   視聴数: 1,531,236
     -   **いいね数: 9,146**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+1.  [【坂上忍vsひろゆきvs箕輪厚介】炎上は恐れない！？芸歴56年…“ヒール”の流儀・生き様を語る！【ReHacQ】](/rehacq_fan/ids/FXER_XtqCkY "wikilink")
+    -   公開日: 2026-05-03
+    -   視聴数: 1,509,113
+    -   **いいね数: 16,124**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【後藤達也vsインデックスファンド】パックン式！世界最強の「投資思考術」とは【アメリカ株】](/rehacq_fan/ids/xcbxnXpIizM "wikilink")
     -   公開日: 2023-12-07
     -   視聴数: 1,505,283
@@ -245,11 +250,6 @@
     -   視聴数: 1,492,888
     -   **いいね数: 11,690**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【坂上忍vsひろゆきvs箕輪厚介】炎上は恐れない！？芸歴56年…“ヒール”の流儀・生き様を語る！【ReHacQ】](/rehacq_fan/ids/FXER_XtqCkY "wikilink")
-    -   公開日: 2026-05-03
-    -   視聴数: 1,481,641
-    -   **いいね数: 15,966**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【ひろゆきvs立憲民主党②】小西洋之が激怒…一体なぜ？【中谷一馬vs高橋弘樹vs西田亮介】](/rehacq_fan/ids/jfuZDsUN4JY "wikilink")
     -   公開日: 2024-10-13
     -   視聴数: 1,467,093
