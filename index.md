@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【アメリカvsイラン再燃】停戦わずか3週間…連夜の攻撃、紅海にも飛び火 日本の原油ルートに危機【松本太・高橋和夫・田中浩一郎・須賀川拓・ReHacQ】](/rehacq_fan/ids/xaEb5vxrLKw "wikilink")
     -   公開日: 2026-07-23
-    -   視聴数: 4,448
-    -   **いいね数: 142**
-    -   出演者: [松本太](/rehacq_fan/people/松本太 "wikilink"), [田中浩一郎](/rehacq_fan/people/田中浩一郎 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋和夫](/rehacq_fan/people/高橋和夫 "wikilink")
+    -   視聴数: 11,899
+    -   **いいね数: 283**
+    -   出演者: [松本太](/rehacq_fan/people/松本太 "wikilink"), [田中浩一郎](/rehacq_fan/people/田中浩一郎 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/xaEb5vxrLKw/hqdefault.jpg)](https://www.youtube.com/watch?v=xaEb5vxrLKw)
 1.  [【ReHacQ討論会】杉戸町長選挙ネット討論会【高橋弘樹vsくぼた裕之vs栗原たけのりvs金子正志vs原田すずこ】](/rehacq_fan/ids/5CoOTi7bQkc "wikilink")
     -   公開日: 2026-07-23
-    -   視聴数: 6,009
-    -   **いいね数: 131**
+    -   視聴数: 11,782
+    -   **いいね数: 141**
     -   出演者: 
     - [![](https://img.youtube.com/vi/5CoOTi7bQkc/hqdefault.jpg)](https://www.youtube.com/watch?v=5CoOTi7bQkc)
 1.  [【チームみらい】 国民会議での「所得連動型給付＋子育て支援への1本化」について報告 【ReHacQ記者会見 7月23日(木)】](/rehacq_fan/ids/M9Zt_ztNzVM "wikilink")
     -   公開日: 2026-07-23
-    -   視聴数: 3,612
-    -   **いいね数: 63**
+    -   視聴数: 4,236
+    -   **いいね数: 66**
     -   出演者: 
     - [![](https://img.youtube.com/vi/M9Zt_ztNzVM/hqdefault.jpg)](https://www.youtube.com/watch?v=M9Zt_ztNzVM)
 1.  [【高橋弘樹vs上場企業副社長】yutori創業副社長が緊急出演...なぜ辞めた？父の死…「幸せ」とは？【ReHacQvs瀬之口和磨】](/rehacq_fan/ids/qxqCpr9XaLs "wikilink")
     -   公開日: 2026-07-23
-    -   視聴数: 70,764
-    -   **いいね数: 1,008**
+    -   視聴数: 85,696
+    -   **いいね数: 1,080**
     -   出演者: 瀬之口和磨, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/qxqCpr9XaLs/hqdefault.jpg)](https://www.youtube.com/watch?v=qxqCpr9XaLs)
 1.  [【高橋弘樹vs朝日新聞】デジタル版編集長参戦！なぜ？まったり生配信【ReHacQvs奥山晶二郎】](/rehacq_fan/ids/th0D2ILEr9E "wikilink")
     -   公開日: 2026-07-22
-    -   視聴数: 60,460
-    -   **いいね数: 588**
+    -   視聴数: 62,732
+    -   **いいね数: 596**
     -   出演者: 奥山昌二郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/th0D2ILEr9E/hqdefault.jpg)](https://www.youtube.com/watch?v=th0D2ILEr9E)
 
@@ -58,7 +58,7 @@
 ## 時系列データ
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 70, 視聴数: 6,796,935, いいね数: 107,439
+-   動画数: 70, 視聴数: 6,832,803, いいね数: 107,707
 
 #### [2026年06月](videos/202606 "wikilink")
 
@@ -66,7 +66,7 @@
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 24,657,041, いいね数: 399,738
+-   動画数: 111, 視聴数: 24,657,192, いいね数: 399,738
 
 #### [2026年04月](videos/202604 "wikilink")
 
@@ -74,7 +74,7 @@
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 21,394,619, いいね数: 279,740
+-   動画数: 89, 視聴数: 21,394,680, いいね数: 279,740
 
 #### [2026年02月](videos/202602 "wikilink")
 
@@ -82,15 +82,15 @@
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 23,155,129, いいね数: 334,571
+-   動画数: 90, 視聴数: 23,155,198, いいね数: 334,571
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 17,889,879, いいね数: 218,423
+-   動画数: 83, 視聴数: 17,890,162, いいね数: 218,425
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 13,516,009, いいね数: 184,197
+-   動画数: 79, 視聴数: 13,518,267, いいね数: 184,203
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -98,7 +98,7 @@
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 18,361,244, いいね数: 283,695
+-   動画数: 87, 視聴数: 18,361,329, いいね数: 283,696
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -106,7 +106,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 23,323,214, いいね数: 385,761
+-   動画数: 76, 視聴数: 23,324,630, いいね数: 385,773
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -150,11 +150,11 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 21,959,986, いいね数: 343,211
+-   動画数: 43, 視聴数: 21,964,078, いいね数: 343,217
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 16,627,811, いいね数: 294,954
+-   動画数: 44, 視聴数: 16,629,754, いいね数: 294,949
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -221,4 +221,4 @@
 -   動画数: 14, 視聴数: 8,239,538, いいね数: 142,068
 
 ---
-2026-07-23 23:02
+2026-07-24 01:00
