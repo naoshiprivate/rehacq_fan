@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs京大医学部教授】肌に悪い習慣とは？最新アトピーの改善方法！【ReHacQvs椛島健治】](https://www.youtube.com/watch?v=PrzPaEQ9krc)
 [![](https://img.youtube.com/vi/PrzPaEQ9krc/sddefault.jpg)](https://www.youtube.com/watch?v=PrzPaEQ9krc)
 -   公開日: 2026-05-28
--   視聴数: 213,306
--   **いいね数: 4,047**
+-   視聴数: 221,047
+-   **いいね数: 4,173**
 -   出演者: 椛島健治, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
