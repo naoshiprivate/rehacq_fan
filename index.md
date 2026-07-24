@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【インフレの今後】相場の流れを政策が変える！？日本株強気派２人の考えは？【武者陵司&朝倉 慶&松尾英里子&ReHacQ】](/rehacq_fan/ids/GA7CiLoaggE "wikilink")
+    -   公開日: 2026-07-24
+    -   視聴数: 325
+    -   **いいね数: 12**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/GA7CiLoaggE/hqdefault.jpg)](https://www.youtube.com/watch?v=GA7CiLoaggE)
 1.  [【アメリカvsイラン再燃】停戦わずか3週間…連夜の攻撃、紅海にも飛び火 日本の原油ルートに危機【松本太・高橋和夫・田中浩一郎・須賀川拓・ReHacQ】](/rehacq_fan/ids/xaEb5vxrLKw "wikilink")
     -   公開日: 2026-07-23
-    -   視聴数: 38,260
-    -   **いいね数: 602**
+    -   視聴数: 39,899
+    -   **いいね数: 628**
     -   出演者: [松本太](/rehacq_fan/people/松本太 "wikilink"), [田中浩一郎](/rehacq_fan/people/田中浩一郎 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/xaEb5vxrLKw/hqdefault.jpg)](https://www.youtube.com/watch?v=xaEb5vxrLKw)
 1.  [【ReHacQ討論会】杉戸町長選挙ネット討論会【高橋弘樹vsくぼた裕之vs栗原たけのりvs金子正志vs原田すずこ】](/rehacq_fan/ids/5CoOTi7bQkc "wikilink")
     -   公開日: 2026-07-23
-    -   視聴数: 14,329
-    -   **いいね数: 162**
+    -   視聴数: 14,481
+    -   **いいね数: 165**
     -   出演者: 
     - [![](https://img.youtube.com/vi/5CoOTi7bQkc/hqdefault.jpg)](https://www.youtube.com/watch?v=5CoOTi7bQkc)
 1.  [【チームみらい】 国民会議での「所得連動型給付＋子育て支援への1本化」について報告 【ReHacQ記者会見 7月23日(木)】](/rehacq_fan/ids/M9Zt_ztNzVM "wikilink")
     -   公開日: 2026-07-23
-    -   視聴数: 5,309
+    -   視聴数: 5,380
     -   **いいね数: 77**
     -   出演者: 
     - [![](https://img.youtube.com/vi/M9Zt_ztNzVM/hqdefault.jpg)](https://www.youtube.com/watch?v=M9Zt_ztNzVM)
 1.  [【高橋弘樹vs上場企業副社長】yutori創業副社長が緊急出演...なぜ辞めた？父の死…「幸せ」とは？【ReHacQvs瀬之口和磨】](/rehacq_fan/ids/qxqCpr9XaLs "wikilink")
     -   公開日: 2026-07-23
-    -   視聴数: 118,194
-    -   **いいね数: 1,401**
+    -   視聴数: 121,185
+    -   **いいね数: 1,442**
     -   出演者: 瀬之口和磨, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/qxqCpr9XaLs/hqdefault.jpg)](https://www.youtube.com/watch?v=qxqCpr9XaLs)
-1.  [【高橋弘樹vs朝日新聞】デジタル版編集長参戦！なぜ？まったり生配信【ReHacQvs奥山晶二郎】](/rehacq_fan/ids/th0D2ILEr9E "wikilink")
-    -   公開日: 2026-07-22
-    -   視聴数: 68,512
-    -   **いいね数: 625**
-    -   出演者: 奥山昌二郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/th0D2ILEr9E/hqdefault.jpg)](https://www.youtube.com/watch?v=th0D2ILEr9E)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -58,11 +58,11 @@
 ## 時系列データ
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 70, 視聴数: 6,912,831, いいね数: 108,603
+-   動画数: 71, 視聴数: 6,955,694, いいね数: 108,910
 
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 92, 視聴数: 14,549,207, いいね数: 202,578
+-   動画数: 92, 視聴数: 14,549,527, いいね数: 202,574
 
 #### [2026年05月](videos/202605 "wikilink")
 
@@ -78,7 +78,7 @@
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 25,334,050, いいね数: 362,061
+-   動画数: 98, 視聴数: 25,348,299, いいね数: 362,069
 
 #### [2026年01月](videos/202601 "wikilink")
 
@@ -86,11 +86,11 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 17,890,162, いいね数: 218,425
+-   動画数: 83, 視聴数: 17,890,841, いいね数: 218,426
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 13,519,123, いいね数: 184,210
+-   動画数: 79, 視聴数: 13,520,795, いいね数: 184,209
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -114,19 +114,19 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 16,843,314, いいね数: 208,694
+-   動画数: 63, 視聴数: 16,860,523, いいね数: 208,775
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 23,472,637, いいね数: 354,138
+-   動画数: 58, 視聴数: 23,473,486, いいね数: 354,144
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 15,564,064, いいね数: 259,147
+-   動画数: 61, 視聴数: 15,564,251, いいね数: 259,147
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,911,908, いいね数: 300,195
+-   動画数: 47, 視聴数: 16,912,129, いいね数: 300,197
 
 #### [2025年01月](videos/202501 "wikilink")
 
@@ -221,4 +221,4 @@
 -   動画数: 14, 視聴数: 8,241,165, いいね数: 142,084
 
 ---
-2026-07-24 12:01
+2026-07-24 13:00
