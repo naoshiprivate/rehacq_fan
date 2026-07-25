@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/LfHYfdn7Br4/sddefault.jpg)](https://www.youtube.com/watch?v=LfHYfdn7Br4)
 -   公開日: 2026-07-23
 -   視聴数: 2
--   **いいね数: 29**
+-   **いいね数: 30**
 -   出演者: 片岡鶴太郎, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
