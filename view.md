@@ -325,6 +325,11 @@
     -   視聴数: 1,286,320
     -   **いいね数: 18,784**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+1.  [【呉座勇一vs高橋弘樹】秀吉は光秀なぜ打てた？衝撃のラッキーパンチ！歴史の罠【 ReHacQ戦国時代】](/rehacq_fan/ids/QkOnCrQTkE0 "wikilink")
+    -   公開日: 2025-12-25
+    -   視聴数: 1,266,020
+    -   **いいね数: 10,824**
+    -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【なぜ高市早苗と連立？】維新・吉村代表に聞く！自民党は約束を守るのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Rx4U0L9SK9w "wikilink")
     -   公開日: 2025-10-17
     -   視聴数: 1,263,475
@@ -370,11 +375,6 @@
     -   視聴数: 1,225,233
     -   **いいね数: 20,326**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【呉座勇一vs高橋弘樹】秀吉は光秀なぜ打てた？衝撃のラッキーパンチ！歴史の罠【 ReHacQ戦国時代】](/rehacq_fan/ids/QkOnCrQTkE0 "wikilink")
-    -   公開日: 2025-12-25
-    -   視聴数: 1,222,154
-    -   **いいね数: 10,693**
-    -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](/rehacq_fan/ids/xVW1qk9pj9s "wikilink")
     -   公開日: 2025-01-22
     -   視聴数: 1,214,318
