@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs海の危険】永久保存版！意識不明者の助け方は？効果抜群テクニック大公開【ReHacQvs斎藤秀俊】](https://www.youtube.com/watch?v=t4trtgIcr3s)
 [![](https://img.youtube.com/vi/t4trtgIcr3s/sddefault.jpg)](https://www.youtube.com/watch?v=t4trtgIcr3s)
 -   公開日: 2026-07-24
--   視聴数: 39,334
--   **いいね数: 1,073**
+-   視聴数: 39,484
+-   **いいね数: 1,079**
 -   出演者: 斎藤秀俊, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
