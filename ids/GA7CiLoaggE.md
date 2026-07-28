@@ -3,4 +3,4 @@
 -   公開日: 2026-07-24
 -   視聴数: 135,015
 -   **いいね数: 2,544**
--   出演者: [朝倉慶](/rehacq_fan/people/朝倉慶 "wikilink"), [松尾英里子](/rehacq_fan/people/松尾英里子 "wikilink"), 武者陵司
+-   出演者: [朝倉慶](/rehacq_fan/people/朝倉慶 "wikilink"), [松尾英里子](/rehacq_fan/people/松尾英里子 "wikilink"), [武者陵司](/rehacq_fan/people/武者陵司 "wikilink")
