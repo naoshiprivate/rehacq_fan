@@ -3,4 +3,4 @@
 -   公開日: 2026-02-21
 -   視聴数: 289,858
 -   **いいね数: 3,065**
--   出演者: 経沢香保子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [経沢香保子](/rehacq_fan/people/経沢香保子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
