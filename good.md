@@ -300,6 +300,11 @@
     -   視聴数: 1,115,537
     -   **いいね数: 19,139**
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](/rehacq_fan/ids/RwjSzGvyEoA "wikilink")
+    -   公開日: 2025-06-10
+    -   視聴数: 1,091,229
+    -   **いいね数: 18,918**
+    -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
     -   公開日: 2025-11-21
     -   視聴数: 1,075,977
@@ -335,11 +340,6 @@
     -   視聴数: 901,617
     -   **いいね数: 18,778**
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](/rehacq_fan/ids/RwjSzGvyEoA "wikilink")
-    -   公開日: 2025-06-10
-    -   視聴数: 1,075,722
-    -   **いいね数: 18,730**
-    -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【恋愛病院 特別編】男子メンバー集結！2泊3日のリハビリ生活から4ヶ月以上経った今、何を語るのか…？【ReHacQ 高橋弘樹】](/rehacq_fan/ids/ukhxM0D0Itg "wikilink")
     -   公開日: 2026-05-12
     -   視聴数: 515,283
