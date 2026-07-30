@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【高橋弘樹vs上場企業副社長】yutori創業副社長が緊急出演...なぜ35歳で人生再挑戦するのか？【ReHacQvs瀬之口和磨】](/rehacq_fan/ids/A02qu78dxI8 "wikilink")
     -   公開日: 2026-07-30
-    -   視聴数: 3,515
-    -   **いいね数: 142**
-    -   出演者: 
+    -   視聴数: 10,408
+    -   **いいね数: 320**
+    -   出演者: 瀬之口和磨, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/A02qu78dxI8/hqdefault.jpg)](https://www.youtube.com/watch?v=A02qu78dxI8)
 1.  [【ReHacQ討論会】泰阜村長選挙ネット討論会【武藤千春vsののやまなおみ】](/rehacq_fan/ids/gdI62ywST0Y "wikilink")
     -   公開日: 2026-07-30
-    -   視聴数: 8,800
-    -   **いいね数: 140**
+    -   視聴数: 10,171
+    -   **いいね数: 156**
     -   出演者: 
     - [![](https://img.youtube.com/vi/gdI62ywST0Y/hqdefault.jpg)](https://www.youtube.com/watch?v=gdI62ywST0Y)
 1.  [【田中渓＆経沢香保子vs箕輪厚介vs田端信太郎】本音の宴…令和の影響力を“A面B面”で語り明かす【ReHacQ高橋弘樹】](/rehacq_fan/ids/bvUHSsWC9UE "wikilink")
     -   公開日: 2026-07-29
-    -   視聴数: 167,133
-    -   **いいね数: 1,748**
+    -   視聴数: 174,952
+    -   **いいね数: 1,803**
     -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [田端信太郎](/rehacq_fan/people/田端信太郎 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [経沢香保子](/rehacq_fan/people/経沢香保子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/bvUHSsWC9UE/hqdefault.jpg)](https://www.youtube.com/watch?v=bvUHSsWC9UE)
 1.  [【ReHacQ討論会】和歌山市長選挙ネット討論会【高橋弘樹vsおざき太郎vsかたぎり章浩vs芝本かずきvsタビタ卓宗vs浜田しんすけ】](/rehacq_fan/ids/XoCu5boi0qo "wikilink")
     -   公開日: 2026-07-29
-    -   視聴数: 14,399
-    -   **いいね数: 246**
+    -   視聴数: 14,952
+    -   **いいね数: 254**
     -   出演者: 
     - [![](https://img.youtube.com/vi/XoCu5boi0qo/hqdefault.jpg)](https://www.youtube.com/watch?v=XoCu5boi0qo)
 1.  [【朝倉慶vs武者陵司】円安は市場の警告か！？理論派と現実派の議論が激突！インフレ政策の判決は…？【松尾英里子&ReHacQ】](/rehacq_fan/ids/ViwXZMj1FfE "wikilink")
     -   公開日: 2026-07-29
-    -   視聴数: 123,022
-    -   **いいね数: 2,515**
+    -   視聴数: 126,321
+    -   **いいね数: 2,571**
     -   出演者: [朝倉慶](/rehacq_fan/people/朝倉慶 "wikilink"), [松尾英里子](/rehacq_fan/people/松尾英里子 "wikilink"), [武者陵司](/rehacq_fan/people/武者陵司 "wikilink")
     - [![](https://img.youtube.com/vi/ViwXZMj1FfE/hqdefault.jpg)](https://www.youtube.com/watch?v=ViwXZMj1FfE)
 
@@ -46,7 +46,7 @@
 ## 時系列データ
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 90, 視聴数: 9,742,275, いいね数: 158,893
+-   動画数: 90, 視聴数: 9,771,925, いいね数: 159,343
 
 #### [2026年06月](videos/202606 "wikilink")
 
@@ -58,11 +58,11 @@
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 24,434,798, いいね数: 371,831
+-   動画数: 96, 視聴数: 24,434,816, いいね数: 371,831
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 21,469,375, いいね数: 280,165
+-   動画数: 89, 視聴数: 21,476,036, いいね数: 280,198
 
 #### [2026年02月](videos/202602 "wikilink")
 
@@ -74,7 +74,7 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 18,015,205, いいね数: 219,338
+-   動画数: 83, 視聴数: 18,020,580, いいね数: 219,381
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -82,7 +82,7 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 25,970,002, いいね数: 360,000
+-   動画数: 102, 視聴数: 25,970,328, いいね数: 359,996
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -98,7 +98,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 18,673,911, いいね数: 324,518
+-   動画数: 78, 視聴数: 18,674,093, いいね数: 324,517
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -146,11 +146,11 @@
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 11,166,276, いいね数: 146,888
+-   動画数: 31, 視聴数: 11,167,892, いいね数: 146,896
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,952,417, いいね数: 85,535
+-   動画数: 29, 視聴数: 6,953,184, いいね数: 85,535
 
 #### [2024年04月](videos/202404 "wikilink")
 
@@ -209,4 +209,4 @@
 -   動画数: 14, 視聴数: 8,242,144, いいね数: 142,084
 
 ---
-2026-07-30 20:00
+2026-07-30 22:00
