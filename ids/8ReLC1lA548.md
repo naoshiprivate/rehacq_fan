@@ -3,4 +3,4 @@
 -   公開日: 2025-12-05
 -   視聴数: 97,001
 -   **いいね数: 1,064**
--   出演者: 会田卓司, [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink"), [馬渕磨理子](/rehacq_fan/people/馬渕磨理子 "wikilink")
+-   出演者: [会田卓司](/rehacq_fan/people/会田卓司 "wikilink"), [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink"), [馬渕磨理子](/rehacq_fan/people/馬渕磨理子 "wikilink")

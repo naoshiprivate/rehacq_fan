@@ -3,4 +3,4 @@
 -   公開日: 2025-10-03
 -   視聴数: 93,253
 -   **いいね数: 1,009**
--   出演者: 会田卓司, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
+-   出演者: [会田卓司](/rehacq_fan/people/会田卓司 "wikilink"), [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
