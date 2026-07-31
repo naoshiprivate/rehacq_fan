@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【今野忍vs国境なき医師団】紛争地の現実…迫られる命の選択【ReHacQ高橋弘樹vs村田慎二郎】](/rehacq_fan/ids/n3zCjc1b194 "wikilink")
     -   公開日: 2026-07-31
-    -   視聴数: 7,286
-    -   **いいね数: 295**
+    -   視聴数: 19,793
+    -   **いいね数: 486**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 村田慎二郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/n3zCjc1b194/hqdefault.jpg)](https://www.youtube.com/watch?v=n3zCjc1b194)
 1.  [【日銀会合＆FOMC】成長戦略会議メンバーが説く責任ある財政大転換！？日本復活の勝ち筋とは？【会田卓司&永濱利廣&森本智子&ReHacQ】](/rehacq_fan/ids/2_PwcWUx9Ag "wikilink")
     -   公開日: 2026-07-31
-    -   視聴数: 22,427
-    -   **いいね数: 545**
+    -   視聴数: 32,720
+    -   **いいね数: 688**
     -   出演者: [会田卓司](/rehacq_fan/people/会田卓司 "wikilink"), [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/2_PwcWUx9Ag/hqdefault.jpg)](https://www.youtube.com/watch?v=2_PwcWUx9Ag)
 1.  [【高橋弘樹vs森林】40年森に生きた男！産業革命で人類は不幸に！？!医学の進歩の弊害は？本当の幸福論とは【ReHacQvs稲本正】](/rehacq_fan/ids/zmf8Z9mHF9o "wikilink")
     -   公開日: 2026-07-31
-    -   視聴数: 14,613
-    -   **いいね数: 450**
+    -   視聴数: 18,000
+    -   **いいね数: 497**
     -   出演者: 稲本正, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/zmf8Z9mHF9o/hqdefault.jpg)](https://www.youtube.com/watch?v=zmf8Z9mHF9o)
 1.  [【辺野古沖転覆事故】告訴報道を受けて生徒の遺族が涙ながらの会見【ReHacQ】](/rehacq_fan/ids/OQqQ_pUDIVc "wikilink")
     -   公開日: 2026-07-31
-    -   視聴数: 100,385
-    -   **いいね数: 4,533**
+    -   視聴数: 117,924
+    -   **いいね数: 4,900**
     -   出演者: 
     - [![](https://img.youtube.com/vi/OQqQ_pUDIVc/hqdefault.jpg)](https://www.youtube.com/watch?v=OQqQ_pUDIVc)
 1.  [【ReHacQ生配信】ひろゆき＆泉房穂で新党結成!?なぜ？統一地方選に向け何をする？【高橋弘樹vs西田亮介vs音喜多駿】](/rehacq_fan/ids/-Y4GbxWEGbc "wikilink")
     -   公開日: 2026-07-30
-    -   視聴数: 278,357
-    -   **いいね数: 2,883**
+    -   視聴数: 297,587
+    -   **いいね数: 2,970**
     -   出演者: [泉房穂](/rehacq_fan/people/泉房穂 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/-Y4GbxWEGbc/hqdefault.jpg)](https://www.youtube.com/watch?v=-Y4GbxWEGbc)
 
@@ -46,11 +46,11 @@
 ## 時系列データ
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 95, 視聴数: 10,488,081, いいね数: 170,985
+-   動画数: 95, 視聴数: 10,570,420, いいね数: 171,940
 
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 92, 視聴数: 14,620,424, いいね数: 203,258
+-   動画数: 92, 視聴数: 14,638,147, いいね数: 203,408
 
 #### [2026年05月](videos/202605 "wikilink")
 
@@ -66,7 +66,7 @@
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 25,430,528, いいね数: 362,328
+-   動画数: 98, 視聴数: 25,441,304, いいね数: 362,372
 
 #### [2026年01月](videos/202601 "wikilink")
 
@@ -82,7 +82,7 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 25,988,292, いいね数: 360,070
+-   動画数: 102, 視聴数: 25,993,655, いいね数: 360,078
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -90,7 +90,7 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 16,939,792, いいね数: 273,158
+-   動画数: 65, 視聴数: 16,939,798, いいね数: 273,158
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -102,7 +102,7 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 16,867,532, いいね数: 208,807
+-   動画数: 63, 視聴数: 16,868,456, いいね数: 208,808
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -158,7 +158,7 @@
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 9,821,708, いいね数: 115,423
+-   動画数: 44, 視聴数: 9,821,721, いいね数: 115,423
 
 #### [2024年02月](videos/202402 "wikilink")
 
@@ -202,11 +202,11 @@
 
 #### [2023年04月](videos/202304 "wikilink")
 
--   動画数: 28, 視聴数: 6,626,393, いいね数: 103,812
+-   動画数: 28, 視聴数: 6,626,605, いいね数: 103,815
 
 #### [2023年03月](videos/202303 "wikilink")
 
 -   動画数: 14, 視聴数: 8,242,257, いいね数: 142,081
 
 ---
-2026-08-01 00:00
+2026-08-01 07:00
