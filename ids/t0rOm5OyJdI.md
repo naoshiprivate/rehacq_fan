@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】下妻市長選挙ネット討論会【高橋弘樹vs井上まことvs菊池ひろし】](https://www.youtube.com/watch?v=t0rOm5OyJdI)
 [![](https://img.youtube.com/vi/t0rOm5OyJdI/sddefault.jpg)](https://www.youtube.com/watch?v=t0rOm5OyJdI)
 -   公開日: 2026-07-28
--   視聴数: 21,968
--   **いいね数: 186**
+-   視聴数: 22,038
+-   **いいね数: 187**
 -   出演者: 
