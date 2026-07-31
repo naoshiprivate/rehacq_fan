@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【日銀会合＆FOMC】成長戦略会議メンバーが説く責任ある財政大転換！？日本復活の勝ち筋とは？【会田卓司&永濱利廣&森本智子&ReHacQ】](/rehacq_fan/ids/2_PwcWUx9Ag "wikilink")
+    -   公開日: 2026-07-31
+    -   視聴数: 6,223
+    -   **いいね数: 307**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/2_PwcWUx9Ag/hqdefault.jpg)](https://www.youtube.com/watch?v=2_PwcWUx9Ag)
 1.  [【高橋弘樹vs森林】40年森に生きた男！産業革命で人類は不幸に！？!医学の進歩の弊害は？本当の幸福論とは【ReHacQvs稲本正】](/rehacq_fan/ids/zmf8Z9mHF9o "wikilink")
     -   公開日: 2026-07-31
-    -   視聴数: 942
-    -   **いいね数: 58**
+    -   視聴数: 9,765
+    -   **いいね数: 339**
     -   出演者: 
     - [![](https://img.youtube.com/vi/zmf8Z9mHF9o/hqdefault.jpg)](https://www.youtube.com/watch?v=zmf8Z9mHF9o)
 1.  [【辺野古沖転覆事故】告訴報道を受けて生徒の遺族が涙ながらの会見【ReHacQ】](/rehacq_fan/ids/OQqQ_pUDIVc "wikilink")
     -   公開日: 2026-07-31
-    -   視聴数: 18,369
-    -   **いいね数: 1,507**
+    -   視聴数: 76,368
+    -   **いいね数: 3,787**
     -   出演者: 
     - [![](https://img.youtube.com/vi/OQqQ_pUDIVc/hqdefault.jpg)](https://www.youtube.com/watch?v=OQqQ_pUDIVc)
 1.  [【ReHacQ生配信】ひろゆき＆泉房穂で新党結成!?なぜ？統一地方選に向け何をする？【高橋弘樹vs西田亮介vs音喜多駿】](/rehacq_fan/ids/-Y4GbxWEGbc "wikilink")
     -   公開日: 2026-07-30
-    -   視聴数: 213,665
-    -   **いいね数: 2,364**
+    -   視聴数: 257,265
+    -   **いいね数: 2,715**
     -   出演者: [泉房穂](/rehacq_fan/people/泉房穂 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/-Y4GbxWEGbc/hqdefault.jpg)](https://www.youtube.com/watch?v=-Y4GbxWEGbc)
 1.  [【高橋弘樹vs上場企業副社長②】yutori創業副社長が緊急出演...なぜ35歳で人生再挑戦するのか？【ReHacQvs瀬之口和磨】](/rehacq_fan/ids/A02qu78dxI8 "wikilink")
     -   公開日: 2026-07-30
-    -   視聴数: 39,484
-    -   **いいね数: 627**
+    -   視聴数: 46,424
+    -   **いいね数: 720**
     -   出演者: 瀬之口和磨, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/A02qu78dxI8/hqdefault.jpg)](https://www.youtube.com/watch?v=A02qu78dxI8)
-1.  [【ReHacQ討論会】泰阜村長選挙ネット討論会【武藤千春vsののやまなおみ】](/rehacq_fan/ids/gdI62ywST0Y "wikilink")
-    -   公開日: 2026-07-30
-    -   視聴数: 13,062
-    -   **いいね数: 175**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/gdI62ywST0Y/hqdefault.jpg)](https://www.youtube.com/watch?v=gdI62ywST0Y)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -46,7 +46,7 @@
 ## 時系列データ
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 93, 視聴数: 10,248,605, いいね数: 165,706
+-   動画数: 94, 視聴数: 10,396,695, いいね数: 169,273
 
 #### [2026年06月](videos/202606 "wikilink")
 
@@ -74,7 +74,7 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 18,020,603, いいね数: 219,381
+-   動画数: 83, 視聴数: 18,020,611, いいね数: 219,381
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -82,11 +82,11 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 25,987,755, いいね数: 360,068
+-   動画数: 102, 視聴数: 25,987,989, いいね数: 360,068
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 18,391,620, いいね数: 283,838
+-   動画数: 87, 視聴数: 18,391,868, いいね数: 283,839
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -94,11 +94,11 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 23,364,976, いいね数: 386,015
+-   動画数: 76, 視聴数: 23,365,020, いいね数: 386,013
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 18,715,954, いいね数: 324,977
+-   動画数: 78, 視聴数: 18,716,122, いいね数: 324,977
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -182,11 +182,11 @@
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,620,220, いいね数: 87,773
+-   動画数: 27, 視聴数: 6,620,988, いいね数: 87,774
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,830,341, いいね数: 129,106
+-   動画数: 33, 視聴数: 11,830,435, いいね数: 129,104
 
 #### [2023年07月](videos/202307 "wikilink")
 
@@ -209,4 +209,4 @@
 -   動画数: 14, 視聴数: 8,242,144, いいね数: 142,084
 
 ---
-2026-07-31 13:00
+2026-07-31 20:00
