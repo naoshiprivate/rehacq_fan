@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】泰阜村長選挙ネット討論会【武藤千春vsののやまなおみ】](https://www.youtube.com/watch?v=gdI62ywST0Y)
 [![](https://img.youtube.com/vi/gdI62ywST0Y/sddefault.jpg)](https://www.youtube.com/watch?v=gdI62ywST0Y)
 -   公開日: 2026-07-30
--   視聴数: 12,477
--   **いいね数: 169**
+-   視聴数: 12,991
+-   **いいね数: 173**
 -   出演者: 
