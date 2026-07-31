@@ -1,0 +1,6 @@
+### [【今野忍vs国境なき医師団】紛争地の現実…迫られる命の選択【ReHacQ高橋弘樹vs村田慎二郎】](https://www.youtube.com/watch?v=n3zCjc1b194)
+[![](https://img.youtube.com/vi/n3zCjc1b194/sddefault.jpg)](https://www.youtube.com/watch?v=n3zCjc1b194)
+-   公開日: 2026-07-31
+-   視聴数: 3,774
+-   **いいね数: 138**
+-   出演者: 
