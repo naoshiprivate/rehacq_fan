@@ -3,4 +3,4 @@
 -   公開日: 2026-07-18
 -   視聴数: 210,202
 -   **いいね数: 3,527**
--   出演者: [やまと](/rehacq_fan/people/やまと "wikilink"), [ベテランち](/rehacq_fan/people/ベテランち "wikilink"), 武井亜樹, [神谷明采](/rehacq_fan/people/神谷明采 "wikilink"), [高田ふーみん](/rehacq_fan/people/高田ふーみん "wikilink")
+-   出演者: [やまと](/rehacq_fan/people/やまと "wikilink"), [ベテランち](/rehacq_fan/people/ベテランち "wikilink"), [武井亜樹](/rehacq_fan/people/武井亜樹 "wikilink"), [神谷明采](/rehacq_fan/people/神谷明采 "wikilink"), [高田ふーみん](/rehacq_fan/people/高田ふーみん "wikilink")
