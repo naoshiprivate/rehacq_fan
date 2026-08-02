@@ -1,31 +1,31 @@
 1.  [【ReHacQ生配信】6、7月振り返り！まったり雑談生配信【高橋弘樹】](/rehacq_fan/ids/ILhtUCzKMmw "wikilink")
     -   公開日: 2026-08-01
-    -   視聴数: 47,738
-    -   **いいね数: 730**
+    -   視聴数: 65,713
+    -   **いいね数: 1,142**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ILhtUCzKMmw/hqdefault.jpg)](https://www.youtube.com/watch?v=ILhtUCzKMmw)
 1.  [【田中渓vs片岡鶴太郎】人生の決断になぜ迷わない？ピンチの時に新しい扉が開く…人生救った一輪の花【ReHacQ】](/rehacq_fan/ids/S4CYDFn7xjg "wikilink")
     -   公開日: 2026-08-01
-    -   視聴数: 32,493
-    -   **いいね数: 716**
+    -   視聴数: 66,448
+    -   **いいね数: 1,219**
     -   出演者: 片岡鶴太郎, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
     - [![](https://img.youtube.com/vi/S4CYDFn7xjg/hqdefault.jpg)](https://www.youtube.com/watch?v=S4CYDFn7xjg)
 1.  [【コムドットやまとvs東大生】知られざる東大生の学生生活！どんな授業やバイトをしている？【ReHacQvs雷獣・ベテランちvswakatte.TVふーみんvs神谷明采vs武井亜樹】](/rehacq_fan/ids/ZNGgOwg2ZY "wikilink")
     -   公開日: 2026-08-01
-    -   視聴数: 115,032
-    -   **いいね数: 2,032**
+    -   視聴数: 122,829
+    -   **いいね数: 2,179**
     -   出演者: [やまと](/rehacq_fan/people/やまと "wikilink"), [ベテランち](/rehacq_fan/people/ベテランち "wikilink"), [武井亜樹](/rehacq_fan/people/武井亜樹 "wikilink"), [神谷明采](/rehacq_fan/people/神谷明采 "wikilink"), [高田ふーみん](/rehacq_fan/people/高田ふーみん "wikilink")
     - [![](https://img.youtube.com/vi/_ZNGgOwg2ZY/hqdefault.jpg)](https://www.youtube.com/watch?v=_ZNGgOwg2ZY)
 1.  [【下山進vs東留伽】マスメディア報じない…着床前診断規制の歴史とは？遺伝病患者の知られざる闘い【ReHacQ】](/rehacq_fan/ids/GvqpaXwg63U "wikilink")
     -   公開日: 2026-08-01
-    -   視聴数: 11,500
-    -   **いいね数: 198**
+    -   視聴数: 12,362
+    -   **いいね数: 215**
     -   出演者: 下山進, [東留伽](/rehacq_fan/people/東留伽 "wikilink")
     - [![](https://img.youtube.com/vi/GvqpaXwg63U/hqdefault.jpg)](https://www.youtube.com/watch?v=GvqpaXwg63U)
 1.  [【今野忍vs国境なき医師団】紛争地の現実…迫られる命の選択【ReHacQ高橋弘樹vs村田慎二郎】](/rehacq_fan/ids/n3zCjc1b194 "wikilink")
     -   公開日: 2026-07-31
-    -   視聴数: 50,906
-    -   **いいね数: 1,109**
+    -   視聴数: 53,267
+    -   **いいね数: 1,160**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 村田慎二郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/n3zCjc1b194/hqdefault.jpg)](https://www.youtube.com/watch?v=n3zCjc1b194)
 
