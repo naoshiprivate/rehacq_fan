@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】6、7月振り返り！まったり雑談生配信【高橋弘樹】](https://www.youtube.com/watch?v=ILhtUCzKMmw)
 [![](https://img.youtube.com/vi/ILhtUCzKMmw/sddefault.jpg)](https://www.youtube.com/watch?v=ILhtUCzKMmw)
 -   公開日: 2026-08-01
--   視聴数: 90,466
--   **いいね数: 1,431**
+-   視聴数: 94,677
+-   **いいね数: 1,466**
 -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
