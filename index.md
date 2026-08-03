@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【呉座勇一vs高橋弘樹】武士道は嘘だった？メンツが最優先、武士の起源とは？【ReHacQ】](/rehacq_fan/ids/xkmlX5kigSU "wikilink")
+    -   公開日: 2026-08-03
+    -   視聴数: 1,617
+    -   **いいね数: 63**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/xkmlX5kigSU/hqdefault.jpg)](https://www.youtube.com/watch?v=xkmlX5kigSU)
 1.  [【高橋弘樹vs龍馬伝チーフ演出】坂本龍馬の魅力とは？『龍馬伝』を語る回！【大友啓史vs佐々木紀彦vs阿部けいしvs河野貴輝vsReHacQ】](/rehacq_fan/ids/XxxDmfuI3uQ "wikilink")
     -   公開日: 2026-08-02
-    -   視聴数: 35,407
-    -   **いいね数: 683**
+    -   視聴数: 48,705
+    -   **いいね数: 902**
     -   出演者: 
     - [![](https://img.youtube.com/vi/XxxDmfuI3uQ/hqdefault.jpg)](https://www.youtube.com/watch?v=XxxDmfuI3uQ)
 1.  [【緊急生配信】八代市長に取材、熊本地震の現状と今後の対応について【ReHacQ&小野泰輔&高橋弘樹】](/rehacq_fan/ids/wD6_EWN-bos "wikilink")
     -   公開日: 2026-08-02
-    -   視聴数: 105,892
-    -   **いいね数: 3,267**
+    -   視聴数: 126,111
+    -   **いいね数: 3,789**
     -   出演者: 
     - [![](https://img.youtube.com/vi/wD6_EWN-bos/hqdefault.jpg)](https://www.youtube.com/watch?v=wD6_EWN-bos)
 1.  [【ひろゆきvs岩井俊二②】大ヒット作の製作秘話…映画で伝えたい想いとは【ReHacQ高橋弘樹vs西田亮介】](/rehacq_fan/ids/EFxJQFhAfEs "wikilink")
     -   公開日: 2026-08-02
-    -   視聴数: 23,960
-    -   **いいね数: 384**
+    -   視聴数: 25,784
+    -   **いいね数: 415**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 岩井俊二, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/EFxJQFhAfEs/hqdefault.jpg)](https://www.youtube.com/watch?v=EFxJQFhAfEs)
 1.  [【ReHacQ生配信】6、7月振り返り！まったり雑談生配信【高橋弘樹】](/rehacq_fan/ids/ILhtUCzKMmw "wikilink")
     -   公開日: 2026-08-01
-    -   視聴数: 103,827
-    -   **いいね数: 1,525**
+    -   視聴数: 107,326
+    -   **いいね数: 1,578**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/ILhtUCzKMmw/hqdefault.jpg)](https://www.youtube.com/watch?v=ILhtUCzKMmw)
-1.  [【田中渓vs片岡鶴太郎】人生の決断になぜ迷わない？ピンチの時に新しい扉が開く…人生救った一輪の花【ReHacQ】](/rehacq_fan/ids/S4CYDFn7xjg "wikilink")
-    -   公開日: 2026-08-01
-    -   視聴数: 166,362
-    -   **いいね数: 2,282**
-    -   出演者: 片岡鶴太郎, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
-    - [![](https://img.youtube.com/vi/S4CYDFn7xjg/hqdefault.jpg)](https://www.youtube.com/watch?v=S4CYDFn7xjg)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -46,15 +46,15 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 7, 視聴数: 604,096, いいね数: 10,897
+-   動画数: 8, 視聴数: 661,981, いいね数: 12,019
 
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 96, 視聴数: 11,072,130, いいね数: 181,800
+-   動画数: 96, 視聴数: 11,108,270, いいね数: 182,447
 
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 92, 視聴数: 14,680,575, いいね数: 203,584
+-   動画数: 92, 視聴数: 14,716,929, いいね数: 203,895
 
 #### [2026年05月](videos/202605 "wikilink")
 
@@ -62,7 +62,7 @@
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 24,544,412, いいね数: 372,930
+-   動画数: 96, 視聴数: 24,550,944, いいね数: 372,970
 
 #### [2026年03月](videos/202603 "wikilink")
 
@@ -70,11 +70,11 @@
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 25,452,376, いいね数: 362,421
+-   動画数: 98, 視聴数: 25,452,390, いいね数: 362,421
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 23,233,772, いいね数: 335,173
+-   動画数: 90, 視聴数: 23,237,519, いいね数: 335,202
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -90,7 +90,7 @@
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 18,400,440, いいね数: 283,893
+-   動画数: 87, 視聴数: 18,401,910, いいね数: 283,904
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -98,7 +98,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 23,375,672, いいね数: 386,136
+-   動画数: 76, 視聴数: 23,375,814, いいね数: 386,135
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -106,15 +106,15 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 16,927,405, いいね数: 209,273
+-   動画数: 63, 視聴数: 16,928,195, いいね数: 209,278
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 23,522,353, いいね数: 354,336
+-   動画数: 58, 視聴数: 23,522,639, いいね数: 354,337
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 15,582,975, いいね数: 259,243
+-   動画数: 61, 視聴数: 15,584,192, いいね数: 259,240
 
 #### [2025年02月](videos/202502 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 8,243,164, いいね数: 142,082
 
 ---
-2026-08-03 07:00
+2026-08-03 12:00
