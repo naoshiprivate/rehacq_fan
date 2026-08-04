@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【辺野古沖事故】事故現場の海中へ・あの日海上で全てを見た核心証言【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/7jtedR--XPg "wikilink")
+    -   公開日: 2026-08-04
+    -   視聴数: 10,214
+    -   **いいね数: 497**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/7jtedR--XPg/hqdefault.jpg)](https://www.youtube.com/watch?v=7jtedR--XPg)
 1.  [【人間関係vs精神科医】「頑張る」を手放せ！職場の悩みを減らす“べき思考”とは？【藤野智哉&肉乃小路ニクヨ&ReHacQ】](/rehacq_fan/ids/pcDO00t_hrc "wikilink")
     -   公開日: 2026-08-04
-    -   視聴数: 3,197
-    -   **いいね数: 208**
+    -   視聴数: 7,172
+    -   **いいね数: 390**
     -   出演者: 
     - [![](https://img.youtube.com/vi/pcDO00t_hrc/hqdefault.jpg)](https://www.youtube.com/watch?v=pcDO00t_hrc)
 1.  [【ReHacQ緊急生配信】維新の会吉村洋文代表に聞く！副首都、社会保険料など…【維新の会vs高橋弘樹】](/rehacq_fan/ids/aDlGYa0Ve6s "wikilink")
     -   公開日: 2026-08-03
-    -   視聴数: 179,782
-    -   **いいね数: 4,858**
+    -   視聴数: 188,283
+    -   **いいね数: 5,045**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/aDlGYa0Ve6s/hqdefault.jpg)](https://www.youtube.com/watch?v=aDlGYa0Ve6s)
 1.  [【呉座勇一vs高橋弘樹】武士道は嘘だった？メンツが最優先、武士の起源とは？【ReHacQ】](/rehacq_fan/ids/xkmlX5kigSU "wikilink")
     -   公開日: 2026-08-03
-    -   視聴数: 183,218
-    -   **いいね数: 2,610**
+    -   視聴数: 189,142
+    -   **いいね数: 2,707**
     -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/xkmlX5kigSU/hqdefault.jpg)](https://www.youtube.com/watch?v=xkmlX5kigSU)
 1.  [【高橋弘樹vs龍馬伝チーフ演出】坂本龍馬の魅力とは？『龍馬伝』を語る回！【大友啓史vs佐々木紀彦vs阿部けいしvs河野貴輝vsReHacQ】](/rehacq_fan/ids/XxxDmfuI3uQ "wikilink")
     -   公開日: 2026-08-02
-    -   視聴数: 83,662
-    -   **いいね数: 1,415**
+    -   視聴数: 84,714
+    -   **いいね数: 1,439**
     -   出演者: [佐々木紀彦](/rehacq_fan/people/佐々木紀彦 "wikilink"), 大友啓史, 河野貴輝, [阿部けいし](/rehacq_fan/people/阿部けいし "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/XxxDmfuI3uQ/hqdefault.jpg)](https://www.youtube.com/watch?v=XxxDmfuI3uQ)
-1.  [【緊急生配信】八代市長に取材、熊本地震の現状と今後の対応について【ReHacQ&小野泰輔&高橋弘樹】](/rehacq_fan/ids/wD6_EWN-bos "wikilink")
-    -   公開日: 2026-08-02
-    -   視聴数: 167,772
-    -   **いいね数: 4,559**
-    -   出演者: 小野泰輔, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/wD6_EWN-bos/hqdefault.jpg)](https://www.youtube.com/watch?v=wD6_EWN-bos)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -46,15 +46,15 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 10, 視聴数: 1,233,721, いいね数: 22,461
+-   動画数: 11, 視聴数: 1,271,379, いいね数: 23,561
 
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 96, 視聴数: 11,245,917, いいね数: 184,293
+-   動画数: 96, 視聴数: 11,249,876, いいね数: 184,377
 
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 92, 視聴数: 14,738,715, いいね数: 204,146
+-   動画数: 92, 視聴数: 14,784,841, いいね数: 204,506
 
 #### [2026年05月](videos/202605 "wikilink")
 
@@ -62,7 +62,7 @@
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 24,594,972, いいね数: 373,293
+-   動画数: 96, 視聴数: 24,595,015, いいね数: 373,293
 
 #### [2026年03月](videos/202603 "wikilink")
 
@@ -78,7 +78,7 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 18,113,132, いいね数: 220,662
+-   動画数: 83, 視聴数: 18,113,496, いいね数: 220,665
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -86,7 +86,7 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 26,059,308, いいね数: 360,666
+-   動画数: 102, 視聴数: 26,059,310, いいね数: 360,666
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -126,15 +126,15 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 19,157,060, いいね数: 312,451
+-   動画数: 60, 視聴数: 19,157,539, いいね数: 312,456
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 23,574,712, いいね数: 384,011
+-   動画数: 38, 視聴数: 23,576,836, いいね数: 384,012
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,455,402, いいね数: 344,639
+-   動画数: 72, 視聴数: 23,455,620, いいね数: 344,631
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -146,7 +146,7 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 16,647,395, いいね数: 295,067
+-   動画数: 44, 視聴数: 16,647,562, いいね数: 295,066
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 8,243,164, いいね数: 142,082
 
 ---
-2026-08-04 20:00
+2026-08-04 22:00
