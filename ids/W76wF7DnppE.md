@@ -3,4 +3,4 @@
 -   公開日: 2025-07-22
 -   視聴数: 318,229
 -   **いいね数: 7,249**
--   出演者: [肉乃小路ニクヨ](/rehacq_fan/people/肉乃小路ニクヨ "wikilink"), 藤野智哉
+-   出演者: [肉乃小路ニクヨ](/rehacq_fan/people/肉乃小路ニクヨ "wikilink"), [藤野智哉](/rehacq_fan/people/藤野智哉 "wikilink")

@@ -242,8 +242,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮沢洋一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【高橋弘樹vs 斎藤知事に激怒の議員】兵庫県告発文書！百条委員会の委員長の本音【ReHacQ】](/rehacq_fan/ids/uY0Jmw4wR7Y "wikilink")
     -   公開日: 2024-10-04
-    -   視聴数: 1,713,904
-    -   **いいね数: 21,155**
+    -   視聴数: 1,714,646
+    -   **いいね数: 21,148**
     -   出演者: 奥谷謙一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【金美齢vs高橋弘樹】激白！安倍晋三の知られざる素顔...総裁選の裏話とは？石破茂に激怒！一体なぜ？【ReHacQ】](/rehacq_fan/ids/mSI7MFp4pAE "wikilink")
     -   公開日: 2026-02-12
@@ -265,6 +265,11 @@
     -   視聴数: 1,075,178
     -   **いいね数: 20,723**
     -   出演者: カルロス・ゴーン, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
+1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
+    -   公開日: 2025-08-09
+    -   視聴数: 1,837,845
+    -   **いいね数: 20,542**
+    -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs泉 前明石市長】172億はどこから？退任直前…赤裸々告白【市町村のやるべき事】](/rehacq_fan/ids/WyDR8GuPC_k "wikilink")
     -   公開日: 2023-05-06
     -   視聴数: 1,466,650
@@ -280,11 +285,6 @@
     -   視聴数: 1,235,054
     -   **いいね数: 20,327**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
-    -   公開日: 2025-08-09
-    -   視聴数: 1,697,022
-    -   **いいね数: 20,144**
-    -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs鈴木宗男】ウクライナ侵攻に持論…ロシアの思惑は？【日本維新の会・副代表】](/rehacq_fan/ids/Thz0fKoe98c "wikilink")
     -   公開日: 2023-07-23
     -   視聴数: 2,262,517
