@@ -3,4 +3,4 @@
 -   公開日: 2025-09-13
 -   視聴数: 398,143
 -   **いいね数: 5,366**
--   出演者: 佐々木紀彦, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [佐々木紀彦](/rehacq_fan/people/佐々木紀彦 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

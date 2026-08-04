@@ -3,4 +3,4 @@
 -   公開日: 2026-06-17
 -   視聴数: 38,784
 -   **いいね数: 1,232**
--   出演者: 阿部けいし, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [阿部けいし](/rehacq_fan/people/阿部けいし "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
