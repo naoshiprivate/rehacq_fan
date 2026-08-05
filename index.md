@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【田中渓vs中西哲生】久保建英に教える"整える力"とは？一流を育てる「55の習慣」【ReHacQ】](/rehacq_fan/ids/2s6sqhkUgOI "wikilink")
     -   公開日: 2026-08-05
-    -   視聴数: 6,399
-    -   **いいね数: 221**
-    -   出演者: 
+    -   視聴数: 8,483
+    -   **いいね数: 257**
+    -   出演者: 中西哲生, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
     - [![](https://img.youtube.com/vi/2s6sqhkUgOI/hqdefault.jpg)](https://www.youtube.com/watch?v=2s6sqhkUgOI)
 1.  [【高橋弘樹vs法学者】日本はスパイ天国？「やりたい放題」の実態とは？【ReHacQvs丸橋昌太郎】](/rehacq_fan/ids/dSpOlPJhREs "wikilink")
     -   公開日: 2026-08-05
-    -   視聴数: 6,815
-    -   **いいね数: 233**
-    -   出演者: 
+    -   視聴数: 8,558
+    -   **いいね数: 252**
+    -   出演者: 丸橋昌太郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/dSpOlPJhREs/hqdefault.jpg)](https://www.youtube.com/watch?v=dSpOlPJhREs)
 1.  [【辺野古沖事故】事故現場の海中へ・あの日海上で全てを見た核心証言【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/7jtedR--XPg "wikilink")
     -   公開日: 2026-08-04
-    -   視聴数: 203,549
-    -   **いいね数: 5,961**
+    -   視聴数: 207,733
+    -   **いいね数: 6,045**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/7jtedR--XPg/hqdefault.jpg)](https://www.youtube.com/watch?v=7jtedR--XPg)
 1.  [【人間関係vs精神科医】「頑張る」を手放せ！職場の悩みを減らす“べき思考”とは？【藤野智哉&肉乃小路ニクヨ&ReHacQ】](/rehacq_fan/ids/pcDO00t_hrc "wikilink")
     -   公開日: 2026-08-04
-    -   視聴数: 43,738
-    -   **いいね数: 1,020**
+    -   視聴数: 45,005
+    -   **いいね数: 1,038**
     -   出演者: [肉乃小路ニクヨ](/rehacq_fan/people/肉乃小路ニクヨ "wikilink"), [藤野智哉](/rehacq_fan/people/藤野智哉 "wikilink")
     - [![](https://img.youtube.com/vi/pcDO00t_hrc/hqdefault.jpg)](https://www.youtube.com/watch?v=pcDO00t_hrc)
 1.  [【ReHacQ緊急生配信】維新の会吉村洋文代表に聞く！副首都、社会保険料など…【維新の会vs高橋弘樹】](/rehacq_fan/ids/aDlGYa0Ve6s "wikilink")
     -   公開日: 2026-08-03
-    -   視聴数: 233,466
-    -   **いいね数: 5,647**
+    -   視聴数: 235,077
+    -   **いいね数: 5,667**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/aDlGYa0Ve6s/hqdefault.jpg)](https://www.youtube.com/watch?v=aDlGYa0Ve6s)
 
@@ -46,15 +46,15 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 13, 視聴数: 1,684,096, いいね数: 32,202
+-   動画数: 13, 視聴数: 1,699,957, いいね数: 32,438
 
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 96, 視聴数: 11,388,743, いいね数: 186,072
+-   動画数: 96, 視聴数: 11,389,705, いいね数: 186,080
 
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 92, 視聴数: 15,007,913, いいね数: 206,085
+-   動画数: 92, 視聴数: 15,103,253, いいね数: 206,645
 
 #### [2026年05月](videos/202605 "wikilink")
 
@@ -62,7 +62,7 @@
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 24,595,591, いいね数: 373,301
+-   動画数: 96, 視聴数: 24,595,601, いいね数: 373,301
 
 #### [2026年03月](videos/202603 "wikilink")
 
@@ -70,11 +70,11 @@
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 25,480,714, いいね数: 362,585
+-   動画数: 98, 視聴数: 25,483,403, いいね数: 362,590
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 23,272,261, いいね数: 335,349
+-   動画数: 90, 視聴数: 23,272,272, いいね数: 335,349
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -90,7 +90,7 @@
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 18,404,813, いいね数: 283,924
+-   動画数: 87, 視聴数: 18,418,739, いいね数: 284,005
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -142,11 +142,11 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 22,017,438, いいね数: 343,639
+-   動画数: 43, 視聴数: 22,018,366, いいね数: 343,639
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 16,647,562, いいね数: 295,066
+-   動画数: 44, 視聴数: 16,647,831, いいね数: 295,061
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 8,243,164, いいね数: 142,082
 
 ---
-2026-08-05 23:00
+2026-08-06 00:00
