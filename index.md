@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【辺野古沖事故】事故現場の海中へ・あの日海上で全てを見た核心証言【ReHacQ高橋弘樹・須賀川拓・今野忍】](/rehacq_fan/ids/7jtedR--XPg "wikilink")
     -   公開日: 2026-08-04
-    -   視聴数: 149,718
-    -   **いいね数: 4,732**
+    -   視聴数: 156,576
+    -   **いいね数: 4,918**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/7jtedR--XPg/hqdefault.jpg)](https://www.youtube.com/watch?v=7jtedR--XPg)
 1.  [【人間関係vs精神科医】「頑張る」を手放せ！職場の悩みを減らす“べき思考”とは？【藤野智哉&肉乃小路ニクヨ&ReHacQ】](/rehacq_fan/ids/pcDO00t_hrc "wikilink")
     -   公開日: 2026-08-04
-    -   視聴数: 30,418
-    -   **いいね数: 779**
+    -   視聴数: 32,098
+    -   **いいね数: 806**
     -   出演者: [肉乃小路ニクヨ](/rehacq_fan/people/肉乃小路ニクヨ "wikilink"), [藤野智哉](/rehacq_fan/people/藤野智哉 "wikilink")
     - [![](https://img.youtube.com/vi/pcDO00t_hrc/hqdefault.jpg)](https://www.youtube.com/watch?v=pcDO00t_hrc)
 1.  [【ReHacQ緊急生配信】維新の会吉村洋文代表に聞く！副首都、社会保険料など…【維新の会vs高橋弘樹】](/rehacq_fan/ids/aDlGYa0Ve6s "wikilink")
     -   公開日: 2026-08-03
-    -   視聴数: 217,889
-    -   **いいね数: 5,384**
+    -   視聴数: 219,391
+    -   **いいね数: 5,406**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/aDlGYa0Ve6s/hqdefault.jpg)](https://www.youtube.com/watch?v=aDlGYa0Ve6s)
 1.  [【呉座勇一vs高橋弘樹】武士道は嘘だった？メンツが最優先、武士の起源とは？【ReHacQ】](/rehacq_fan/ids/xkmlX5kigSU "wikilink")
     -   公開日: 2026-08-03
-    -   視聴数: 223,342
-    -   **いいね数: 3,033**
+    -   視聴数: 225,713
+    -   **いいね数: 3,077**
     -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/xkmlX5kigSU/hqdefault.jpg)](https://www.youtube.com/watch?v=xkmlX5kigSU)
 1.  [【高橋弘樹vs龍馬伝チーフ演出】坂本龍馬の魅力とは？『龍馬伝』を語る回！【大友啓史vs佐々木紀彦vs阿部けいしvs河野貴輝vsReHacQ】](/rehacq_fan/ids/XxxDmfuI3uQ "wikilink")
     -   公開日: 2026-08-02
-    -   視聴数: 89,623
-    -   **いいね数: 1,502**
+    -   視聴数: 89,933
+    -   **いいね数: 1,509**
     -   出演者: [佐々木紀彦](/rehacq_fan/people/佐々木紀彦 "wikilink"), 大友啓史, 河野貴輝, [阿部けいし](/rehacq_fan/people/阿部けいし "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/XxxDmfuI3uQ/hqdefault.jpg)](https://www.youtube.com/watch?v=XxxDmfuI3uQ)
 
@@ -46,19 +46,19 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 11, 視聴数: 1,541,013, いいね数: 29,296
+-   動画数: 11, 視聴数: 1,555,469, いいね数: 29,609
 
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 96, 視聴数: 11,376,832, いいね数: 185,805
+-   動画数: 96, 視聴数: 11,378,339, いいね数: 185,842
 
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 92, 視聴数: 14,837,641, いいね数: 205,151
+-   動画数: 92, 視聴数: 15,007,913, いいね数: 206,085
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 24,969,118, いいね数: 402,274
+-   動画数: 111, 視聴数: 24,974,478, いいね数: 402,317
 
 #### [2026年04月](videos/202604 "wikilink")
 
@@ -66,15 +66,15 @@
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 21,569,506, いいね数: 281,091
+-   動画数: 89, 視聴数: 21,623,194, いいね数: 281,523
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 25,461,134, いいね数: 362,437
+-   動画数: 98, 視聴数: 25,480,125, いいね数: 362,588
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 23,255,598, いいね数: 335,241
+-   動画数: 90, 視聴数: 23,267,859, いいね数: 335,312
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -82,7 +82,7 @@
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 13,590,668, いいね数: 184,849
+-   動画数: 79, 視聴数: 13,590,889, いいね数: 184,851
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -138,7 +138,7 @@
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 15,774,854, いいね数: 227,473
+-   動画数: 50, 視聴数: 15,780,507, いいね数: 227,505
 
 #### [2024年08月](videos/202408 "wikilink")
 
@@ -170,7 +170,7 @@
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,584,375, いいね数: 120,492
+-   動画数: 30, 視聴数: 9,585,831, いいね数: 120,505
 
 #### [2023年12月](videos/202312 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 8,243,164, いいね数: 142,082
 
 ---
-2026-08-05 12:00
+2026-08-05 13:00
