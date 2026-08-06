@@ -1,6 +1,6 @@
 ### [【田中渓vs片岡鶴太郎】人生の決断になぜ迷わない？ピンチの時に新しい扉が開く…人生救った一輪の花【ReHacQ】](https://www.youtube.com/watch?v=S4CYDFn7xjg)
 [![](https://img.youtube.com/vi/S4CYDFn7xjg/sddefault.jpg)](https://www.youtube.com/watch?v=S4CYDFn7xjg)
 -   公開日: 2026-08-01
--   視聴数: 326,485
--   **いいね数: 4,327**
+-   視聴数: 327,909
+-   **いいね数: 4,366**
 -   出演者: 片岡鶴太郎, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
