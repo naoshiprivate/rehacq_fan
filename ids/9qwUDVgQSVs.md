@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs選挙】現職の闇？討論会欠席の理由…結果にどう影響？立候補者は無知ばかり？SNS炎上商法の実態【ReHacQvs松田馨】](https://www.youtube.com/watch?v=9qwUDVgQSVs)
 [![](https://img.youtube.com/vi/9qwUDVgQSVs/sddefault.jpg)](https://www.youtube.com/watch?v=9qwUDVgQSVs)
 -   公開日: 2026-08-06
--   視聴数: 1,552
--   **いいね数: 47**
+-   視聴数: 23,481
+-   **いいね数: 657**
 -   出演者: 
