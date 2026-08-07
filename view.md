@@ -132,13 +132,13 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
     -   公開日: 2024-02-12
-    -   視聴数: 1,915,322
-    -   **いいね数: 16,350**
+    -   視聴数: 1,922,877
+    -   **いいね数: 16,416**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](/rehacq_fan/ids/4G8qsbpfLNo "wikilink")
     -   公開日: 2024-02-20
-    -   視聴数: 1,893,471
-    -   **いいね数: 16,929**
+    -   視聴数: 1,906,423
+    -   **いいね数: 17,012**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン・サックス】年収3億だけど「二度と戻りたくない」外資系投資会社で感じた限界とは？【ReHacQ】](/rehacq_fan/ids/dKXQC1J0VLw "wikilink")
     -   公開日: 2025-07-29
@@ -394,7 +394,7 @@
     -   公開日: 2025-05-13
     -   視聴数: 1,186,955
     -   **いいね数: 7,998**
-    -   出演者: 渡部雅浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    -   出演者: [渡部雅浩](/rehacq_fan/people/渡部雅浩 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦】動きに注目！天才物理学者の楽しすぎる量子力学入門【野村泰紀・宇宙とは？】](/rehacq_fan/ids/5iuWBR80ZWs "wikilink")
     -   公開日: 2023-07-07
     -   視聴数: 1,186,538
@@ -485,6 +485,11 @@
     -   視聴数: 1,104,855
     -   **いいね数: 8,091**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【藤田晋が緊急出演】「人生は不平等、だから…」メディア最後の出演！全ビジネスパーソンに伝えたい事【ReHacQ高橋弘樹】](/rehacq_fan/ids/kT34SGVBs6Y "wikilink")
+    -   公開日: 2025-12-13
+    -   視聴数: 1,103,390
+    -   **いいね数: 11,948**
+    -   出演者: 藤田晋, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](/rehacq_fan/ids/0mVSxF0JYRs "wikilink")
     -   公開日: 2025-03-06
     -   視聴数: 1,098,567
@@ -495,8 +500,3 @@
     -   視聴数: 1,095,043
     -   **いいね数: 20,749**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森永卓郎
-1.  [【石丸伸二vs高橋弘樹】第一部…大激論！議席0「再生の道」の真意は？第二部…「あつまれ！落選の森」候補者vs石丸代表！衝撃の真実【ReHacQ西田亮介】](/rehacq_fan/ids/tg3vnK5st1E "wikilink")
-    -   公開日: 2025-06-23
-    -   視聴数: 1,094,623
-    -   **いいね数: 26,814**
-    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

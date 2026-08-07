@@ -442,8 +442,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](/rehacq_fan/ids/4G8qsbpfLNo "wikilink")
     -   公開日: 2024-02-20
-    -   視聴数: 1,893,471
-    -   **いいね数: 16,929**
+    -   視聴数: 1,906,423
+    -   **いいね数: 17,012**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【石丸伸二vs高橋弘樹】緊急生配信！代表退任…「で、今後どうする？」まったりしつこく聞いてみる【ReHacQ 】](/rehacq_fan/ids/o9Ymcad1RXE "wikilink")
     -   公開日: 2025-08-27
@@ -485,6 +485,11 @@
     -   視聴数: 381,648
     -   **いいね数: 16,482**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
+    -   公開日: 2024-02-12
+    -   視聴数: 1,922,877
+    -   **いいね数: 16,416**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【成田悠輔、唖然】欲望地獄と資本主義、生きる道は？【エンタメ系IT起業家の激白】](/rehacq_fan/ids/4t0yL-uIfUA "wikilink")
     -   公開日: 2023-03-26
     -   視聴数: 860,725
@@ -495,8 +500,3 @@
     -   視聴数: 898,817
     -   **いいね数: 16,361**
     -   出演者: [中田敦彦](/rehacq_fan/people/中田敦彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
-    -   公開日: 2024-02-12
-    -   視聴数: 1,915,322
-    -   **いいね数: 16,350**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")

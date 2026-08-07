@@ -3,4 +3,4 @@
 -   公開日: 2025-05-13
 -   視聴数: 1,186,955
 -   **いいね数: 7,998**
--   出演者: 渡部雅浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [渡部雅浩](/rehacq_fan/people/渡部雅浩 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
