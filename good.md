@@ -155,6 +155,11 @@
     -   視聴数: 1,263,830
     -   **いいね数: 24,498**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【ひろゆきvs徳川家】徳川慶喜・明治天皇の玄孫が語る…家宝の歴史的価値、現在のお金事情とは？【ReHacQ高橋弘樹vs山岸美喜vs竹田恒泰】](/rehacq_fan/ids/GBWLEsCykyo "wikilink")
+    -   公開日: 2026-01-25
+    -   視聴数: 2,108,403
+    -   **いいね数: 23,848**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 山岸美喜, 竹田恒泰, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsデヴィ夫人】激怒‥国家観なき政治家は去れ？！ガチ放談【リハックマ】](/rehacq_fan/ids/XJbgK1m8j2Q "wikilink")
     -   公開日: 2024-06-23
     -   視聴数: 2,126,161
@@ -165,11 +170,6 @@
     -   視聴数: 1,837,341
     -   **いいね数: 23,696**
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【ひろゆきvs徳川家】徳川慶喜・明治天皇の玄孫が語る…家宝の歴史的価値、現在のお金事情とは？【ReHacQ高橋弘樹vs山岸美喜vs竹田恒泰】](/rehacq_fan/ids/GBWLEsCykyo "wikilink")
-    -   公開日: 2026-01-25
-    -   視聴数: 2,072,364
-    -   **いいね数: 23,599**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 山岸美喜, 竹田恒泰, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】ちょっとだけ大切なお知らせ…兵庫県知事選に関して【神戸新聞さん…ランチしましょう】](/rehacq_fan/ids/0P-1c-mn2mc "wikilink")
     -   公開日: 2024-12-08
     -   視聴数: 1,296,720
@@ -342,8 +342,8 @@
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆきvs後藤達也】ReHacQスタート！緊急生配信【日経テレ東大学、超えるには？】](/rehacq_fan/ids/qUU0-PC6yyk "wikilink")
     -   公開日: 2023-03-05
-    -   視聴数: 817,990
-    -   **いいね数: 18,785**
+    -   視聴数: 818,114
+    -   **いいね数: 18,784**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【恋愛病院 特別編】男子メンバー集結！2泊3日のリハビリ生活から4ヶ月以上経った今、何を語るのか…？【ReHacQ 高橋弘樹】](/rehacq_fan/ids/ukhxM0D0Itg "wikilink")
     -   公開日: 2026-05-12
