@@ -3,4 +3,4 @@
 -   公開日: 2025-07-12
 -   視聴数: 164,258
 -   **いいね数: 2,124**
--   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), ヨッピー
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [ヨッピー](/rehacq_fan/people/ヨッピー "wikilink")
