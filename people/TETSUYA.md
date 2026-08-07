@@ -1,7 +1,7 @@
 # TETSUYAの出演動画
 
 - 出演本数: 6
-- 平均視聴数: 174,146
+- 平均視聴数: 174,202
 - 平均いいね数: 2,056
 - [エンゲージメント](/rehacq_fan/engagement) (いいね/視聴数x100): 1.18
 
@@ -10,20 +10,20 @@
 
 1.  [【ひろゆきvsアフリカ旅】棺桶工場で衝撃！コーラの棺桶？EXILEが絶句【ReHacQ旅】](/rehacq_fan/ids/WsXY3apN3BM "wikilink")
     -   公開日: 2025-02-08
-    -   視聴数: 77,031
+    -   視聴数: 77,111
     -   **いいね数: 1,095**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
     - [![](https://img.youtube.com/vi/WsXY3apN3BM/hqdefault.jpg)](https://www.youtube.com/watch?v=WsXY3apN3BM)
 1.  [【ひろゆき×EXILE】アフリカガーナの医療最前線！ワクチンどう届ける【ドローン＆謎の車】](/rehacq_fan/ids/JQaEQQSnGT8 "wikilink")
     -   公開日: 2025-02-01
-    -   視聴数: 160,967
-    -   **いいね数: 1,162**
+    -   視聴数: 161,087
+    -   **いいね数: 1,164**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
     - [![](https://img.youtube.com/vi/JQaEQQSnGT8/hqdefault.jpg)](https://www.youtube.com/watch?v=JQaEQQSnGT8)
 1.  [【ひろゆき&EXILE】落ちたら即死!断崖絶壁の道の先にあるものとは…【アフリカガーナ秘境旅④】](/rehacq_fan/ids/W3uF1e8-pw8 "wikilink")
     -   公開日: 2025-01-26
-    -   視聴数: 91,270
-    -   **いいね数: 1,263**
+    -   視聴数: 91,408
+    -   **いいね数: 1,264**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
     - [![](https://img.youtube.com/vi/W3uF1e8-pw8/hqdefault.jpg)](https://www.youtube.com/watch?v=W3uF1e8-pw8)
 1.  [【ひろゆき&EXILE】秘境の地にワクチンを！最先端ドローンの実態【アフリカガーナ旅③】](/rehacq_fan/ids/Dfh9LTFtNRs "wikilink")

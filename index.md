@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【高橋弘樹vs東大気象学者】温暖化でガチ論争！猛暑続き40℃超えも...地球温暖化の真実とは？【ReHacQ】](/rehacq_fan/ids/p1svvcPi0sY "wikilink")
     -   公開日: 2026-08-07
-    -   視聴数: 9,831
-    -   **いいね数: 234**
+    -   視聴数: 37,596
+    -   **いいね数: 418**
     -   出演者: [渡部雅浩](/rehacq_fan/people/渡部雅浩 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/p1svvcPi0sY/hqdefault.jpg)](https://www.youtube.com/watch?v=p1svvcPi0sY)
 1.  [【日本株vs相場の四季】次の下げはいつ頃？見るべき経済指標は？【藤代宏一&永濱利廣&森本智子&ReHacQ】](/rehacq_fan/ids/dArrx0F41jk "wikilink")
     -   公開日: 2026-08-07
-    -   視聴数: 13,380
-    -   **いいね数: 179**
+    -   視聴数: 21,079
+    -   **いいね数: 222**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink")
     - [![](https://img.youtube.com/vi/dArrx0F41jk/hqdefault.jpg)](https://www.youtube.com/watch?v=dArrx0F41jk)
 1.  [【高橋弘樹vs地震学者】熊本地震を解説、現地調査から見えたこととは？　南海トラフ地震との関連性は？【ReHacQvs遠田晋次】](/rehacq_fan/ids/5HsGeJpdaoQ "wikilink")
     -   公開日: 2026-08-07
-    -   視聴数: 64,288
-    -   **いいね数: 920**
+    -   視聴数: 80,123
+    -   **いいね数: 1,015**
     -   出演者: 遠田晋次, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/5HsGeJpdaoQ/hqdefault.jpg)](https://www.youtube.com/watch?v=5HsGeJpdaoQ)
 1.  [【ReHacQ生配信】おじさんたちの人生相談！ミドルエイジクライシスとは？中年の悩みどうする？【箕輪厚介&黒岩里奈&高橋弘樹&ヨッピー&ちいた】](/rehacq_fan/ids/ocNUY2lhY58 "wikilink")
     -   公開日: 2026-08-06
-    -   視聴数: 168,850
-    -   **いいね数: 1,953**
+    -   視聴数: 183,719
+    -   **いいね数: 2,010**
     -   出演者: ちいた, [ヨッピー](/rehacq_fan/people/ヨッピー "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), [黒岩里奈](/rehacq_fan/people/黒岩里奈 "wikilink")
     - [![](https://img.youtube.com/vi/ocNUY2lhY58/hqdefault.jpg)](https://www.youtube.com/watch?v=ocNUY2lhY58)
 1.  [【今野忍vs戦争】ガザで悲劇…15人の仲間の命奪われる…なぜ？国境なき医師団のリアル【ReHacQ高橋弘樹vs村田慎二郎】](/rehacq_fan/ids/5Aq_qx6SMqU "wikilink")
     -   公開日: 2026-08-06
-    -   視聴数: 36,279
-    -   **いいね数: 1,014**
+    -   視聴数: 38,475
+    -   **いいね数: 1,050**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 村田慎二郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/5Aq_qx6SMqU/hqdefault.jpg)](https://www.youtube.com/watch?v=5Aq_qx6SMqU)
 
@@ -46,11 +46,11 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 20, 視聴数: 2,525,146, いいね数: 44,401
+-   動画数: 20, 視聴数: 2,627,545, いいね数: 45,113
 
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 96, 視聴数: 11,495,445, いいね数: 187,549
+-   動画数: 96, 視聴数: 11,500,913, いいね数: 187,596
 
 #### [2026年06月](videos/202606 "wikilink")
 
@@ -62,7 +62,7 @@
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 24,611,487, いいね数: 373,481
+-   動画数: 96, 視聴数: 24,612,120, いいね数: 373,482
 
 #### [2026年03月](videos/202603 "wikilink")
 
@@ -70,19 +70,19 @@
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 25,488,516, いいね数: 362,626
+-   動画数: 98, 視聴数: 25,490,043, いいね数: 362,636
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 23,330,578, いいね数: 335,756
+-   動画数: 90, 視聴数: 23,331,134, いいね数: 335,759
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 18,165,456, いいね数: 220,996
+-   動画数: 83, 視聴数: 18,166,157, いいね数: 220,995
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 13,599,722, いいね数: 184,913
+-   動画数: 79, 視聴数: 13,599,947, いいね数: 184,915
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -94,7 +94,7 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 17,129,088, いいね数: 273,669
+-   動画数: 65, 視聴数: 17,132,008, いいね数: 273,681
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -118,11 +118,11 @@
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,924,951, いいね数: 300,221
+-   動画数: 47, 視聴数: 16,926,202, いいね数: 300,231
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 19,317,987, いいね数: 300,706
+-   動画数: 48, 視聴数: 19,318,273, いいね数: 300,706
 
 #### [2024年12月](videos/202412 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 8,253,138, いいね数: 142,101
 
 ---
-2026-08-08 00:00
+2026-08-08 07:00
