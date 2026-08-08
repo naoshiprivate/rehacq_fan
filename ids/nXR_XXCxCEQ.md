@@ -1,0 +1,6 @@
+### [【呉座勇一vs高橋弘樹】天皇家最大のピンチとは？日本史最大の謎、武士vs天皇【ReHacQ】](https://www.youtube.com/watch?v=nXR_XXCxCEQ)
+[![](https://img.youtube.com/vi/nXR_XXCxCEQ/sddefault.jpg)](https://www.youtube.com/watch?v=nXR_XXCxCEQ)
+-   公開日: 2026-08-09
+-   視聴数: 1
+-   **いいね数: 8**
+-   出演者: 
