@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【高橋弘樹vsダイエット】夏本番！健康的に痩せるには！？1ヶ月ガチダイエット【ReHacQvs日清食品佐藤真有美】](/rehacq_fan/ids/sAb6b0hjCMI "wikilink")
     -   公開日: 2026-08-09
-    -   視聴数: 11
-    -   **いいね数: 16**
+    -   視聴数: 3,670
+    -   **いいね数: 145**
     -   出演者: 
     - [![](https://img.youtube.com/vi/sAb6b0hjCMI/hqdefault.jpg)](https://www.youtube.com/watch?v=sAb6b0hjCMI)
 1.  [【呉座勇一vs高橋弘樹】天皇家最大のピンチとは？日本史最大の謎、武士vs天皇【ReHacQ】](/rehacq_fan/ids/nXR_XXCxCEQ "wikilink")
     -   公開日: 2026-08-09
-    -   視聴数: 90,276
-    -   **いいね数: 1,788**
+    -   視聴数: 106,957
+    -   **いいね数: 2,067**
     -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/nXR_XXCxCEQ/hqdefault.jpg)](https://www.youtube.com/watch?v=nXR_XXCxCEQ)
 1.  [【ReHacQ生配信】聞きたいニュース！視聴者の質問に答えるニュース番組【ひろゆき&西村ゆかvs乙武洋匡vs中室牧子vs高橋弘樹vs西田亮介】](/rehacq_fan/ids/bPCOQswlldg "wikilink")
     -   公開日: 2026-08-08
-    -   視聴数: 406,121
-    -   **いいね数: 5,322**
+    -   視聴数: 423,662
+    -   **いいね数: 5,513**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [中室牧子](/rehacq_fan/people/中室牧子 "wikilink"), [乙武洋匡](/rehacq_fan/people/乙武洋匡 "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/bPCOQswlldg/hqdefault.jpg)](https://www.youtube.com/watch?v=bPCOQswlldg)
 1.  [【コムドットやまとvs日東駒専】学歴コンプとは？知られざる専修大学の魅力を知りたい！「専修大の逆襲」【ReHacQvs雷獣・ベテランちvswakatte.TVふーみんvsニシコリvs根岸ほのか】](/rehacq_fan/ids/DeJx9EAT-10 "wikilink")
     -   公開日: 2026-08-08
-    -   視聴数: 127,728
-    -   **いいね数: 2,326**
+    -   視聴数: 130,543
+    -   **いいね数: 2,364**
     -   出演者: [やまと](/rehacq_fan/people/やまと "wikilink"), ケイタ, ジュンジ, [ベテランち](/rehacq_fan/people/ベテランち "wikilink"), マーク, ユーダイ, 根岸ほのか, [高田ふーみん](/rehacq_fan/people/高田ふーみん "wikilink")
     - [![](https://img.youtube.com/vi/DeJx9EAT-10/hqdefault.jpg)](https://www.youtube.com/watch?v=DeJx9EAT-10)
 1.  [【高橋弘樹vs東大気象学者】温暖化でガチ論争！猛暑続き40℃超えも...地球温暖化の真実とは？【ReHacQ】](/rehacq_fan/ids/p1svvcPi0sY "wikilink")
     -   公開日: 2026-08-07
-    -   視聴数: 139,147
-    -   **いいね数: 1,212**
+    -   視聴数: 143,532
+    -   **いいね数: 1,251**
     -   出演者: [渡部雅浩](/rehacq_fan/people/渡部雅浩 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/p1svvcPi0sY/hqdefault.jpg)](https://www.youtube.com/watch?v=p1svvcPi0sY)
 
@@ -46,11 +46,11 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 24, 視聴数: 3,633,705, いいね数: 58,579
+-   動画数: 24, 視聴数: 3,688,349, いいね数: 59,366
 
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 96, 視聴数: 11,857,784, いいね数: 191,202
+-   動画数: 96, 視聴数: 11,971,314, いいね数: 193,026
 
 #### [2026年06月](videos/202606 "wikilink")
 
@@ -58,7 +58,7 @@
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 25,013,447, いいね数: 402,621
+-   動画数: 111, 視聴数: 25,075,044, いいね数: 403,150
 
 #### [2026年04月](videos/202604 "wikilink")
 
@@ -74,7 +74,7 @@
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 23,337,215, いいね数: 335,818
+-   動画数: 90, 視聴数: 23,338,950, いいね数: 335,825
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -86,11 +86,11 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 26,074,602, いいね数: 360,864
+-   動画数: 102, 視聴数: 26,074,732, いいね数: 360,864
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 18,435,870, いいね数: 284,118
+-   動画数: 87, 視聴数: 18,436,298, いいね数: 284,118
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -102,7 +102,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 18,764,529, いいね数: 325,598
+-   動画数: 78, 視聴数: 18,764,658, いいね数: 325,598
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -134,7 +134,7 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,463,690, いいね数: 344,634
+-   動画数: 72, 視聴数: 23,463,692, いいね数: 344,632
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 8,253,138, いいね数: 142,101
 
 ---
-2026-08-09 20:00
+2026-08-09 22:00
