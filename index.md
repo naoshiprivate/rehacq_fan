@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【呉座勇一vs高橋弘樹】天皇家最大のピンチとは？日本史最大の謎、武士vs天皇【ReHacQ】](/rehacq_fan/ids/nXR_XXCxCEQ "wikilink")
     -   公開日: 2026-08-09
-    -   視聴数: 3,389
-    -   **いいね数: 159**
+    -   視聴数: 8,620
+    -   **いいね数: 405**
     -   出演者: 
     - [![](https://img.youtube.com/vi/nXR_XXCxCEQ/hqdefault.jpg)](https://www.youtube.com/watch?v=nXR_XXCxCEQ)
 1.  [【ReHacQ生配信】聞きたいニュース！視聴者の質問に答えるニュース番組【ひろゆき&西村ゆかvs乙武洋匡vs中室牧子vs高橋弘樹vs西田亮介】](/rehacq_fan/ids/bPCOQswlldg "wikilink")
     -   公開日: 2026-08-08
-    -   視聴数: 325,307
-    -   **いいね数: 4,309**
+    -   視聴数: 336,890
+    -   **いいね数: 4,430**
     -   出演者: 
     - [![](https://img.youtube.com/vi/bPCOQswlldg/hqdefault.jpg)](https://www.youtube.com/watch?v=bPCOQswlldg)
 1.  [【コムドットやまとvs日東駒専】学歴コンプとは？知られざる専修大学の魅力を知りたい！「専修大の逆襲」【ReHacQvs雷獣・ベテランちvswakatte.TVふーみんvsニシコリvs根岸ほのか】](/rehacq_fan/ids/DeJx9EAT-10 "wikilink")
     -   公開日: 2026-08-08
-    -   視聴数: 113,822
-    -   **いいね数: 2,166**
+    -   視聴数: 115,901
+    -   **いいね数: 2,188**
     -   出演者: [やまと](/rehacq_fan/people/やまと "wikilink"), ケイタ, ジュンジ, [ベテランち](/rehacq_fan/people/ベテランち "wikilink"), マーク, ユーダイ, 根岸ほのか, [高田ふーみん](/rehacq_fan/people/高田ふーみん "wikilink")
     - [![](https://img.youtube.com/vi/DeJx9EAT-10/hqdefault.jpg)](https://www.youtube.com/watch?v=DeJx9EAT-10)
 1.  [【高橋弘樹vs東大気象学者】温暖化でガチ論争！猛暑続き40℃超えも...地球温暖化の真実とは？【ReHacQ】](/rehacq_fan/ids/p1svvcPi0sY "wikilink")
     -   公開日: 2026-08-07
-    -   視聴数: 120,307
-    -   **いいね数: 1,086**
+    -   視聴数: 122,448
+    -   **いいね数: 1,107**
     -   出演者: [渡部雅浩](/rehacq_fan/people/渡部雅浩 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/p1svvcPi0sY/hqdefault.jpg)](https://www.youtube.com/watch?v=p1svvcPi0sY)
 1.  [【日本株vs相場の四季】次の下げはいつ頃？見るべき経済指標は？【藤代宏一&永濱利廣&森本智子&ReHacQ】](/rehacq_fan/ids/dArrx0F41jk "wikilink")
     -   公開日: 2026-08-07
-    -   視聴数: 36,887
-    -   **いいね数: 415**
+    -   視聴数: 37,272
+    -   **いいね数: 419**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink")
     - [![](https://img.youtube.com/vi/dArrx0F41jk/hqdefault.jpg)](https://www.youtube.com/watch?v=dArrx0F41jk)
 
@@ -46,7 +46,7 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 23, 視聴数: 3,388,990, いいね数: 55,080
+-   動画数: 23, 視聴数: 3,415,921, いいね数: 55,567
 
 #### [2026年07月](videos/202607 "wikilink")
 
@@ -62,11 +62,11 @@
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 24,616,489, いいね数: 373,497
+-   動画数: 96, 視聴数: 24,616,568, いいね数: 373,496
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 21,674,688, いいね数: 282,048
+-   動画数: 89, 視聴数: 21,676,377, いいね数: 282,056
 
 #### [2026年02月](videos/202602 "wikilink")
 
@@ -86,7 +86,7 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 26,074,474, いいね数: 360,868
+-   動画数: 102, 視聴数: 26,074,602, いいね数: 360,864
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -126,15 +126,15 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 19,169,681, いいね数: 312,515
+-   動画数: 60, 視聴数: 19,170,321, いいね数: 312,489
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 23,579,878, いいね数: 384,021
+-   動画数: 38, 視聴数: 23,588,301, いいね数: 383,989
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,460,097, いいね数: 344,635
+-   動画数: 72, 視聴数: 23,460,203, いいね数: 344,633
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 8,253,138, いいね数: 142,101
 
 ---
-2026-08-09 12:00
+2026-08-09 13:00
