@@ -3,4 +3,4 @@
 -   公開日: 2026-04-11
 -   視聴数: 893,266
 -   **いいね数: 9,573**
--   出演者: 小泉悠, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [小泉悠](/rehacq_fan/people/小泉悠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
