@@ -7,8 +7,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](/rehacq_fan/ids/eOz1CzMBmuQ "wikilink")
     -   公開日: 2023-11-25
-    -   視聴数: 3,380,032
-    -   **いいね数: 25,994**
+    -   視聴数: 3,384,629
+    -   **いいね数: 25,990**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔vs石丸伸二】緊急生配信②経済、TOKYO、そして民主主義の行方【元三菱東京UFJアナリスト】](/rehacq_fan/ids/zZ13VzNu83s "wikilink")
     -   公開日: 2024-07-10
@@ -227,8 +227,8 @@
     -   出演者: 大澤芳清, [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), 木島洋嗣, 清水貴之, 福本繁幸, 稲村和美, [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一の野望【落選４回…なぜ政治家に？】](/rehacq_fan/ids/Ue3JGrtEO3Y "wikilink")
     -   公開日: 2023-11-19
-    -   視聴数: 1,533,031
-    -   **いいね数: 9,145**
+    -   視聴数: 1,536,111
+    -   **いいね数: 9,151**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【坂上忍vsひろゆきvs箕輪厚介】炎上は恐れない！？芸歴56年…“ヒール”の流儀・生き様を語る！【ReHacQ】](/rehacq_fan/ids/FXER_XtqCkY "wikilink")
     -   公開日: 2026-05-03
