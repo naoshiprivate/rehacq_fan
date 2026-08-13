@@ -1,6 +1,6 @@
 ### [【切り離す子育て】助けるのはNG！？子どもに伝えたい“生き抜く基盤” 世界を広げる思考とは？【河村真木子&山口真由&ReHacQ】](https://www.youtube.com/watch?v=d9ESCo8BzAc)
 [![](https://img.youtube.com/vi/d9ESCo8BzAc/sddefault.jpg)](https://www.youtube.com/watch?v=d9ESCo8BzAc)
 -   公開日: 2026-03-24
--   視聴数: 463,770
--   **いいね数: 5,972**
+-   視聴数: 466,858
+-   **いいね数: 6,007**
 -   出演者: [山口真由](/rehacq_fan/people/山口真由 "wikilink"), [河村真木子](/rehacq_fan/people/河村真木子 "wikilink")
