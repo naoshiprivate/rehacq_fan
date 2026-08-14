@@ -1,6 +1,6 @@
 ### [【後藤達也vsテスタ】純利益100億円超え…オルカンより長期個別株に投資するワケ【S&P500】](https://www.youtube.com/watch?v=EBbnketiXeE)
 [![](https://img.youtube.com/vi/EBbnketiXeE/sddefault.jpg)](https://www.youtube.com/watch?v=EBbnketiXeE)
 -   公開日: 2024-06-13
--   視聴数: 603,890
--   **いいね数: 6,111**
+-   視聴数: 605,007
+-   **いいね数: 6,114**
 -   出演者: [テスタ](/rehacq_fan/people/テスタ "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
