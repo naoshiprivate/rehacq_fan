@@ -367,8 +367,8 @@
     -   出演者: 暇空茜, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](/rehacq_fan/ids/CxDT2FaGi8o "wikilink")
     -   公開日: 2025-07-09
-    -   視聴数: 1,235,054
-    -   **いいね数: 20,327**
+    -   視聴数: 1,239,335
+    -   **いいね数: 20,328**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vsひろゆき】高市早苗が首相に指名！自維連立政権発足へ…日本どうなる！？まったり雑談【ReHacQ高橋弘樹vs西田亮介vs土田しんvs音喜多駿vs小西ひろゆき】](/rehacq_fan/ids/FLpXxsuYKls "wikilink")
     -   公開日: 2025-10-21
