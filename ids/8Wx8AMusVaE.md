@@ -1,6 +1,6 @@
 ### [【日本の国防vs小泉悠＆辻田真佐憲】戦争を防ぐ日本の条件とは？中国抑止に軍事力どこまで必要？薄れる戦争の記憶と憲法9条を徹底討論【ReHacQ須賀川拓】](https://www.youtube.com/watch?v=8Wx8AMusVaE)
 [![](https://img.youtube.com/vi/8Wx8AMusVaE/sddefault.jpg)](https://www.youtube.com/watch?v=8Wx8AMusVaE)
 -   公開日: 2026-08-15
--   視聴数: 9,482
--   **いいね数: 408**
+-   視聴数: 15,849
+-   **いいね数: 554**
 -   出演者: 
