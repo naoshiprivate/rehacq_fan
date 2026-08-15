@@ -1,6 +1,6 @@
 ### [【田舎vs都会】移住に最適な年齢・時期は？日本の教育は遅れている？カギは放任主義！？【ReHacQ高橋弘樹vs稲本正】](https://www.youtube.com/watch?v=BzPxkNUXGeE)
 [![](https://img.youtube.com/vi/BzPxkNUXGeE/sddefault.jpg)](https://www.youtube.com/watch?v=BzPxkNUXGeE)
 -   公開日: 2026-08-13
--   視聴数: 75,638
--   **いいね数: 1,574**
+-   視聴数: 76,801
+-   **いいね数: 1,590**
 -   出演者: 稲本正, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
