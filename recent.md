@@ -1,31 +1,31 @@
+1.  [【恋愛病院②】恋のおくすり連発！男女2人が同じ部屋で一夜を過ごす!? 聖なる処方キー【ReHacQ】](/rehacq_fan/ids/pQvrBpsCzXs "wikilink")
+    -   公開日: 2026-08-16
+    -   視聴数: 886
+    -   **いいね数: 86**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/pQvrBpsCzXs/hqdefault.jpg)](https://www.youtube.com/watch?v=pQvrBpsCzXs)
 1.  [【恋愛病院①】本気の恋を忘れたワケあり男女10人の恋愛だけに向き合う2泊3日のリハビリ生活スタート！【ReHacQ】](/rehacq_fan/ids/i8_QjT8Jip8 "wikilink")
     -   公開日: 2026-08-16
-    -   視聴数: 1
-    -   **いいね数: 9**
+    -   視聴数: 5,109
+    -   **いいね数: 314**
     -   出演者: 
     - [![](https://img.youtube.com/vi/i8_QjT8Jip8/hqdefault.jpg)](https://www.youtube.com/watch?v=i8_QjT8Jip8)
 1.  [【ReHacQ生配信】お盆のまったり雑談！【ひろゆきvs今野忍vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/Xm0wROj5Kvw "wikilink")
     -   公開日: 2026-08-15
-    -   視聴数: 184,530
-    -   **いいね数: 3,251**
+    -   視聴数: 234,715
+    -   **いいね数: 4,146**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/Xm0wROj5Kvw/hqdefault.jpg)](https://www.youtube.com/watch?v=Xm0wROj5Kvw)
 1.  [【日本の国防vs小泉悠＆辻田真佐憲】戦争を防ぐ日本の条件とは？中国抑止に軍事力どこまで必要？薄れる戦争の記憶と憲法9条を徹底討論【ReHacQ須賀川拓】](/rehacq_fan/ids/8Wx8AMusVaE "wikilink")
     -   公開日: 2026-08-15
-    -   視聴数: 68,816
-    -   **いいね数: 944**
+    -   視聴数: 86,530
+    -   **いいね数: 1,223**
     -   出演者: [小泉悠](/rehacq_fan/people/小泉悠 "wikilink"), [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink")
     - [![](https://img.youtube.com/vi/8Wx8AMusVaE/hqdefault.jpg)](https://www.youtube.com/watch?v=8Wx8AMusVaE)
 1.  [【コムドットやまとvs日東駒専】学歴フィルターの壁...知られざる専修大学の就活事情と大学生活とは【ReHacQvs雷獣・ベテランちvswakatte.TVふーみんvsニシコリvs根岸ほのか】](/rehacq_fan/ids/h8KXYQatLAw "wikilink")
     -   公開日: 2026-08-15
-    -   視聴数: 93,191
-    -   **いいね数: 1,403**
+    -   視聴数: 98,810
+    -   **いいね数: 1,476**
     -   出演者: [やまと](/rehacq_fan/people/やまと "wikilink"), ケイタ, ジュンジ, [ベテランち](/rehacq_fan/people/ベテランち "wikilink"), マーク, ユーダイ, 根岸ほのか, [高田ふーみん](/rehacq_fan/people/高田ふーみん "wikilink")
     - [![](https://img.youtube.com/vi/h8KXYQatLAw/hqdefault.jpg)](https://www.youtube.com/watch?v=h8KXYQatLAw)
-1.  [【ReHacQ生配信】聞きたいニュース！視聴者の質問に答えるニュース番組【中室牧子vs斎藤幸平vs高橋弘樹】](/rehacq_fan/ids/UKWyzxDSCcE "wikilink")
-    -   公開日: 2026-08-14
-    -   視聴数: 213,805
-    -   **いいね数: 2,554**
-    -   出演者: [中室牧子](/rehacq_fan/people/中室牧子 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/UKWyzxDSCcE/hqdefault.jpg)](https://www.youtube.com/watch?v=UKWyzxDSCcE)
 
