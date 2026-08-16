@@ -3,4 +3,4 @@
 -   公開日: 2026-04-26
 -   視聴数: 174,396
 -   **いいね数: 2,441**
--   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), アレン様, 玉城ティナ, 真木よう子
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [アレン様](/rehacq_fan/people/アレン様 "wikilink"), [玉城ティナ](/rehacq_fan/people/玉城ティナ "wikilink"), [真木よう子](/rehacq_fan/people/真木よう子 "wikilink")
