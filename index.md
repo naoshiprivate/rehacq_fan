@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【高橋弘樹vs政治学者】正しい日本史とは？従軍慰安婦や南京事件、戦争責任をどう考える？【ReHacQvs河野有理】](/rehacq_fan/ids/-UcJvOYrPsY "wikilink")
     -   公開日: 2026-08-16
-    -   視聴数: 2,662
-    -   **いいね数: 71**
+    -   視聴数: 6,080
+    -   **いいね数: 178**
     -   出演者: 
     - [![](https://img.youtube.com/vi/-UcJvOYrPsY/hqdefault.jpg)](https://www.youtube.com/watch?v=-UcJvOYrPsY)
 1.  [【ゆうとvs音喜多駿】「恋愛病院」第5回鑑賞会で生まれた炒飯対決…その結末とは？【ReHacQ】](/rehacq_fan/ids/B4wjGTWIvec "wikilink")
     -   公開日: 2026-08-16
-    -   視聴数: 10,481
-    -   **いいね数: 897**
+    -   視聴数: 15,028
+    -   **いいね数: 1,069**
     -   出演者: [小泉勇人](/rehacq_fan/people/小泉勇人 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink")
     - [![](https://img.youtube.com/vi/B4wjGTWIvec/hqdefault.jpg)](https://www.youtube.com/watch?v=B4wjGTWIvec)
 1.  [【恋愛病院⑥】ワケあり男女10名のリハビリ生活最終日！衝撃のラスト…MK5の真相とは？【ReHacQ】](/rehacq_fan/ids/rwHj65d7i5s "wikilink")
     -   公開日: 2026-08-16
-    -   視聴数: 10,221
-    -   **いいね数: 386**
+    -   視聴数: 12,094
+    -   **いいね数: 420**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [アレン様](/rehacq_fan/people/アレン様 "wikilink"), [玉城ティナ](/rehacq_fan/people/玉城ティナ "wikilink"), [真木よう子](/rehacq_fan/people/真木よう子 "wikilink")
     - [![](https://img.youtube.com/vi/rwHj65d7i5s/hqdefault.jpg)](https://www.youtube.com/watch?v=rwHj65d7i5s)
 1.  [【恋愛病院⑤】激怒と涙・純愛…恋人に求める絶対条件を知る権利を手にするのは!?【ReHacQ】](/rehacq_fan/ids/NBtxfe7m-f0 "wikilink")
     -   公開日: 2026-08-16
-    -   視聴数: 6,833
-    -   **いいね数: 230**
+    -   視聴数: 7,410
+    -   **いいね数: 241**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [アレン様](/rehacq_fan/people/アレン様 "wikilink"), [玉城ティナ](/rehacq_fan/people/玉城ティナ "wikilink"), [真木よう子](/rehacq_fan/people/真木よう子 "wikilink")
     - [![](https://img.youtube.com/vi/NBtxfe7m-f0/hqdefault.jpg)](https://www.youtube.com/watch?v=NBtxfe7m-f0)
 1.  [【恋愛病院④】恋の三角関係が急激に加速…大波乱の聖夜！史上最大の劇薬投入【ReHacQ】](/rehacq_fan/ids/QEXQQNMtTVA "wikilink")
     -   公開日: 2026-08-16
-    -   視聴数: 8,736
-    -   **いいね数: 216**
+    -   視聴数: 9,245
+    -   **いいね数: 228**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [アレン様](/rehacq_fan/people/アレン様 "wikilink"), [玉城ティナ](/rehacq_fan/people/玉城ティナ "wikilink"), [真木よう子](/rehacq_fan/people/真木よう子 "wikilink")
     - [![](https://img.youtube.com/vi/QEXQQNMtTVA/hqdefault.jpg)](https://www.youtube.com/watch?v=QEXQQNMtTVA)
 
@@ -52,19 +52,19 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 46, 視聴数: 7,001,866, いいね数: 105,987
+-   動画数: 46, 視聴数: 7,028,843, いいね数: 106,532
 
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 96, 視聴数: 12,476,250, いいね数: 198,095
+-   動画数: 96, 視聴数: 12,550,479, いいね数: 199,569
 
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 92, 視聴数: 15,319,424, いいね数: 208,883
+-   動画数: 92, 視聴数: 15,321,666, いいね数: 208,884
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 25,344,781, いいね数: 405,337
+-   動画数: 111, 視聴数: 25,355,899, いいね数: 405,423
 
 #### [2026年04月](videos/202604 "wikilink")
 
@@ -76,7 +76,7 @@
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 25,627,194, いいね数: 363,282
+-   動画数: 98, 視聴数: 25,630,386, いいね数: 363,320
 
 #### [2026年01月](videos/202601 "wikilink")
 
@@ -88,7 +88,7 @@
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 13,666,700, いいね数: 185,458
+-   動画数: 79, 視聴数: 13,667,185, いいね数: 185,464
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -112,7 +112,7 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 16,988,642, いいね数: 209,727
+-   動画数: 63, 視聴数: 16,993,594, いいね数: 209,795
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -120,7 +120,7 @@
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 15,603,870, いいね数: 259,318
+-   動画数: 61, 視聴数: 15,605,730, いいね数: 259,330
 
 #### [2025年02月](videos/202502 "wikilink")
 
@@ -132,7 +132,7 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 19,172,467, いいね数: 312,495
+-   動画数: 60, 視聴数: 19,173,021, いいね数: 312,497
 
 #### [2024年11月](videos/202411 "wikilink")
 
@@ -219,4 +219,4 @@
 -   動画数: 14, 視聴数: 8,256,268, いいね数: 142,131
 
 ---
-2026-08-16 22:00
+2026-08-16 23:00
