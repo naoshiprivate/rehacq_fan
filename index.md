@@ -1,31 +1,31 @@
 # ReHacQ 最近の動画
 1.  [【高橋弘樹vs辞め官僚】日経新聞&農水省辞め、年収70万に…なぜ？エリート街道捨て...ネギ農家になったワケ【ReHacQ】](/rehacq_fan/ids/Hl7WOKmNShM "wikilink")
     -   公開日: 2026-08-17
-    -   視聴数: 10,554
-    -   **いいね数: 202**
+    -   視聴数: 10,780
+    -   **いいね数: 209**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 高野馨太
     - [![](https://img.youtube.com/vi/Hl7WOKmNShM/hqdefault.jpg)](https://www.youtube.com/watch?v=Hl7WOKmNShM)
 1.  [【朝倉慶vs田端信太郎】株価急落時にどうする？新たな主役を徹底予測【ReHacQ】](/rehacq_fan/ids/NA3LIvKgyyA "wikilink")
     -   公開日: 2026-08-17
-    -   視聴数: 100,799
-    -   **いいね数: 1,997**
+    -   視聴数: 101,318
+    -   **いいね数: 2,007**
     -   出演者: [朝倉慶](/rehacq_fan/people/朝倉慶 "wikilink"), [田端信太郎](/rehacq_fan/people/田端信太郎 "wikilink")
     - [![](https://img.youtube.com/vi/NA3LIvKgyyA/hqdefault.jpg)](https://www.youtube.com/watch?v=NA3LIvKgyyA)
 1.  [【高橋弘樹vs政治学者】正しい日本史とは？従軍慰安婦や南京事件、戦争責任をどう考える？【ReHacQvs河野有理】](/rehacq_fan/ids/-UcJvOYrPsY "wikilink")
     -   公開日: 2026-08-16
-    -   視聴数: 99,551
-    -   **いいね数: 1,177**
+    -   視聴数: 99,876
+    -   **いいね数: 1,180**
     -   出演者: 河野有理, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/-UcJvOYrPsY/hqdefault.jpg)](https://www.youtube.com/watch?v=-UcJvOYrPsY)
 1.  [【ゆうとvs音喜多駿】「恋愛病院」第5回鑑賞会で生まれた炒飯対決…その結末とは？【ReHacQ】](/rehacq_fan/ids/B4wjGTWIvec "wikilink")
     -   公開日: 2026-08-16
-    -   視聴数: 46,219
-    -   **いいね数: 2,015**
+    -   視聴数: 46,310
+    -   **いいね数: 2,018**
     -   出演者: [小泉勇人](/rehacq_fan/people/小泉勇人 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink")
     - [![](https://img.youtube.com/vi/B4wjGTWIvec/hqdefault.jpg)](https://www.youtube.com/watch?v=B4wjGTWIvec)
 1.  [【恋愛病院⑥】ワケあり男女10名のリハビリ生活最終日！衝撃のラスト…MK5の真相とは？【ReHacQ】](/rehacq_fan/ids/rwHj65d7i5s "wikilink")
     -   公開日: 2026-08-16
-    -   視聴数: 23,146
+    -   視聴数: 23,174
     -   **いいね数: 587**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [アレン様](/rehacq_fan/people/アレン様 "wikilink"), [玉城ティナ](/rehacq_fan/people/玉城ティナ "wikilink"), [真木よう子](/rehacq_fan/people/真木よう子 "wikilink")
     - [![](https://img.youtube.com/vi/rwHj65d7i5s/hqdefault.jpg)](https://www.youtube.com/watch?v=rwHj65d7i5s)
@@ -52,7 +52,7 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 48, 視聴数: 7,492,166, いいね数: 113,594
+-   動画数: 48, 視聴数: 7,493,971, いいね数: 113,624
 
 #### [2026年07月](videos/202607 "wikilink")
 
@@ -60,11 +60,11 @@
 
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 92, 視聴数: 15,376,527, いいね数: 209,349
+-   動画数: 92, 視聴数: 15,380,513, いいね数: 209,362
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 25,398,033, いいね数: 405,798
+-   動画数: 111, 視聴数: 25,398,262, いいね数: 405,803
 
 #### [2026年04月](videos/202604 "wikilink")
 
@@ -72,23 +72,23 @@
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 22,309,067, いいね数: 288,495
+-   動画数: 89, 視聴数: 22,310,854, いいね数: 288,511
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 25,635,672, いいね数: 363,320
+-   動画数: 98, 視聴数: 25,635,810, いいね数: 363,313
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 23,452,564, いいね数: 336,705
+-   動画数: 90, 視聴数: 23,452,933, いいね数: 336,696
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 18,365,120, いいね数: 222,215
+-   動画数: 83, 視聴数: 18,366,037, いいね数: 222,219
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 13,667,781, いいね数: 185,463
+-   動画数: 79, 視聴数: 13,667,862, いいね数: 185,461
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -116,7 +116,7 @@
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 23,567,326, いいね数: 354,457
+-   動画数: 58, 視聴数: 23,570,245, いいね数: 354,468
 
 #### [2025年03月](videos/202503 "wikilink")
 
@@ -140,7 +140,7 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,480,448, いいね数: 344,645
+-   動画数: 72, 視聴数: 23,480,482, いいね数: 344,645
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -184,7 +184,7 @@
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,737,874, いいね数: 145,394
+-   動画数: 25, 視聴数: 13,737,888, いいね数: 145,394
 
 #### [2023年10月](videos/202310 "wikilink")
 
@@ -219,4 +219,4 @@
 -   動画数: 14, 視聴数: 8,256,287, いいね数: 142,131
 
 ---
-2026-08-18 00:00
+2026-08-18 00:07
