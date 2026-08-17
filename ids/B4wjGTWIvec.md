@@ -1,6 +1,6 @@
 ### [【ゆうとvs音喜多駿】「恋愛病院」第5回鑑賞会で生まれた炒飯対決…その結末とは？【ReHacQ】](https://www.youtube.com/watch?v=B4wjGTWIvec)
 [![](https://img.youtube.com/vi/B4wjGTWIvec/sddefault.jpg)](https://www.youtube.com/watch?v=B4wjGTWIvec)
 -   公開日: 2026-08-16
--   視聴数: 41,845
--   **いいね数: 1,882**
+-   視聴数: 44,136
+-   **いいね数: 1,964**
 -   出演者: [小泉勇人](/rehacq_fan/people/小泉勇人 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink")

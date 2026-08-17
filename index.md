@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【高橋弘樹vs辞め官僚】農水省を辞め、脱東京…なぜ？元日経エリート記者が農業に挑むワケ【ReHacQ】](/rehacq_fan/ids/Hl7WOKmNShM "wikilink")
+    -   公開日: 2026-08-17
+    -   視聴数: 3,958
+    -   **いいね数: 140**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/Hl7WOKmNShM/hqdefault.jpg)](https://www.youtube.com/watch?v=Hl7WOKmNShM)
 1.  [【朝倉慶vs田端信太郎】株価急落時にどうする？新たな主役を徹底予測【ReHacQ】](/rehacq_fan/ids/NA3LIvKgyyA "wikilink")
     -   公開日: 2026-08-17
-    -   視聴数: 60,605
-    -   **いいね数: 1,493**
+    -   視聴数: 80,789
+    -   **いいね数: 1,817**
     -   出演者: 
     - [![](https://img.youtube.com/vi/NA3LIvKgyyA/hqdefault.jpg)](https://www.youtube.com/watch?v=NA3LIvKgyyA)
 1.  [【高橋弘樹vs政治学者】正しい日本史とは？従軍慰安婦や南京事件、戦争責任をどう考える？【ReHacQvs河野有理】](/rehacq_fan/ids/-UcJvOYrPsY "wikilink")
     -   公開日: 2026-08-16
-    -   視聴数: 87,589
-    -   **いいね数: 1,087**
+    -   視聴数: 93,549
+    -   **いいね数: 1,138**
     -   出演者: 
     - [![](https://img.youtube.com/vi/-UcJvOYrPsY/hqdefault.jpg)](https://www.youtube.com/watch?v=-UcJvOYrPsY)
 1.  [【ゆうとvs音喜多駿】「恋愛病院」第5回鑑賞会で生まれた炒飯対決…その結末とは？【ReHacQ】](/rehacq_fan/ids/B4wjGTWIvec "wikilink")
     -   公開日: 2026-08-16
-    -   視聴数: 41,845
-    -   **いいね数: 1,882**
+    -   視聴数: 44,136
+    -   **いいね数: 1,964**
     -   出演者: [小泉勇人](/rehacq_fan/people/小泉勇人 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink")
     - [![](https://img.youtube.com/vi/B4wjGTWIvec/hqdefault.jpg)](https://www.youtube.com/watch?v=B4wjGTWIvec)
 1.  [【恋愛病院⑥】ワケあり男女10名のリハビリ生活最終日！衝撃のラスト…MK5の真相とは？【ReHacQ】](/rehacq_fan/ids/rwHj65d7i5s "wikilink")
     -   公開日: 2026-08-16
-    -   視聴数: 21,755
-    -   **いいね数: 563**
+    -   視聴数: 22,372
+    -   **いいね数: 576**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [アレン様](/rehacq_fan/people/アレン様 "wikilink"), [玉城ティナ](/rehacq_fan/people/玉城ティナ "wikilink"), [真木よう子](/rehacq_fan/people/真木よう子 "wikilink")
     - [![](https://img.youtube.com/vi/rwHj65d7i5s/hqdefault.jpg)](https://www.youtube.com/watch?v=rwHj65d7i5s)
-1.  [【恋愛病院⑤】激怒と涙・純愛…恋人に求める絶対条件を知る権利を手にするのは!?【ReHacQ】](/rehacq_fan/ids/NBtxfe7m-f0 "wikilink")
-    -   公開日: 2026-08-16
-    -   視聴数: 11,097
-    -   **いいね数: 293**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [アレン様](/rehacq_fan/people/アレン様 "wikilink"), [玉城ティナ](/rehacq_fan/people/玉城ティナ "wikilink"), [真木よう子](/rehacq_fan/people/真木よう子 "wikilink")
-    - [![](https://img.youtube.com/vi/NBtxfe7m-f0/hqdefault.jpg)](https://www.youtube.com/watch?v=NBtxfe7m-f0)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -52,23 +52,23 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 47, 視聴数: 7,389,259, いいね数: 112,230
+-   動画数: 48, 視聴数: 7,439,266, いいね数: 113,053
 
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 96, 視聴数: 12,594,792, いいね数: 199,969
+-   動画数: 96, 視聴数: 12,599,990, いいね数: 200,079
 
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 92, 視聴数: 15,375,078, いいね数: 209,347
+-   動画数: 92, 視聴数: 15,376,527, いいね数: 209,349
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 25,375,209, いいね数: 405,636
+-   動画数: 111, 視聴数: 25,398,033, いいね数: 405,798
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 24,887,164, いいね数: 375,801
+-   動画数: 96, 視聴数: 24,887,709, いいね数: 375,798
 
 #### [2026年03月](videos/202603 "wikilink")
 
@@ -80,7 +80,7 @@
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 23,448,288, いいね数: 336,648
+-   動画数: 90, 視聴数: 23,452,564, いいね数: 336,705
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -88,7 +88,7 @@
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 13,667,735, いいね数: 185,465
+-   動画数: 79, 視聴数: 13,667,781, いいね数: 185,463
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -104,7 +104,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 23,458,540, いいね数: 386,724
+-   動画数: 76, 視聴数: 23,469,513, いいね数: 386,946
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -116,7 +116,7 @@
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 23,561,760, いいね数: 354,445
+-   動画数: 58, 視聴数: 23,564,772, いいね数: 354,447
 
 #### [2025年03月](videos/202503 "wikilink")
 
@@ -168,7 +168,7 @@
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 9,875,678, いいね数: 115,815
+-   動画数: 44, 視聴数: 9,875,688, いいね数: 115,814
 
 #### [2024年02月](videos/202402 "wikilink")
 
@@ -188,15 +188,15 @@
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,880,637, いいね数: 175,564
+-   動画数: 33, 視聴数: 12,880,646, いいね数: 175,564
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,629,227, いいね数: 87,848
+-   動画数: 27, 視聴数: 6,629,528, いいね数: 87,854
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,840,789, いいね数: 129,124
+-   動画数: 33, 視聴数: 11,840,796, いいね数: 129,124
 
 #### [2023年07月](videos/202307 "wikilink")
 
@@ -219,4 +219,4 @@
 -   動画数: 14, 視聴数: 8,256,268, いいね数: 142,131
 
 ---
-2026-08-17 20:00
+2026-08-17 22:00
