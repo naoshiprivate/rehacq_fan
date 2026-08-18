@@ -282,8 +282,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】兵庫維新の会を除名・離党した３県議が緊急出演【増山・岸口・白井県議vs高橋弘樹】](/rehacq_fan/ids/Oje8CA9ZhU "wikilink")
     -   公開日: 2025-03-10
-    -   視聴数: 514,778
-    -   **いいね数: 20,327**
+    -   視聴数: 514,993
+    -   **いいね数: 20,316**
     -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs鈴木宗男】ウクライナ侵攻に持論…ロシアの思惑は？【日本維新の会・副代表】](/rehacq_fan/ids/Thz0fKoe98c "wikilink")
     -   公開日: 2023-07-23
