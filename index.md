@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【ReHacQ生配信】第2回！おじさんたちによる、真夏の恋愛相談室【高橋弘樹&箕輪厚介】](/rehacq_fan/ids/P-Mkqpj2ZhE "wikilink")
+    -   公開日: 2026-08-18
+    -   視聴数: 15,474
+    -   **いいね数: 386**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/P-Mkqpj2ZhE/hqdefault.jpg)](https://www.youtube.com/watch?v=P-Mkqpj2ZhE)
 1.  [【斎藤幸平vs加藤登紀子】獄中の藤本敏夫と結婚した理由とは？音楽が持つ力とは？【ReHacQ】](/rehacq_fan/ids/OVh1Vyu3L-8 "wikilink")
     -   公開日: 2026-08-18
-    -   視聴数: 4,016
-    -   **いいね数: 182**
+    -   視聴数: 6,085
+    -   **いいね数: 324**
     -   出演者: 
     - [![](https://img.youtube.com/vi/OVh1Vyu3L-8/hqdefault.jpg)](https://www.youtube.com/watch?v=OVh1Vyu3L-8)
 1.  [【高橋弘樹vs東大教授】西洋建築史入門！なぜヨーロッパの建築は美しいのか？建築から読み解くヨーロッパ文明とは？【ReHacQ R大学】](/rehacq_fan/ids/6T6iXUOfXTA "wikilink")
     -   公開日: 2026-08-18
-    -   視聴数: 14,200
-    -   **いいね数: 277**
+    -   視聴数: 18,546
+    -   **いいね数: 326**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6T6iXUOfXTA/hqdefault.jpg)](https://www.youtube.com/watch?v=6T6iXUOfXTA)
 1.  [【高橋弘樹vs辞め官僚】日経新聞&農水省辞め、年収70万に…なぜ？エリート街道捨て...ネギ農家になったワケ【ReHacQ】](/rehacq_fan/ids/Hl7WOKmNShM "wikilink")
     -   公開日: 2026-08-17
-    -   視聴数: 53,268
-    -   **いいね数: 639**
+    -   視聴数: 54,595
+    -   **いいね数: 649**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 高野馨太
     - [![](https://img.youtube.com/vi/Hl7WOKmNShM/hqdefault.jpg)](https://www.youtube.com/watch?v=Hl7WOKmNShM)
 1.  [【朝倉慶vs田端信太郎】株価急落時にどうする？新たな主役を徹底予測【ReHacQ】](/rehacq_fan/ids/NA3LIvKgyyA "wikilink")
     -   公開日: 2026-08-17
-    -   視聴数: 156,526
-    -   **いいね数: 2,624**
+    -   視聴数: 158,899
+    -   **いいね数: 2,644**
     -   出演者: [朝倉慶](/rehacq_fan/people/朝倉慶 "wikilink"), [田端信太郎](/rehacq_fan/people/田端信太郎 "wikilink")
     - [![](https://img.youtube.com/vi/NA3LIvKgyyA/hqdefault.jpg)](https://www.youtube.com/watch?v=NA3LIvKgyyA)
-1.  [【高橋弘樹vs政治学者】正しい日本史とは？従軍慰安婦や南京事件、戦争責任をどう考える？【ReHacQvs河野有理】](/rehacq_fan/ids/-UcJvOYrPsY "wikilink")
-    -   公開日: 2026-08-16
-    -   視聴数: 126,385
-    -   **いいね数: 1,369**
-    -   出演者: 河野有理, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/-UcJvOYrPsY/hqdefault.jpg)](https://www.youtube.com/watch?v=-UcJvOYrPsY)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -52,11 +52,11 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 50, 視聴数: 7,824,493, いいね数: 117,771
+-   動画数: 51, 視聴数: 7,856,305, いいね数: 118,442
 
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 96, 視聴数: 12,659,376, いいね数: 200,818
+-   動画数: 96, 視聴数: 12,706,388, いいね数: 201,265
 
 #### [2026年06月](videos/202606 "wikilink")
 
@@ -64,7 +64,7 @@
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 25,408,195, いいね数: 405,871
+-   動画数: 111, 視聴数: 25,409,367, いいね数: 405,887
 
 #### [2026年04月](videos/202604 "wikilink")
 
@@ -84,15 +84,15 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 18,435,585, いいね数: 223,172
+-   動画数: 83, 視聴数: 18,435,707, いいね数: 223,172
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 13,668,251, いいね数: 185,463
+-   動画数: 79, 視聴数: 13,668,331, いいね数: 185,464
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 26,148,421, いいね数: 361,403
+-   動画数: 102, 視聴数: 26,164,510, いいね数: 361,468
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -116,15 +116,15 @@
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 23,580,600, いいね数: 354,527
+-   動画数: 58, 視聴数: 23,583,461, いいね数: 354,551
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 15,609,135, いいね数: 259,323
+-   動画数: 61, 視聴数: 15,609,206, いいね数: 259,317
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,933,631, いいね数: 300,246
+-   動画数: 47, 視聴数: 16,933,736, いいね数: 300,237
 
 #### [2025年01月](videos/202501 "wikilink")
 
@@ -219,4 +219,4 @@
 -   動画数: 14, 視聴数: 8,257,537, いいね数: 142,132
 
 ---
-2026-08-18 22:00
+2026-08-18 23:00
