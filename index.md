@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【後藤達也vs今井翔太】AI投資！本当に儲かる企業は？半導体は核兵器と同価値に？日本の勝ち筋は？最新情報徹底解説②【ReHacQvs人工知能】](/rehacq_fan/ids/2XdfMo8C6Qw "wikilink")
+    -   公開日: 2026-08-19
+    -   視聴数: 6,395
+    -   **いいね数: 259**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/2XdfMo8C6Qw/hqdefault.jpg)](https://www.youtube.com/watch?v=2XdfMo8C6Qw)
+1.  [【ReHacQ討論会】高山市長選挙ネット討論会【高橋弘樹vs益田大輔】](/rehacq_fan/ids/AI6yG9ipjvU "wikilink")
+    -   公開日: 2026-08-19
+    -   視聴数: 4,110
+    -   **いいね数: 134**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/AI6yG9ipjvU/hqdefault.jpg)](https://www.youtube.com/watch?v=AI6yG9ipjvU)
 1.  [【ReHacQ生配信】第2回！おじさんたちによる、真夏の恋愛相談室【高橋弘樹&箕輪厚介】](/rehacq_fan/ids/P-Mkqpj2ZhE "wikilink")
     -   公開日: 2026-08-18
-    -   視聴数: 100,029
-    -   **いいね数: 1,499**
+    -   視聴数: 125,346
+    -   **いいね数: 1,826**
     -   出演者: [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/P-Mkqpj2ZhE/hqdefault.jpg)](https://www.youtube.com/watch?v=P-Mkqpj2ZhE)
 1.  [【斎藤幸平vs加藤登紀子】獄中の藤本敏夫と結婚した理由とは？音楽が持つ力とは？【ReHacQ】](/rehacq_fan/ids/OVh1Vyu3L-8 "wikilink")
     -   公開日: 2026-08-18
-    -   視聴数: 30,902
-    -   **いいね数: 877**
+    -   視聴数: 40,000
+    -   **いいね数: 1,132**
     -   出演者: 加藤登紀子, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
     - [![](https://img.youtube.com/vi/OVh1Vyu3L-8/hqdefault.jpg)](https://www.youtube.com/watch?v=OVh1Vyu3L-8)
 1.  [【高橋弘樹vs東大教授】西洋建築史入門！なぜヨーロッパの建築は美しいのか？建築から読み解くヨーロッパ文明とは？【ReHacQ R大学】](/rehacq_fan/ids/6T6iXUOfXTA "wikilink")
     -   公開日: 2026-08-18
-    -   視聴数: 53,031
-    -   **いいね数: 608**
+    -   視聴数: 70,888
+    -   **いいね数: 762**
     -   出演者: 加藤耕一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/6T6iXUOfXTA/hqdefault.jpg)](https://www.youtube.com/watch?v=6T6iXUOfXTA)
-1.  [【高橋弘樹vs辞め官僚】日経新聞&農水省辞め、年収70万に…なぜ？エリート街道捨て...ネギ農家になったワケ【ReHacQ】](/rehacq_fan/ids/Hl7WOKmNShM "wikilink")
-    -   公開日: 2026-08-17
-    -   視聴数: 61,648
-    -   **いいね数: 705**
-    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 高野馨太
-    - [![](https://img.youtube.com/vi/Hl7WOKmNShM/hqdefault.jpg)](https://www.youtube.com/watch?v=Hl7WOKmNShM)
-1.  [【朝倉慶vs田端信太郎】株価急落時にどうする？新たな主役を徹底予測【ReHacQ】](/rehacq_fan/ids/NA3LIvKgyyA "wikilink")
-    -   公開日: 2026-08-17
-    -   視聴数: 175,830
-    -   **いいね数: 2,795**
-    -   出演者: [朝倉慶](/rehacq_fan/people/朝倉慶 "wikilink"), [田端信太郎](/rehacq_fan/people/田端信太郎 "wikilink")
-    - [![](https://img.youtube.com/vi/NA3LIvKgyyA/hqdefault.jpg)](https://www.youtube.com/watch?v=NA3LIvKgyyA)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -52,7 +52,7 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 51, 視聴数: 8,070,620, いいね数: 121,045
+-   動画数: 53, 視聴数: 8,162,719, いいね数: 122,530
 
 #### [2026年07月](videos/202607 "wikilink")
 
@@ -68,7 +68,7 @@
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 24,954,892, いいね数: 376,397
+-   動画数: 96, 視聴数: 24,974,249, いいね数: 376,626
 
 #### [2026年03月](videos/202603 "wikilink")
 
@@ -128,7 +128,7 @@
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 19,362,682, いいね数: 300,890
+-   動画数: 48, 視聴数: 19,365,817, いいね数: 300,840
 
 #### [2024年12月](videos/202412 "wikilink")
 
@@ -136,11 +136,11 @@
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 23,609,546, いいね数: 384,089
+-   動画数: 38, 視聴数: 23,609,807, いいね数: 384,089
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,480,669, いいね数: 344,645
+-   動画数: 72, 視聴数: 23,481,384, いいね数: 344,649
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -219,4 +219,4 @@
 -   動画数: 14, 視聴数: 8,257,537, いいね数: 142,132
 
 ---
-2026-08-19 13:00
+2026-08-19 20:00
