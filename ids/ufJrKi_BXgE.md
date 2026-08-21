@@ -1,6 +1,6 @@
 ### [【揺さぶられる日本外交】米国がICC赤根所長を制裁＆プーチン北方領土初訪問…日本はどう向き合う？東野篤子×岡部芳彦【ReHacQ須賀川拓】](https://www.youtube.com/watch?v=ufJrKi_BXgE)
 [![](https://img.youtube.com/vi/ufJrKi_BXgE/sddefault.jpg)](https://www.youtube.com/watch?v=ufJrKi_BXgE)
 -   公開日: 2026-08-21
--   視聴数: 8,378
--   **いいね数: 260**
+-   視聴数: 30,416
+-   **いいね数: 455**
 -   出演者: 
