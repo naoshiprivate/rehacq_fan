@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【ReHacQ討論会】城里町長選挙ネット討論会【かとうの修vs本庄美奈子】](/rehacq_fan/ids/YJVGFC597wI "wikilink")
+    -   公開日: 2026-08-21
+    -   視聴数: 1,878
+    -   **いいね数: 49**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/YJVGFC597wI/hqdefault.jpg)](https://www.youtube.com/watch?v=YJVGFC597wI)
 1.  [【GDP&貿易収支】景気と相場が逆行？円安・利上げ・株価の行方…この相場は本物か？【木野内栄治＆永濱利廣＆山口真由＆ReHacQ】](/rehacq_fan/ids/kcrqN58HJ1Y "wikilink")
     -   公開日: 2026-08-21
-    -   視聴数: 6,165
-    -   **いいね数: 136**
+    -   視聴数: 17,481
+    -   **いいね数: 356**
     -   出演者: 
     - [![](https://img.youtube.com/vi/kcrqN58HJ1Y/hqdefault.jpg)](https://www.youtube.com/watch?v=kcrqN58HJ1Y)
 1.  [【ハードワーク＆深夜営業】仕事人の溜まり場・中国茶房8…なぜみんな通った？溜まり場になった六本木のお店の伝説とは？【田中渓＆明石ガクト＆若新雄純＆今野忍＆川邊健太郎＆ ReHacQ】](/rehacq_fan/ids/G7LH6XxXmK4 "wikilink")
     -   公開日: 2026-08-20
-    -   視聴数: 88,976
-    -   **いいね数: 915**
+    -   視聴数: 91,817
+    -   **いいね数: 927**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [川邊健太郎](/rehacq_fan/people/川邊健太郎 "wikilink"), 明石ガクト, [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [若新雄純](/rehacq_fan/people/若新雄純 "wikilink")
     - [![](https://img.youtube.com/vi/G7LH6XxXmK4/hqdefault.jpg)](https://www.youtube.com/watch?v=G7LH6XxXmK4)
 1.  [【ReHacQ討論会】沖縄県知事選挙ネット討論会【高橋弘樹vsカネシマシュンvs古謝げんたvs下地ミキオvs末吉正弘vs玉城デニーvsヒガタカシvs屋良朝助】](/rehacq_fan/ids/F1bQzXExz4c "wikilink")
     -   公開日: 2026-08-20
-    -   視聴数: 157,564
-    -   **いいね数: 3,287**
+    -   視聴数: 164,502
+    -   **いいね数: 3,399**
     -   出演者: 
     - [![](https://img.youtube.com/vi/F1bQzXExz4c/hqdefault.jpg)](https://www.youtube.com/watch?v=F1bQzXExz4c)
 1.  [【ReHacQ生配信】飲みながらまったり雑談【高橋弘樹vs箕輪厚介vs音喜多駿vs呉座勇一】](/rehacq_fan/ids/dtQ33UjtF9k "wikilink")
     -   公開日: 2026-08-19
-    -   視聴数: 208,954
-    -   **いいね数: 2,735**
+    -   視聴数: 213,607
+    -   **いいね数: 2,768**
     -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/dtQ33UjtF9k/hqdefault.jpg)](https://www.youtube.com/watch?v=dtQ33UjtF9k)
-1.  [【後藤達也vs今井翔太】AI投資！本当に儲かる企業は？半導体は核兵器と同価値に？日本の勝ち筋は？最新情報徹底解説②【ReHacQvs人工知能】](/rehacq_fan/ids/2XdfMo8C6Qw "wikilink")
-    -   公開日: 2026-08-19
-    -   視聴数: 167,974
-    -   **いいね数: 2,742**
-    -   出演者: [今井翔太](/rehacq_fan/people/今井翔太 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/2XdfMo8C6Qw/hqdefault.jpg)](https://www.youtube.com/watch?v=2XdfMo8C6Qw)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -58,11 +58,11 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 57, 視聴数: 9,022,210, いいね数: 134,502
+-   動画数: 58, 視聴数: 9,059,642, いいね数: 135,018
 
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 96, 視聴数: 12,843,219, いいね数: 202,686
+-   動画数: 96, 視聴数: 12,888,099, いいね数: 203,161
 
 #### [2026年06月](videos/202606 "wikilink")
 
@@ -82,11 +82,11 @@
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 25,682,040, いいね数: 363,713
+-   動画数: 98, 視聴数: 25,682,223, いいね数: 363,713
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 23,489,692, いいね数: 336,905
+-   動画数: 90, 視聴数: 23,489,755, いいね数: 336,902
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -98,15 +98,15 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 26,191,232, いいね数: 361,817
+-   動画数: 102, 視聴数: 26,195,362, いいね数: 361,876
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 18,522,265, いいね数: 284,729
+-   動画数: 87, 視聴数: 18,524,711, いいね数: 284,739
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 17,291,796, いいね数: 274,510
+-   動画数: 65, 視聴数: 17,294,419, いいね数: 274,519
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -162,7 +162,7 @@
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 11,185,090, いいね数: 146,968
+-   動画数: 31, 視聴数: 11,185,953, いいね数: 146,952
 
 #### [2024年05月](videos/202405 "wikilink")
 
@@ -225,4 +225,4 @@
 -   動画数: 14, 視聴数: 8,257,537, いいね数: 142,132
 
 ---
-2026-08-21 20:00
+2026-08-21 22:00
