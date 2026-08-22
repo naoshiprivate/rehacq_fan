@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】城里町長選挙ネット討論会【かとうの修vs本庄美奈子】](https://www.youtube.com/watch?v=YJVGFC597wI)
 [![](https://img.youtube.com/vi/YJVGFC597wI/sddefault.jpg)](https://www.youtube.com/watch?v=YJVGFC597wI)
 -   公開日: 2026-08-21
--   視聴数: 8,564
--   **いいね数: 85**
+-   視聴数: 8,707
+-   **いいね数: 86**
 -   出演者: 
