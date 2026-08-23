@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs刑事司法の闇】検察改ざん事件の真実を激白！可視化されない取調べ...冤罪をなくすには？郵便不正事件の裏側とは？村木厚子【ReHacQ】](https://www.youtube.com/watch?v=RkpfvzIZ7KU)
 [![](https://img.youtube.com/vi/RkpfvzIZ7KU/sddefault.jpg)](https://www.youtube.com/watch?v=RkpfvzIZ7KU)
 -   公開日: 2026-04-23
--   視聴数: 239,839
--   **いいね数: 5,774**
+-   視聴数: 243,413
+-   **いいね数: 5,825**
 -   出演者: 村木厚子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
