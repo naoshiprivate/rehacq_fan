@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/3NWsNtr2a8E/sddefault.jpg)](https://www.youtube.com/watch?v=3NWsNtr2a8E)
 -   公開日: 2024-08-21
 -   視聴数: 39,321
--   **いいね数: 342**
+-   **いいね数: 341**
 -   出演者: [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink")
