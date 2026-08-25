@@ -195,16 +195,16 @@
     -   視聴数: 1,696,714
     -   **いいね数: 18,408**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【坂上忍vsひろゆきvs箕輪厚介】動物に年間１億円！？保護犬保護猫の闇…芸能活動引退後を語る【ReHacQ】](/rehacq_fan/ids/E4WP-h_fhUc "wikilink")
+    -   公開日: 2026-05-10
+    -   視聴数: 1,691,601
+    -   **いいね数: 23,705**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【国民民主vsひろゆき】全部言う！玉木氏が衝撃告白！参院選で重大発表【ReHacQ高橋弘樹】](/rehacq_fan/ids/3WIDjkmg6xY "wikilink")
     -   公開日: 2025-02-02
     -   視聴数: 1,677,585
     -   **いいね数: 21,570**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【坂上忍vsひろゆきvs箕輪厚介】動物に年間１億円！？保護犬保護猫の闇…芸能活動引退後を語る【ReHacQ】](/rehacq_fan/ids/E4WP-h_fhUc "wikilink")
-    -   公開日: 2026-05-10
-    -   視聴数: 1,657,668
-    -   **いいね数: 23,403**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](/rehacq_fan/ids/CepOZXVtsCo "wikilink")
     -   公開日: 2023-10-25
     -   視聴数: 1,653,275
@@ -300,6 +300,11 @@
     -   視聴数: 1,369,996
     -   **いいね数: 21,398**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vs元駐オーストラリア大使】日本外交はなぜ弱腰？中国やアメリカとどう向き合う？【ReHacQvs山上信吾】](/rehacq_fan/ids/v3KQs-g_co "wikilink")
+    -   公開日: 2026-05-01
+    -   視聴数: 1,359,704
+    -   **いいね数: 21,552**
+    -   出演者: 山上信吾, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
     -   視聴数: 1,329,077
@@ -320,11 +325,6 @@
     -   視聴数: 1,309,146
     -   **いいね数: 12,018**
     -   出演者: [小泉悠](/rehacq_fan/people/小泉悠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs元駐オーストラリア大使】日本外交はなぜ弱腰？中国やアメリカとどう向き合う？【ReHacQvs山上信吾】](/rehacq_fan/ids/v3KQs-g_co "wikilink")
-    -   公開日: 2026-05-01
-    -   視聴数: 1,301,577
-    -   **いいね数: 21,134**
-    -   出演者: 山上信吾, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】ちょっとだけ大切なお知らせ…兵庫県知事選に関して【神戸新聞さん…ランチしましょう】](/rehacq_fan/ids/0P-1c-mn2mc "wikilink")
     -   公開日: 2024-12-08
     -   視聴数: 1,297,031

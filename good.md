@@ -165,16 +165,16 @@
     -   視聴数: 2,127,851
     -   **いいね数: 23,727**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), デヴィ夫人
+1.  [【坂上忍vsひろゆきvs箕輪厚介】動物に年間１億円！？保護犬保護猫の闇…芸能活動引退後を語る【ReHacQ】](/rehacq_fan/ids/E4WP-h_fhUc "wikilink")
+    -   公開日: 2026-05-10
+    -   視聴数: 1,691,601
+    -   **いいね数: 23,705**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【安芸高田市長vs不信任案提出の議員】石丸伸二の野望とは？【本音トーク】](/rehacq_fan/ids/TkJRmw7WPeI "wikilink")
     -   公開日: 2023-10-10
     -   視聴数: 1,838,116
     -   **いいね数: 23,701**
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【坂上忍vsひろゆきvs箕輪厚介】動物に年間１億円！？保護犬保護猫の闇…芸能活動引退後を語る【ReHacQ】](/rehacq_fan/ids/E4WP-h_fhUc "wikilink")
-    -   公開日: 2026-05-10
-    -   視聴数: 1,657,668
-    -   **いいね数: 23,403**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【緊急生配信】ちょっとだけ大切なお知らせ…兵庫県知事選に関して【神戸新聞さん…ランチしましょう】](/rehacq_fan/ids/0P-1c-mn2mc "wikilink")
     -   公開日: 2024-12-08
     -   視聴数: 1,297,031
@@ -215,6 +215,11 @@
     -   視聴数: 1,677,585
     -   **いいね数: 21,570**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+1.  [【高橋弘樹vs元駐オーストラリア大使】日本外交はなぜ弱腰？中国やアメリカとどう向き合う？【ReHacQvs山上信吾】](/rehacq_fan/ids/v3KQs-g_co "wikilink")
+    -   公開日: 2026-05-01
+    -   視聴数: 1,359,704
+    -   **いいね数: 21,552**
+    -   出演者: 山上信吾, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸市長vs副議長】安芸高田！奥広島のまったり旅…西田亮介【清志会vs毛利元就】](/rehacq_fan/ids/qMR_6XOPwvY "wikilink")
     -   公開日: 2024-01-21
     -   視聴数: 1,500,056
@@ -250,11 +255,6 @@
     -   視聴数: 1,715,368
     -   **いいね数: 21,148**
     -   出演者: 奥谷謙一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs元駐オーストラリア大使】日本外交はなぜ弱腰？中国やアメリカとどう向き合う？【ReHacQvs山上信吾】](/rehacq_fan/ids/v3KQs-g_co "wikilink")
-    -   公開日: 2026-05-01
-    -   視聴数: 1,301,577
-    -   **いいね数: 21,134**
-    -   出演者: 山上信吾, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【金美齢vs高橋弘樹】激白！安倍晋三の知られざる素顔...総裁選の裏話とは？石破茂に激怒！一体なぜ？【ReHacQ】](/rehacq_fan/ids/mSI7MFp4pAE "wikilink")
     -   公開日: 2026-02-12
     -   視聴数: 1,031,454
