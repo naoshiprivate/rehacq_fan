@@ -1,6 +1,6 @@
 ### [【田中渓vs億り人】30万円から投資スタート！手にした自由…人生を変えるお金の哲学とは？【ReHacQ】](https://www.youtube.com/watch?v=-Oc0W-D4mWk)
 [![](https://img.youtube.com/vi/-Oc0W-D4mWk/sddefault.jpg)](https://www.youtube.com/watch?v=-Oc0W-D4mWk)
 -   公開日: 2026-08-26
--   視聴数: 13,243
--   **いいね数: 266**
+-   視聴数: 27,579
+-   **いいね数: 350**
 -   出演者: 
