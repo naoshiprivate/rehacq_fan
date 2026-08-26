@@ -100,6 +100,11 @@
     -   視聴数: 1,821,806
     -   **いいね数: 28,031**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+1.  [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](/rehacq_fan/ids/hio2XdBPW5Y "wikilink")
+    -   公開日: 2024-02-24
+    -   視聴数: 3,016,306
+    -   **いいね数: 28,001**
+    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】兵庫県・百条委員会にて秘密会音声データ流出のすべて「私がやった…なぜなら」【日本維新の会・増山誠vsReHacQ高橋弘樹】](/rehacq_fan/ids/LyTuLE37l4A "wikilink")
     -   公開日: 2025-02-19
     -   視聴数: 781,215
@@ -110,11 +115,6 @@
     -   視聴数: 2,303,686
     -   **いいね数: 27,768**
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](/rehacq_fan/ids/hio2XdBPW5Y "wikilink")
-    -   公開日: 2024-02-24
-    -   視聴数: 2,961,539
-    -   **いいね数: 27,735**
-    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs鈴木宗男②】ウクライナ侵攻で激論！鈴木宗男、衝撃の動機【注意してご覧ください。】](/rehacq_fan/ids/qemKsOkKAYM "wikilink")
     -   公開日: 2023-08-01
     -   視聴数: 2,527,287
@@ -352,14 +352,19 @@
     -   出演者: [小泉勇人](/rehacq_fan/people/小泉勇人 "wikilink"), 桑田龍征, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石黒英雄, [雫石将克](/rehacq_fan/people/雫石将克 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦の天才】シン量子力学！6歳にわかるように説明してみよう！【ReHacQvs野村泰紀】](/rehacq_fan/ids/DEG9OZoYzIU "wikilink")
     -   公開日: 2024-03-02
-    -   視聴数: 1,696,714
-    -   **いいね数: 18,408**
+    -   視聴数: 1,713,918
+    -   **いいね数: 18,526**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](/rehacq_fan/ids/KihRlwlSPCI "wikilink")
     -   公開日: 2025-07-12
     -   視聴数: 630,093
     -   **いいね数: 18,387**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vs呉座勇一】戦国時代のウソ！豊臣秀吉の正体とは？歴史に騙されない方法【ReHacQvs織田信長の真実】](/rehacq_fan/ids/H6ZVuj7IGOM "wikilink")
+    -   公開日: 2025-12-18
+    -   視聴数: 2,831,449
+    -   **いいね数: 18,274**
+    -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
     -   公開日: 2024-07-27
     -   視聴数: 1,899,235
@@ -390,11 +395,6 @@
     -   視聴数: 911,773
     -   **いいね数: 17,866**
     -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs呉座勇一】戦国時代のウソ！豊臣秀吉の正体とは？歴史に騙されない方法【ReHacQvs織田信長の真実】](/rehacq_fan/ids/H6ZVuj7IGOM "wikilink")
-    -   公開日: 2025-12-18
-    -   視聴数: 2,733,320
-    -   **いいね数: 17,846**
-    -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](/rehacq_fan/ids/v6K85s-g9Oc "wikilink")
     -   公開日: 2025-02-05
     -   視聴数: 1,287,686
@@ -470,6 +470,11 @@
     -   視聴数: 701,210
     -   **いいね数: 16,648**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【成田悠輔が推薦】宇宙と超弦理論！６歳にわかるように説明してみよう！【マルチバース】](/rehacq_fan/ids/4yiyaq0q6xQ "wikilink")
+    -   公開日: 2024-03-09
+    -   視聴数: 1,634,998
+    -   **いいね数: 16,567**
+    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】石丸市長…なぜ市長辞めるんですか？安芸高田市【石丸伸二vs西田亮介vs高橋弘樹】](/rehacq_fan/ids/FPkSBwYeFs "wikilink")
     -   公開日: 2024-05-13
     -   視聴数: 1,076,946
@@ -485,11 +490,6 @@
     -   視聴数: 381,675
     -   **いいね数: 16,473**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【成田悠輔が推薦】宇宙と超弦理論！６歳にわかるように説明してみよう！【マルチバース】](/rehacq_fan/ids/4yiyaq0q6xQ "wikilink")
-    -   公開日: 2024-03-09
-    -   視聴数: 1,611,891
-    -   **いいね数: 16,462**
-    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
     -   公開日: 2024-02-12
     -   視聴数: 1,928,702
