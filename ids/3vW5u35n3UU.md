@@ -1,6 +1,6 @@
 ### [【ReHacQvsドラゴン桜・作者】東大へ行け！なぜ？地方と東京の教育格差...借金1億抱え漫画を描いたワケ【三田紀房vs馬場伸幸】](https://www.youtube.com/watch?v=3vW5u35n3UU)
 [![](https://img.youtube.com/vi/3vW5u35n3UU/sddefault.jpg)](https://www.youtube.com/watch?v=3vW5u35n3UU)
 -   公開日: 2026-06-02
--   視聴数: 28,016
+-   視聴数: 28,196
 -   **いいね数: 354**
 -   出演者: 三田紀房, [馬場伸幸](/rehacq_fan/people/馬場伸幸 "wikilink")
