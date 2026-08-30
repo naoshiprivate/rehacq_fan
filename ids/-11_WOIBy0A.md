@@ -1,6 +1,6 @@
 ### [【野村泰紀vs宇宙の終わり】衝撃！物理学者が予測する宇宙の最後とは？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=-11_WOIBy0A)
 [![](https://img.youtube.com/vi/-11_WOIBy0A/sddefault.jpg)](https://www.youtube.com/watch?v=-11_WOIBy0A)
 -   公開日: 2026-05-30
--   視聴数: 582,565
--   **いいね数: 5,795**
+-   視聴数: 622,022
+-   **いいね数: 5,924**
 -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
