@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【ReHacQvs訪中】なぜ今中国へ…共産党幹部と激論…日中関係は改善できるのか【伊佐進一vs鈴木拓也vs須賀川拓】](/rehacq_fan/ids/BHsC4CNkowA "wikilink")
     -   公開日: 2026-08-30
-    -   視聴数: 1
-    -   **いいね数: 22**
-    -   出演者: 
+    -   視聴数: 14,052
+    -   **いいね数: 582**
+    -   出演者: [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink"), 鈴木拓也, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/BHsC4CNkowA/hqdefault.jpg)](https://www.youtube.com/watch?v=BHsC4CNkowA)
 1.  [【ReHacQ討論会】徳島県美馬市長選挙ネット討論会【須賀川拓vsかげやま勝利vs加美かずしげ】](/rehacq_fan/ids/LGoLEEsyqFI "wikilink")
     -   公開日: 2026-08-30
-    -   視聴数: 48,909
-    -   **いいね数: 111**
+    -   視聴数: 56,205
+    -   **いいね数: 119**
     -   出演者: 
     - [![](https://img.youtube.com/vi/LGoLEEsyqFI/hqdefault.jpg)](https://www.youtube.com/watch?v=LGoLEEsyqFI)
 1.  [【呉座勇一vs高橋弘樹】「増税反対」で一揆！幕府と農民の攻防とは？【ReHacQ】](/rehacq_fan/ids/ORqw4871WIE "wikilink")
     -   公開日: 2026-08-30
-    -   視聴数: 178,582
-    -   **いいね数: 1,265**
+    -   視聴数: 213,754
+    -   **いいね数: 1,436**
     -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/ORqw4871WIE/hqdefault.jpg)](https://www.youtube.com/watch?v=ORqw4871WIE)
 1.  [【ReHacQ生配信】聞きたいニュース！視聴者の質問に答えるニュース番組【今野忍vs三浦瑠麗vs須賀川拓】](/rehacq_fan/ids/Pt2u3MdRS1Q "wikilink")
     -   公開日: 2026-08-29
-    -   視聴数: 226,516
-    -   **いいね数: 1,427**
+    -   視聴数: 235,273
+    -   **いいね数: 1,479**
     -   出演者: [三浦瑠麗](/rehacq_fan/people/三浦瑠麗 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/Pt2u3MdRS1Q/hqdefault.jpg)](https://www.youtube.com/watch?v=Pt2u3MdRS1Q)
 1.  [【コムドットやまとvs学歴】ReHacQから独立宣言？白熱...番組作戦会議！高橋弘樹に物申したいこと【ReHacQvsベテランちvs高田ふーみん】](/rehacq_fan/ids/WHFnyHYdPLs "wikilink")
     -   公開日: 2026-08-29
-    -   視聴数: 264,579
-    -   **いいね数: 2,770**
+    -   視聴数: 269,535
+    -   **いいね数: 2,817**
     -   出演者: [やまと](/rehacq_fan/people/やまと "wikilink"), [ベテランち](/rehacq_fan/people/ベテランち "wikilink"), [高田ふーみん](/rehacq_fan/people/高田ふーみん "wikilink")
     - [![](https://img.youtube.com/vi/WHFnyHYdPLs/hqdefault.jpg)](https://www.youtube.com/watch?v=WHFnyHYdPLs)
 
@@ -70,7 +70,7 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 82, 視聴数: 13,983,201, いいね数: 180,953
+-   動画数: 83, 視聴数: 14,074,059, いいね数: 181,918
 
 #### [2026年07月](videos/202607 "wikilink")
 
@@ -86,11 +86,11 @@
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 25,257,193, いいね数: 378,300
+-   動画数: 96, 視聴数: 25,257,212, いいね数: 378,300
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 22,824,431, いいね数: 292,229
+-   動画数: 89, 視聴数: 22,827,007, いいね数: 292,246
 
 #### [2026年02月](videos/202602 "wikilink")
 
@@ -102,7 +102,7 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 18,699,777, いいね数: 224,745
+-   動画数: 83, 視聴数: 18,707,340, いいね数: 224,791
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -110,7 +110,7 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 26,231,090, いいね数: 362,032
+-   動画数: 102, 視聴数: 26,231,796, いいね数: 362,027
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -174,15 +174,15 @@
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 11,197,217, いいね数: 146,980
+-   動画数: 31, 視聴数: 11,199,765, いいね数: 146,993
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,964,032, いいね数: 85,579
+-   動画数: 29, 視聴数: 6,965,405, いいね数: 85,569
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 10,295,787, いいね数: 103,603
+-   動画数: 34, 視聴数: 10,322,773, いいね数: 103,663
 
 #### [2024年03月](videos/202403 "wikilink")
 
@@ -237,4 +237,4 @@
 -   動画数: 14, 視聴数: 8,274,457, いいね数: 142,202
 
 ---
-2026-08-30 20:00
+2026-08-30 22:00
