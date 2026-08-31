@@ -8,7 +8,7 @@
 1. [吉村洋文](/rehacq_fan/people/吉村洋文): 1.91 (14)
 1. [黒岩里奈](/rehacq_fan/people/黒岩里奈): 1.70 (12)
 1. [内田舞](/rehacq_fan/people/内田舞): 1.67 (17)
-1. [斎藤祐馬](/rehacq_fan/people/斎藤祐馬): 1.66 (16)
+1. [斎藤祐馬](/rehacq_fan/people/斎藤祐馬): 1.65 (16)
 1. [やまと](/rehacq_fan/people/やまと): 1.64 (17)
 1. [勝倉千尋](/rehacq_fan/people/勝倉千尋): 1.61 (12)
 1. [高田ふーみん](/rehacq_fan/people/高田ふーみん): 1.59 (13)
@@ -36,7 +36,7 @@
 
 # 平均いいね数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 12,431 (14)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 12,432 (14)
 1. [石丸伸二](/rehacq_fan/people/石丸伸二): 11,629 (179)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 7,653 (32)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 7,576 (33)
@@ -50,22 +50,22 @@
 1. [足立康史](/rehacq_fan/people/足立康史): 5,787 (10)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 5,669 (12)
 1. [野村泰紀](/rehacq_fan/people/野村泰紀): 5,569 (34)
-1. [呉座勇一](/rehacq_fan/people/呉座勇一): 5,546 (16)
+1. [呉座勇一](/rehacq_fan/people/呉座勇一): 5,548 (16)
 1. [河村真木子](/rehacq_fan/people/河村真木子): 5,243 (11)
 1. [後藤達也](/rehacq_fan/people/後藤達也): 5,236 (162)
 1. [黒岩里奈](/rehacq_fan/people/黒岩里奈): 5,233 (12)
-1. [高田ふーみん](/rehacq_fan/people/高田ふーみん): 4,992 (13)
-1. [ベテランち](/rehacq_fan/people/ベテランち): 4,992 (13)
+1. [高田ふーみん](/rehacq_fan/people/高田ふーみん): 4,993 (13)
+1. [ベテランち](/rehacq_fan/people/ベテランち): 4,993 (13)
 
 
 # 平均視聴数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 649,352 (14)
-1. [呉座勇一](/rehacq_fan/people/呉座勇一): 604,660 (16)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 567,449 (179)
-1. [西田亮介](/rehacq_fan/people/西田亮介): 552,316 (191)
-1. [今野忍](/rehacq_fan/people/今野忍): 541,522 (68)
-1. [中谷一馬](/rehacq_fan/people/中谷一馬): 522,202 (12)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 649,417 (14)
+1. [呉座勇一](/rehacq_fan/people/呉座勇一): 604,969 (16)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 567,466 (179)
+1. [西田亮介](/rehacq_fan/people/西田亮介): 552,332 (191)
+1. [今野忍](/rehacq_fan/people/今野忍): 541,609 (68)
+1. [中谷一馬](/rehacq_fan/people/中谷一馬): 522,465 (12)
 1. [足立康史](/rehacq_fan/people/足立康史): 515,747 (10)
 1. [ひろゆき](/rehacq_fan/people/ひろゆき): 515,541 (272)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 509,164 (32)
