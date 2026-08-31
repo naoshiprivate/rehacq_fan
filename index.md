@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【今野忍vs沖縄県知事選】保守vs革新…政権基盤占う選挙なぜ大混戦？【ReHacQvs三浦瑠麗vs須賀川拓】](/rehacq_fan/ids/fU1438R3r0 "wikilink")
+    -   公開日: 2026-08-31
+    -   視聴数: 12,559
+    -   **いいね数: 331**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/_fU1438R3r0/hqdefault.jpg)](https://www.youtube.com/watch?v=_fU1438R3r0)
 1.  [【高橋弘樹vs伝統芸能「歌舞伎」】市川團十郎・尾上松也・片岡愛之助…襲名・養子・権力闘争の歴史【ReHacQvs 中川右介】](/rehacq_fan/ids/-KDciZ5Df98 "wikilink")
     -   公開日: 2026-08-31
-    -   視聴数: 5,868
-    -   **いいね数: 210**
+    -   視聴数: 39,921
+    -   **いいね数: 411**
     -   出演者: 
     - [![](https://img.youtube.com/vi/-KDciZ5Df98/hqdefault.jpg)](https://www.youtube.com/watch?v=-KDciZ5Df98)
 1.  [【ReHacQvs訪中】なぜ今中国へ…共産党幹部と激論…日中関係は改善できるのか【伊佐進一vs鈴木拓也vs須賀川拓】](/rehacq_fan/ids/BHsC4CNkowA "wikilink")
     -   公開日: 2026-08-30
-    -   視聴数: 184,229
-    -   **いいね数: 2,304**
+    -   視聴数: 189,869
+    -   **いいね数: 2,376**
     -   出演者: [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink"), 鈴木拓也, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/BHsC4CNkowA/hqdefault.jpg)](https://www.youtube.com/watch?v=BHsC4CNkowA)
 1.  [【ReHacQ討論会】徳島県美馬市長選挙ネット討論会【須賀川拓vsかげやま勝利vs加美かずしげ】](/rehacq_fan/ids/LGoLEEsyqFI "wikilink")
     -   公開日: 2026-08-30
-    -   視聴数: 96,345
-    -   **いいね数: 159**
+    -   視聴数: 98,431
+    -   **いいね数: 164**
     -   出演者: 
     - [![](https://img.youtube.com/vi/LGoLEEsyqFI/hqdefault.jpg)](https://www.youtube.com/watch?v=LGoLEEsyqFI)
 1.  [【呉座勇一vs高橋弘樹】「増税反対」で一揆！幕府と農民の攻防とは？【ReHacQ】](/rehacq_fan/ids/ORqw4871WIE "wikilink")
     -   公開日: 2026-08-30
-    -   視聴数: 343,241
-    -   **いいね数: 2,160**
+    -   視聴数: 351,704
+    -   **いいね数: 2,205**
     -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/ORqw4871WIE/hqdefault.jpg)](https://www.youtube.com/watch?v=ORqw4871WIE)
-1.  [【ReHacQ生配信】聞きたいニュース！視聴者の質問に答えるニュース番組【今野忍vs三浦瑠麗vs須賀川拓】](/rehacq_fan/ids/Pt2u3MdRS1Q "wikilink")
-    -   公開日: 2026-08-29
-    -   視聴数: 280,593
-    -   **いいね数: 1,721**
-    -   出演者: [三浦瑠麗](/rehacq_fan/people/三浦瑠麗 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
-    - [![](https://img.youtube.com/vi/Pt2u3MdRS1Q/hqdefault.jpg)](https://www.youtube.com/watch?v=Pt2u3MdRS1Q)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -70,7 +70,7 @@
 ## 時系列データ
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 84, 視聴数: 15,188,399, いいね数: 189,347
+-   動画数: 85, 視聴数: 15,269,489, いいね数: 190,096
 
 #### [2026年07月](videos/202607 "wikilink")
 
@@ -98,11 +98,11 @@
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 23,717,119, いいね数: 338,545
+-   動画数: 90, 視聴数: 23,737,866, いいね数: 338,689
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 18,707,379, いいね数: 224,791
+-   動画数: 83, 視聴数: 18,707,420, いいね数: 224,790
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -110,11 +110,11 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 26,254,868, いいね数: 362,095
+-   動画数: 102, 視聴数: 26,255,144, いいね数: 362,095
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 18,628,285, いいね数: 285,283
+-   動画数: 87, 視聴数: 18,628,584, いいね数: 285,283
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -122,7 +122,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 23,561,699, いいね数: 387,704
+-   動画数: 76, 視聴数: 23,561,748, いいね数: 387,696
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -214,15 +214,15 @@
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,862,829, いいね数: 129,213
+-   動画数: 33, 視聴数: 11,862,844, いいね数: 129,213
 
 #### [2023年07月](videos/202307 "wikilink")
 
--   動画数: 30, 視聴数: 12,095,099, いいね数: 144,401
+-   動画数: 30, 視聴数: 12,095,276, いいね数: 144,399
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,894,492, いいね数: 95,654
+-   動画数: 27, 視聴数: 7,895,160, いいね数: 95,657
 
 #### [2023年05月](videos/202305 "wikilink")
 
@@ -234,7 +234,7 @@
 
 #### [2023年03月](videos/202303 "wikilink")
 
--   動画数: 14, 視聴数: 8,274,457, いいね数: 142,202
+-   動画数: 14, 視聴数: 8,274,520, いいね数: 142,202
 
 ---
-2026-08-31 20:00
+2026-08-31 22:00
