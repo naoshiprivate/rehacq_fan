@@ -1,6 +1,6 @@
 ### [【呉座勇一vs高橋弘樹】室町幕府が激怒...戦が絶えない中世の関東とは？【ReHacQ】](https://www.youtube.com/watch?v=d1afurwKrfY)
 [![](https://img.youtube.com/vi/d1afurwKrfY/sddefault.jpg)](https://www.youtube.com/watch?v=d1afurwKrfY)
 -   公開日: 2026-05-24
--   視聴数: 406,129
--   **いいね数: 5,242**
+-   視聴数: 440,011
+-   **いいね数: 5,412**
 -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
