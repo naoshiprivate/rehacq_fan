@@ -1,6 +1,6 @@
 ### [【田中渓vs億り人】10倍株の見つけ方！株価だけ見るのはNG？次の大化け株を狙え【ReHacQ】](https://www.youtube.com/watch?v=3zE4tIhP6bo)
 [![](https://img.youtube.com/vi/3zE4tIhP6bo/sddefault.jpg)](https://www.youtube.com/watch?v=3zE4tIhP6bo)
 -   公開日: 2026-09-01
--   視聴数: 45,802
--   **いいね数: 145**
+-   視聴数: 59,408
+-   **いいね数: 166**
 -   出演者: 
