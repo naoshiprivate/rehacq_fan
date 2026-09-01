@@ -127,8 +127,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【西田亮介vs米山隆一】SNSと政治についてガチ討論！デマや誹謗中傷など課題山積...これからどうなる？【ReHacQ高橋弘樹】](/rehacq_fan/ids/B5-KBz_t3wU "wikilink")
     -   公開日: 2025-04-29
-    -   視聴数: 2,091,683
-    -   **いいね数: 26,499**
+    -   視聴数: 2,102,554
+    -   **いいね数: 26,512**
     -   出演者: [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】東京都知事選2024！ラストボイス【石丸伸二】](/rehacq_fan/ids/I8__R-9OwwA "wikilink")
     -   公開日: 2024-07-03
@@ -435,16 +435,16 @@
     -   視聴数: 1,200,469
     -   **いいね数: 17,136**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
+1.  [【石丸伸二vs西田亮介】「再生の道」の行く末とは？代表の思考をガチ解読！日本再生なるか...【ReHacQvs編集者箕輪厚介】](/rehacq_fan/ids/T6-FWvACzn8 "wikilink")
+    -   公開日: 2025-04-30
+    -   視聴数: 1,065,235
+    -   **いいね数: 17,096**
+    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](/rehacq_fan/ids/4G8qsbpfLNo "wikilink")
     -   公開日: 2024-02-20
     -   視聴数: 1,922,838
     -   **いいね数: 17,094**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
-1.  [【石丸伸二vs西田亮介】「再生の道」の行く末とは？代表の思考をガチ解読！日本再生なるか...【ReHacQvs編集者箕輪厚介】](/rehacq_fan/ids/T6-FWvACzn8 "wikilink")
-    -   公開日: 2025-04-30
-    -   視聴数: 1,057,209
-    -   **いいね数: 17,089**
-    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](/rehacq_fan/ids/Lcj1tooXlSk "wikilink")
     -   公開日: 2025-02-18
     -   視聴数: 990,386
