@@ -31,7 +31,7 @@
 1. [須黒清華](/rehacq_fan/people/須黒清華): 1.40 (22)
 1. [斎藤幸平](/rehacq_fan/people/斎藤幸平): 1.40 (59)
 1. [加藤シルビア](/rehacq_fan/people/加藤シルビア): 1.39 (10)
-1. [後藤達也](/rehacq_fan/people/後藤達也): 1.35 (162)
+1. [後藤達也](/rehacq_fan/people/後藤達也): 1.34 (162)
 
 
 # 平均いいね数ランキング
@@ -41,7 +41,7 @@
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 7,653 (32)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 7,577 (33)
 1. [西田亮介](/rehacq_fan/people/西田亮介): 7,184 (191)
-1. [今野忍](/rehacq_fan/people/今野忍): 7,114 (68)
+1. [今野忍](/rehacq_fan/people/今野忍): 7,116 (68)
 1. [東出昌大](/rehacq_fan/people/東出昌大): 6,634 (23)
 1. [勝倉千尋](/rehacq_fan/people/勝倉千尋): 6,467 (12)
 1. [ひろゆき](/rehacq_fan/people/ひろゆき): 6,451 (272)
@@ -49,25 +49,25 @@
 1. [藤井サチ](/rehacq_fan/people/藤井サチ): 6,140 (23)
 1. [足立康史](/rehacq_fan/people/足立康史): 5,787 (10)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 5,669 (12)
-1. [呉座勇一](/rehacq_fan/people/呉座勇一): 5,599 (16)
+1. [呉座勇一](/rehacq_fan/people/呉座勇一): 5,600 (16)
 1. [野村泰紀](/rehacq_fan/people/野村泰紀): 5,576 (34)
 1. [河村真木子](/rehacq_fan/people/河村真木子): 5,243 (11)
-1. [後藤達也](/rehacq_fan/people/後藤達也): 5,236 (162)
 1. [黒岩里奈](/rehacq_fan/people/黒岩里奈): 5,233 (12)
+1. [後藤達也](/rehacq_fan/people/後藤達也): 5,225 (162)
 1. [高田ふーみん](/rehacq_fan/people/高田ふーみん): 5,044 (13)
 1. [ベテランち](/rehacq_fan/people/ベテランち): 5,044 (13)
 
 
 # 平均視聴数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 652,003 (14)
-1. [呉座勇一](/rehacq_fan/people/呉座勇一): 615,818 (16)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 567,755 (179)
-1. [西田亮介](/rehacq_fan/people/西田亮介): 552,548 (191)
-1. [今野忍](/rehacq_fan/people/今野忍): 543,019 (68)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 652,084 (14)
+1. [呉座勇一](/rehacq_fan/people/呉座勇一): 615,881 (16)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 567,757 (179)
+1. [西田亮介](/rehacq_fan/people/西田亮介): 552,551 (191)
+1. [今野忍](/rehacq_fan/people/今野忍): 543,242 (68)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 522,772 (12)
 1. [足立康史](/rehacq_fan/people/足立康史): 516,295 (10)
-1. [ひろゆき](/rehacq_fan/people/ひろゆき): 515,648 (272)
+1. [ひろゆき](/rehacq_fan/people/ひろゆき): 515,652 (272)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 509,164 (32)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 479,898 (33)
 1. [野村泰紀](/rehacq_fan/people/野村泰紀): 455,807 (34)
