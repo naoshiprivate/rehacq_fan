@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs伝統芸能「歌舞伎」】市川團十郎・尾上松也・片岡愛之助…襲名・養子・権力闘争の歴史【ReHacQvs 中川右介】](https://www.youtube.com/watch?v=-KDciZ5Df98)
 [![](https://img.youtube.com/vi/-KDciZ5Df98/sddefault.jpg)](https://www.youtube.com/watch?v=-KDciZ5Df98)
 -   公開日: 2026-08-31
--   視聴数: 319,738
--   **いいね数: 1,318**
+-   視聴数: 323,383
+-   **いいね数: 1,344**
 -   出演者: 
