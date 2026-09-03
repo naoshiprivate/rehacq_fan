@@ -1,31 +1,31 @@
 1.  [【米イラン攻撃再開】なぜ今？米軍が革命防衛隊を空爆…結婚披露宴中の民家5人が…【ReHacQ須賀川拓・松本太・田中浩一郎】](/rehacq_fan/ids/hYNzXVrDR4U "wikilink")
     -   公開日: 2026-09-02
-    -   視聴数: 125,402
-    -   **いいね数: 504**
+    -   視聴数: 156,720
+    -   **いいね数: 671**
     -   出演者: [松本太](/rehacq_fan/people/松本太 "wikilink"), [田中浩一郎](/rehacq_fan/people/田中浩一郎 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/hYNzXVrDR4U/hqdefault.jpg)](https://www.youtube.com/watch?v=hYNzXVrDR4U)
 1.  [【後藤達也vs今野忍vsチームみらい】躍進のわけ…結党１年のチームみらいを徹底解剖【ReHacQvs安野貴博vs須田えいたろう】](/rehacq_fan/ids/taDVeI-3-q4 "wikilink")
     -   公開日: 2026-09-02
-    -   視聴数: 107,395
-    -   **いいね数: 1,048**
+    -   視聴数: 134,383
+    -   **いいね数: 1,350**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 須田えいたろう
     - [![](https://img.youtube.com/vi/taDVeI-3-q4/hqdefault.jpg)](https://www.youtube.com/watch?v=taDVeI-3-q4)
 1.  [【ReHacQフットボール】夏の移籍速報！プレミアリーグ黄金時代！日本代表の活躍と現地評価は？選手目線の本音とは？【ReHacQvs箕輪厚介vsミムラユウスケvs鄭大世vs西大伍】](/rehacq_fan/ids/wigh0N6__Mo "wikilink")
     -   公開日: 2026-09-01
-    -   視聴数: 236,433
-    -   **いいね数: 858**
+    -   視聴数: 241,413
+    -   **いいね数: 889**
     -   出演者: [ミムラユウスケ](/rehacq_fan/people/ミムラユウスケ "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西大伍](/rehacq_fan/people/西大伍 "wikilink"), [鄭大世](/rehacq_fan/people/鄭大世 "wikilink")
     - [![](https://img.youtube.com/vi/wigh0N6__Mo/hqdefault.jpg)](https://www.youtube.com/watch?v=wigh0N6__Mo)
 1.  [【田中渓vs億り人】10倍株の見つけ方！株価だけ見るのはNG？次の大化け株を狙え【ReHacQ】](/rehacq_fan/ids/3zE4tIhP6bo "wikilink")
     -   公開日: 2026-09-01
-    -   視聴数: 81,014
-    -   **いいね数: 254**
+    -   視聴数: 83,058
+    -   **いいね数: 272**
     -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), 遠藤洋
     - [![](https://img.youtube.com/vi/3zE4tIhP6bo/hqdefault.jpg)](https://www.youtube.com/watch?v=3zE4tIhP6bo)
 1.  [【今野忍vs沖縄県知事選】保守vs革新…政権基盤占う選挙なぜ大混戦？【ReHacQvs三浦瑠麗vs須賀川拓】](/rehacq_fan/ids/fU1438R3r0 "wikilink")
     -   公開日: 2026-08-31
-    -   視聴数: 235,290
-    -   **いいね数: 1,236**
+    -   視聴数: 238,957
+    -   **いいね数: 1,260**
     -   出演者: [三浦瑠麗](/rehacq_fan/people/三浦瑠麗 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/_fU1438R3r0/hqdefault.jpg)](https://www.youtube.com/watch?v=_fU1438R3r0)
 
