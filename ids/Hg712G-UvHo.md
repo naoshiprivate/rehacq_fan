@@ -1,6 +1,6 @@
 ### [【高橋弘樹vsエンジン】電気自動車の罠... 世界が追随！日本のエンジンとは？【ReHacQvs草鹿仁】](https://www.youtube.com/watch?v=Hg712G-UvHo)
 [![](https://img.youtube.com/vi/Hg712G-UvHo/sddefault.jpg)](https://www.youtube.com/watch?v=Hg712G-UvHo)
 -   公開日: 2026-06-05
--   視聴数: 1,000,912
--   **いいね数: 9,770**
+-   視聴数: 1,043,113
+-   **いいね数: 10,010**
 -   出演者: 草鹿仁, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
