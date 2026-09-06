@@ -1,34 +1,34 @@
 # ReHacQ 最近の動画
+1.  [【高橋弘樹vs東大気象学者】地球温暖化の解決策とは？気候工学の是非...東大教授が徹底解説【ReHacQvs渡部雅浩】](/rehacq_fan/ids/JpoDhJ6g03M "wikilink")
+    -   公開日: 2026-09-06
+    -   視聴数: 102
+    -   **いいね数: 36**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/JpoDhJ6g03M/hqdefault.jpg)](https://www.youtube.com/watch?v=JpoDhJ6g03M)
 1.  [【高橋弘樹vs関東】さいたまを副首都に…なぜ？副首都に最適な都市はどこ？【ReHacQ】](/rehacq_fan/ids/Q6Y48PAQkM0 "wikilink")
     -   公開日: 2026-09-05
-    -   視聴数: 61,445
-    -   **いいね数: 227**
+    -   視聴数: 75,626
+    -   **いいね数: 285**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Q6Y48PAQkM0/hqdefault.jpg)](https://www.youtube.com/watch?v=Q6Y48PAQkM0)
 1.  [【呉座勇一vs高橋弘樹】民衆激怒...日本史の一揆ベスト3！江戸時代も財政難…幕府と農民の攻防とは？【ReHacQ】](/rehacq_fan/ids/F5MGs0GmJU0 "wikilink")
     -   公開日: 2026-09-05
-    -   視聴数: 223,050
-    -   **いいね数: 1,513**
+    -   視聴数: 236,632
+    -   **いいね数: 1,650**
     -   出演者: 
     - [![](https://img.youtube.com/vi/F5MGs0GmJU0/hqdefault.jpg)](https://www.youtube.com/watch?v=F5MGs0GmJU0)
 1.  [【高橋弘樹vs歴史学者】古代中国の日常とは？超ギリギリ生活…税金・兵役・労役の実態とは？【ReHacQvs柿沼陽平】](/rehacq_fan/ids/SOAoKQGIXqw "wikilink")
     -   公開日: 2026-09-04
-    -   視聴数: 200,889
-    -   **いいね数: 798**
+    -   視聴数: 208,640
+    -   **いいね数: 858**
     -   出演者: 柿沼陽平, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/SOAoKQGIXqw/hqdefault.jpg)](https://www.youtube.com/watch?v=SOAoKQGIXqw)
 1.  [【高市政権vs機関投資家】長期金利ついに3％！さらなる上昇に日本の財政は耐えられるのか？【村上尚己＆永濱利廣＆松尾英里子＆ReHacQ】](/rehacq_fan/ids/tycprbNg06U "wikilink")
     -   公開日: 2026-09-04
-    -   視聴数: 141,657
-    -   **いいね数: 838**
+    -   視聴数: 144,097
+    -   **いいね数: 882**
     -   出演者: 村上尚己, [松尾英里子](/rehacq_fan/people/松尾英里子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/tycprbNg06U/hqdefault.jpg)](https://www.youtube.com/watch?v=tycprbNg06U)
-1.  [【高橋弘樹vs脳科学】6時間睡眠は「2徹」と同じ？スマホで脳が老ける？睡眠・食事・スマホで脳は変わる…脳科学者が教える“脳の新常識”とは？【ReHacQ R大学】](/rehacq_fan/ids/DYtUMa8UwVQ "wikilink")
-    -   公開日: 2026-09-03
-    -   視聴数: 325,012
-    -   **いいね数: 1,972**
-    -   出演者: 毛内拡, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/DYtUMa8UwVQ/hqdefault.jpg)](https://www.youtube.com/watch?v=DYtUMa8UwVQ)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -64,11 +64,11 @@
 ## 時系列データ
 #### [2026年09月](videos/202609 "wikilink")
 
--   動画数: 10, 視聴数: 1,936,432, いいね数: 10,226
+-   動画数: 11, 視聴数: 1,985,931, いいね数: 10,674
 
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 85, 視聴数: 16,995,479, いいね数: 200,620
+-   動画数: 85, 視聴数: 17,007,023, いいね数: 200,717
 
 #### [2026年07月](videos/202607 "wikilink")
 
@@ -76,7 +76,7 @@
 
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 92, 視聴数: 16,351,574, いいね数: 217,496
+-   動画数: 92, 視聴数: 16,387,455, いいね数: 217,605
 
 #### [2026年05月](videos/202605 "wikilink")
 
@@ -92,7 +92,7 @@
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 25,923,401, いいね数: 364,674
+-   動画数: 98, 視聴数: 25,926,738, いいね数: 364,695
 
 #### [2026年01月](videos/202601 "wikilink")
 
@@ -100,7 +100,7 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 18,806,808, いいね数: 225,361
+-   動画数: 83, 視聴数: 18,806,810, いいね数: 225,361
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -112,11 +112,11 @@
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 18,657,088, いいね数: 285,426
+-   動画数: 87, 視聴数: 18,694,122, いいね数: 285,546
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 17,407,890, いいね数: 274,922
+-   動画数: 65, 視聴数: 17,408,115, いいね数: 274,924
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -168,7 +168,7 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 16,707,573, いいね数: 295,310
+-   動画数: 44, 視聴数: 16,708,473, いいね数: 295,304
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -235,4 +235,4 @@
 -   動画数: 14, 視聴数: 8,276,475, いいね数: 142,198
 
 ---
-2026-09-06 07:00
+2026-09-06 12:00
