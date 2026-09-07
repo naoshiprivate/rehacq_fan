@@ -27,11 +27,11 @@
 1. [東留伽](/rehacq_fan/people/東留伽): 1.42 (12)
 1. [内田稔](/rehacq_fan/people/内田稔): 1.41 (13)
 1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 1.41 (55)
-1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 1.41 (1084)
+1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 1.41 (1086)
 1. [須黒清華](/rehacq_fan/people/須黒清華): 1.40 (22)
-1. [斎藤幸平](/rehacq_fan/people/斎藤幸平): 1.39 (60)
+1. [斎藤幸平](/rehacq_fan/people/斎藤幸平): 1.39 (61)
 1. [加藤シルビア](/rehacq_fan/people/加藤シルビア): 1.38 (10)
-1. [羽田圭介](/rehacq_fan/people/羽田圭介): 1.34 (10)
+1. [若新雄純](/rehacq_fan/people/若新雄純): 1.36 (10)
 
 
 # 平均いいね数ランキング

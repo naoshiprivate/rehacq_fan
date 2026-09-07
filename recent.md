@@ -2,7 +2,7 @@
     -   公開日: 2026-09-07
     -   視聴数: 3,616
     -   **いいね数: 282**
-    -   出演者: 
+    -   出演者: 松原由幸, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/rP5gRNK3LOA/hqdefault.jpg)](https://www.youtube.com/watch?v=rP5gRNK3LOA)
 1.  [【ReHacQ討論会】宮城県七ヶ宿町長選挙ネット討論会【本庄美奈子vs管原けんじvs渡部秀文】](/rehacq_fan/ids/BU_KMgPQn1Y "wikilink")
     -   公開日: 2026-09-07
