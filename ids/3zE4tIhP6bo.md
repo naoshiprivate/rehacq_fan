@@ -1,6 +1,6 @@
 ### [【田中渓vs億り人】10倍株の見つけ方！株価だけ見るのはNG？次の大化け株を狙え【ReHacQ】](https://www.youtube.com/watch?v=3zE4tIhP6bo)
 [![](https://img.youtube.com/vi/3zE4tIhP6bo/sddefault.jpg)](https://www.youtube.com/watch?v=3zE4tIhP6bo)
 -   公開日: 2026-09-01
--   視聴数: 106,691
--   **いいね数: 348**
+-   視聴数: 106,842
+-   **いいね数: 349**
 -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), 遠藤洋
