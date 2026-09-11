@@ -1,6 +1,6 @@
 ### [【佐久間宣行vs高橋弘樹②】不安が大切！会社辞めて成功する人、しない人【辞めテレ東対決】](https://www.youtube.com/watch?v=DQGX7PKstUA)
 [![](https://img.youtube.com/vi/DQGX7PKstUA/sddefault.jpg)](https://www.youtube.com/watch?v=DQGX7PKstUA)
 -   公開日: 2024-09-17
--   視聴数: 553,188
--   **いいね数: 7,871**
+-   視聴数: 559,940
+-   **いいね数: 7,913**
 -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

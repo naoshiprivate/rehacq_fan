@@ -365,16 +365,16 @@
     -   視聴数: 630,282
     -   **いいね数: 18,372**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
+    -   公開日: 2024-09-10
+    -   視聴数: 1,810,265
+    -   **いいね数: 18,357**
+    -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
     -   公開日: 2024-07-27
     -   視聴数: 1,925,927
     -   **いいね数: 18,324**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
-    -   公開日: 2024-09-10
-    -   視聴数: 1,790,510
-    -   **いいね数: 18,279**
-    -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【百田尚樹vs高橋弘樹】日本保守党にNG無し質問！【ReHacQvs日本保守党】](/rehacq_fan/ids/66XALKEKYqA "wikilink")
     -   公開日: 2025-07-19
     -   視聴数: 434,878
