@@ -12,8 +12,8 @@
     -   出演者: 鎌田浩毅, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](/rehacq_fan/ids/eOz1CzMBmuQ "wikilink")
     -   公開日: 2023-11-25
-    -   視聴数: 3,389,683
-    -   **いいね数: 25,995**
+    -   視聴数: 3,397,851
+    -   **いいね数: 25,997**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【高橋弘樹vs呉座勇一】戦国時代のウソ！豊臣秀吉の正体とは？歴史に騙されない方法【ReHacQvs織田信長の真実】](/rehacq_fan/ids/H6ZVuj7IGOM "wikilink")
     -   公開日: 2025-12-18
@@ -242,8 +242,8 @@
     -   出演者: 出口保行, [尾崎里紗](/rehacq_fan/people/尾崎里紗 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一の野望【落選４回…なぜ政治家に？】](/rehacq_fan/ids/Ue3JGrtEO3Y "wikilink")
     -   公開日: 2023-11-19
-    -   視聴数: 1,539,535
-    -   **いいね数: 9,160**
+    -   視聴数: 1,546,297
+    -   **いいね数: 9,162**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs衆院選2024】ほぼ落選！音喜多駿が緊急参戦…なぜ負けた？石丸伸二VTR出演&緊急生電話【藤井サチvsさとうさおりvs高橋弘樹】](/rehacq_fan/ids/AmCukzP6Gwc "wikilink")
     -   公開日: 2024-10-27
