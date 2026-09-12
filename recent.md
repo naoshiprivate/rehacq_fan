@@ -1,31 +1,31 @@
 1.  [【今野忍vs中道改革連合】８ヶ月で解体へ…何が問題？そして今度どうする？【ReHacQvs太栄志vs山岸一生vs反田まりvs下矢一良】](/rehacq_fan/ids/k9VgvmcBIZw "wikilink")
     -   公開日: 2026-09-11
-    -   視聴数: 310,116
-    -   **いいね数: 1,578**
-    -   出演者: 
+    -   視聴数: 323,962
+    -   **いいね数: 1,636**
+    -   出演者: 下矢一良, [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 反田まり, 太栄志, [山岸一生](/rehacq_fan/people/山岸一生 "wikilink")
     - [![](https://img.youtube.com/vi/k9VgvmcBIZw/hqdefault.jpg)](https://www.youtube.com/watch?v=k9VgvmcBIZw)
 1.  [【投資家vs巨大ＩＰＯ】ＡＩ相場に異変は？アンソロピック上場前…売られる銘柄は何？【鈴木一之＆永濱利廣＆森本智子＆ReHacQ】](/rehacq_fan/ids/mQzepTdzXRY "wikilink")
     -   公開日: 2026-09-11
-    -   視聴数: 92,339
-    -   **いいね数: 330**
-    -   出演者: 
+    -   視聴数: 93,922
+    -   **いいね数: 340**
+    -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), 鈴木一之
     - [![](https://img.youtube.com/vi/mQzepTdzXRY/hqdefault.jpg)](https://www.youtube.com/watch?v=mQzepTdzXRY)
 1.  [【高橋弘樹vs歴史学者】寿命を延ばす性技の書とは？女子会＆酒＆博打…庶民のリアルとは？【ReHacQvs柿沼陽平】](/rehacq_fan/ids/4zPdKexlggE "wikilink")
     -   公開日: 2026-09-10
-    -   視聴数: 156,897
-    -   **いいね数: 710**
+    -   視聴数: 158,228
+    -   **いいね数: 719**
     -   出演者: 柿沼陽平, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/4zPdKexlggE/hqdefault.jpg)](https://www.youtube.com/watch?v=4zPdKexlggE)
 1.  [【ReHacQ vs IVS2026】日本で成功すると損？起業家が海外流出…20億円稼いだら「6.5億円課税」…ミニマムタックス税制強化の衝撃【郷治友孝×砂川大×出雲充】](/rehacq_fan/ids/TwjvL8UA19o "wikilink")
     -   公開日: 2026-09-10
-    -   視聴数: 56,668
-    -   **いいね数: 146**
+    -   視聴数: 57,043
+    -   **いいね数: 148**
     -   出演者: 出雲充, 砂川大, 郷治友孝
     - [![](https://img.youtube.com/vi/TwjvL8UA19o/hqdefault.jpg)](https://www.youtube.com/watch?v=TwjvL8UA19o)
 1.  [【田中渓vs岩井圭也】人生を賭ける決断！会社員から作家へ…安定を捨てた理由とは？【ReHacQ】](/rehacq_fan/ids/10a1VKAcZWM "wikilink")
     -   公開日: 2026-09-09
-    -   視聴数: 100,631
-    -   **いいね数: 379**
+    -   視聴数: 101,096
+    -   **いいね数: 378**
     -   出演者: 岩井圭也, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
     - [![](https://img.youtube.com/vi/10a1VKAcZWM/hqdefault.jpg)](https://www.youtube.com/watch?v=10a1VKAcZWM)
 

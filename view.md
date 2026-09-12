@@ -2,8 +2,8 @@
 
 1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](/rehacq_fan/ids/MxSVlnm0qc4 "wikilink")
     -   公開日: 2024-11-17
-    -   視聴数: 3,837,093
-    -   **いいね数: 55,251**
+    -   視聴数: 3,845,156
+    -   **いいね数: 55,253**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【高橋弘樹vs京大名誉教授】完全解説！迫る南海トラフ・首都直下型地震・富士山噴火...国民半分が被災？国家機能は停止し300兆円の損失？安全な都市とは...【ReHacQvs鎌田浩毅】](/rehacq_fan/ids/OaraOYMIles "wikilink")
     -   公開日: 2026-03-10
@@ -72,8 +72,8 @@
     -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs日本保守党】河村たかしが激怒！政治屋をぶっつぶす【西田亮介vsリハックマReHacQ】](/rehacq_fan/ids/0ecD5gpE0i8 "wikilink")
     -   公開日: 2024-11-09
-    -   視聴数: 2,438,743
-    -   **いいね数: 32,929**
+    -   視聴数: 2,444,191
+    -   **いいね数: 32,940**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【高橋弘樹vs近藤大介②】激動する中国政治_習近平の権力構造と地政学リスクとは？【ReHacQ中国経済SP】](/rehacq_fan/ids/ubUYvwixxCg "wikilink")
     -   公開日: 2025-10-09
@@ -212,8 +212,8 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【国民民主vsひろゆき】全部言う！玉木氏が衝撃告白！参院選で重大発表【ReHacQ高橋弘樹】](/rehacq_fan/ids/3WIDjkmg6xY "wikilink")
     -   公開日: 2025-02-02
-    -   視聴数: 1,677,850
-    -   **いいね数: 21,566**
+    -   視聴数: 1,678,219
+    -   **いいね数: 21,561**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs会見入れなかったジャーナリスト】前代未聞の激論…なぜ？取材会見時のジャーナリスト制限に関して【ひろゆきvs横田一vs西田亮介vs箕輪厚介vs高橋弘樹ReHacQ】](/rehacq_fan/ids/23N6ICQ55-c "wikilink")
     -   公開日: 2025-01-16
@@ -330,16 +330,16 @@
     -   視聴数: 1,297,392
     -   **いいね数: 23,284**
     -   出演者: 
+1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](/rehacq_fan/ids/v6K85s-g9Oc "wikilink")
+    -   公開日: 2025-02-05
+    -   視聴数: 1,288,166
+    -   **いいね数: 17,543**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs銀行の元上司】半沢直樹か否か…銀行時代、上司を詰めた理由とは？【高橋弘樹】](/rehacq_fan/ids/9Ost8DSs1uU "wikilink")
     -   公開日: 2024-09-14
     -   視聴数: 1,287,945
     -   **いいね数: 18,786**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](/rehacq_fan/ids/v6K85s-g9Oc "wikilink")
-    -   公開日: 2025-02-05
-    -   視聴数: 1,287,873
-    -   **いいね数: 17,550**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
     -   公開日: 2026-02-13
     -   視聴数: 1,281,878
