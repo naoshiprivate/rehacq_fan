@@ -1,0 +1,6 @@
+### [【防災研究者vs須賀川拓】災害級豪雨に備えよ...災害時に必要な「判断」とは？【ReHacQvs片田敏孝】](https://www.youtube.com/watch?v=sOjq7gWDHpw)
+[![](https://img.youtube.com/vi/sOjq7gWDHpw/sddefault.jpg)](https://www.youtube.com/watch?v=sOjq7gWDHpw)
+-   公開日: 2026-09-13
+-   視聴数: 1,798
+-   **いいね数: 83**
+-   出演者: 
