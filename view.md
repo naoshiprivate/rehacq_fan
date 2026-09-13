@@ -380,6 +380,11 @@
     -   視聴数: 1,226,597
     -   **いいね数: 10,501**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [土田しん](/rehacq_fan/people/土田しん "wikilink"), [小西ひろゆき](/rehacq_fan/people/小西ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【ひろゆきvsビッグダディ】衝撃！究極の子育て論を展開！止まらぬ少子化に抗う術とは...【林下清志vsナレソメ勝倉】](/rehacq_fan/ids/gE1Tqo86I_Y "wikilink")
+    -   公開日: 2025-07-20
+    -   視聴数: 1,221,861
+    -   **いいね数: 11,338**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), 林下清志
 1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](/rehacq_fan/ids/xVW1qk9pj9s "wikilink")
     -   公開日: 2025-01-22
     -   視聴数: 1,216,096
@@ -395,11 +400,6 @@
     -   視聴数: 1,208,043
     -   **いいね数: 21,311**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ひろゆきvsビッグダディ】衝撃！究極の子育て論を展開！止まらぬ少子化に抗う術とは...【林下清志vsナレソメ勝倉】](/rehacq_fan/ids/gE1Tqo86I_Y "wikilink")
-    -   公開日: 2025-07-20
-    -   視聴数: 1,202,407
-    -   **いいね数: 11,284**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), 林下清志
 1.  [【ひろゆきvsボビー・オロゴン】兄弟34人！父のスパルタ教育とは？【ガチの一夫多妻制】](/rehacq_fan/ids/hvJ0lBxFILU "wikilink")
     -   公開日: 2024-08-04
     -   視聴数: 1,201,988
