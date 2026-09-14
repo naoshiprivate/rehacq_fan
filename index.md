@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【防災研究者vs須賀川拓】災害級豪雨に備えよ...災害時に必要な「判断」とは？【ReHacQvs片田敏孝】](/rehacq_fan/ids/sOjq7gWDHpw "wikilink")
     -   公開日: 2026-09-13
-    -   視聴数: 84,444
-    -   **いいね数: 375**
+    -   視聴数: 89,482
+    -   **いいね数: 395**
     -   出演者: 
     - [![](https://img.youtube.com/vi/sOjq7gWDHpw/hqdefault.jpg)](https://www.youtube.com/watch?v=sOjq7gWDHpw)
 1.  [【呉座勇一vs高橋弘樹】日本すごい論の起源とは？中国・インドへの憧れ…逆転した日本観とは？【ReHacQ】](/rehacq_fan/ids/6rZoaaX-Q-Y "wikilink")
     -   公開日: 2026-09-13
-    -   視聴数: 227,964
-    -   **いいね数: 1,724**
+    -   視聴数: 233,586
+    -   **いいね数: 1,747**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6rZoaaX-Q-Y/hqdefault.jpg)](https://www.youtube.com/watch?v=6rZoaaX-Q-Y)
 1.  [【東大医学生vs日大教授】受験戦争の悲劇「学歴コンプ」の乗り越え方とは？大学受験のあるべき形とは？【ReHacQvsベテランちvs西田亮介】](/rehacq_fan/ids/s66iKLLznz0 "wikilink")
     -   公開日: 2026-09-12
-    -   視聴数: 312,084
-    -   **いいね数: 2,286**
+    -   視聴数: 316,423
+    -   **いいね数: 2,312**
     -   出演者: [ベテランち](/rehacq_fan/people/ベテランち "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
     - [![](https://img.youtube.com/vi/s66iKLLznz0/hqdefault.jpg)](https://www.youtube.com/watch?v=s66iKLLznz0)
 1.  [【今野忍vs沖縄県知事選2026】明日投開票！争点は？大接戦の県知事選を徹底解説【ReHacQ須賀川拓】](/rehacq_fan/ids/lnIazM9ZZ_k "wikilink")
     -   公開日: 2026-09-12
-    -   視聴数: 311,282
-    -   **いいね数: 1,933**
+    -   視聴数: 313,730
+    -   **いいね数: 1,941**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/lnIazM9ZZ_k/hqdefault.jpg)](https://www.youtube.com/watch?v=lnIazM9ZZ_k)
 1.  [【今野忍vs中道改革連合】８ヶ月で解体へ…何が問題？そして今度どうする？【ReHacQvs太栄志vs山岸一生vs反田まりvs下矢一良】](/rehacq_fan/ids/k9VgvmcBIZw "wikilink")
     -   公開日: 2026-09-11
-    -   視聴数: 524,243
-    -   **いいね数: 2,473**
+    -   視聴数: 526,546
+    -   **いいね数: 2,481**
     -   出演者: 下矢一良, [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 反田まり, 太栄志, [山岸一生](/rehacq_fan/people/山岸一生 "wikilink")
     - [![](https://img.youtube.com/vi/k9VgvmcBIZw/hqdefault.jpg)](https://www.youtube.com/watch?v=k9VgvmcBIZw)
 
@@ -34,14 +34,14 @@
 ## 最近の人気動画
 1.  [【今野忍vs中道改革連合】８ヶ月で解体へ…何が問題？そして今度どうする？【ReHacQvs太栄志vs山岸一生vs反田まりvs下矢一良】](/rehacq_fan/ids/k9VgvmcBIZw "wikilink")
     -   公開日: 2026-09-11
-    -   視聴数: 524,243
-    -   **いいね数: 2,473**
+    -   視聴数: 526,546
+    -   **いいね数: 2,481**
     -   出演者: 下矢一良, [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 反田まり, 太栄志, [山岸一生](/rehacq_fan/people/山岸一生 "wikilink")
     - [![](https://img.youtube.com/vi/k9VgvmcBIZw/hqdefault.jpg)](https://www.youtube.com/watch?v=k9VgvmcBIZw)
 1.  [【ReHacQvsちいかわ】緊急生配信！なぜ社会現象に？ちいかわの本質を大激論！【石丸伸二vs斎藤幸平vs箕輪厚介vs今野忍】](/rehacq_fan/ids/BjhiGEsDLBM "wikilink")
     -   公開日: 2026-09-06
-    -   視聴数: 633,025
-    -   **いいね数: 6,949**
+    -   視聴数: 634,071
+    -   **いいね数: 6,955**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
     - [![](https://img.youtube.com/vi/BjhiGEsDLBM/hqdefault.jpg)](https://www.youtube.com/watch?v=BjhiGEsDLBM)
 1.  [【呉座勇一vs高橋弘樹】「増税反対」で一揆！幕府と農民の攻防とは？【ReHacQ】](/rehacq_fan/ids/ORqw4871WIE "wikilink")
@@ -70,11 +70,11 @@
 ## 時系列データ
 #### [2026年09月](videos/202609 "wikilink")
 
--   動画数: 28, 視聴数: 6,672,451, いいね数: 39,332
+-   動画数: 28, 視聴数: 6,697,043, いいね数: 39,441
 
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 85, 視聴数: 17,905,152, いいね数: 205,329
+-   動画数: 85, 視聴数: 17,924,756, いいね数: 205,380
 
 #### [2026年07月](videos/202607 "wikilink")
 
@@ -86,19 +86,19 @@
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 26,207,808, いいね数: 411,472
+-   動画数: 111, 視聴数: 26,235,187, いいね数: 411,638
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 25,803,673, いいね数: 381,153
+-   動画数: 96, 視聴数: 25,809,904, いいね数: 381,169
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 23,749,622, いいね数: 296,318
+-   動画数: 89, 視聴数: 23,749,650, いいね数: 296,318
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 26,112,166, いいね数: 365,117
+-   動画数: 98, 視聴数: 26,112,422, いいね数: 365,115
 
 #### [2026年01月](videos/202601 "wikilink")
 
@@ -106,11 +106,11 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 19,502,312, いいね数: 227,030
+-   動画数: 83, 視聴数: 19,509,228, いいね数: 227,053
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 13,900,931, いいね数: 186,906
+-   動画数: 79, 視聴数: 13,901,489, いいね数: 186,902
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -118,7 +118,7 @@
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 18,839,446, いいね数: 286,222
+-   動画数: 87, 視聴数: 18,839,455, いいね数: 286,222
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -142,19 +142,19 @@
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 15,648,862, いいね数: 259,349
+-   動画数: 61, 視聴数: 15,657,663, いいね数: 259,373
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,970,195, いいね数: 300,203
+-   動画数: 47, 視聴数: 16,973,871, いいね数: 300,207
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 19,477,282, いいね数: 301,175
+-   動画数: 48, 視聴数: 19,486,622, いいね数: 301,230
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 19,236,616, いいね数: 312,591
+-   動画数: 60, 視聴数: 19,236,691, いいね数: 312,591
 
 #### [2024年11月](videos/202411 "wikilink")
 
@@ -241,4 +241,4 @@
 -   動画数: 14, 視聴数: 8,319,069, いいね数: 142,235
 
 ---
-2026-09-14 12:15
+2026-09-14 13:15
