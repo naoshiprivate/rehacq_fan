@@ -37,8 +37,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也と新NISA】投資のシンプルな真実！赤裸々告白【S&P500とオルカン】](/rehacq_fan/ids/MXBsHbF603U "wikilink")
     -   公開日: 2023-12-21
-    -   視聴数: 2,897,108
-    -   **いいね数: 34,669**
+    -   視聴数: 2,910,484
+    -   **いいね数: 34,707**
     -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](/rehacq_fan/ids/H_e67-Dxr8o "wikilink")
     -   公開日: 2024-11-18
@@ -252,8 +252,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vsインデックスファンド】パックン式！世界最強の「投資思考術」とは【アメリカ株】](/rehacq_fan/ids/xcbxnXpIizM "wikilink")
     -   公開日: 2023-12-07
-    -   視聴数: 1,516,558
-    -   **いいね数: 15,902**
+    -   視聴数: 1,523,074
+    -   **いいね数: 15,915**
     -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【呉座勇一vs高橋弘樹】秀吉は光秀なぜ打てた？衝撃のラッキーパンチ！歴史の罠【 ReHacQ戦国時代】](/rehacq_fan/ids/QkOnCrQTkE0 "wikilink")
     -   公開日: 2025-12-25
@@ -277,8 +277,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【後藤達也！投資ガチ議論】パックン！アメリカ金融教育とは？【長期投資】](/rehacq_fan/ids/DnaUPmvmoHU "wikilink")
     -   公開日: 2023-11-30
-    -   視聴数: 1,457,959
-    -   **いいね数: 13,824**
+    -   視聴数: 1,465,510
+    -   **いいね数: 13,838**
     -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ロシア・ウクライナ戦争】徹底解説…終わらない理由…プーチンが求める真の終戦条件は？イラン戦争でトランプが世界秩序を変えた!?台湾有事の可能性と日本の影響は…【ReHacQ高橋弘樹vs小泉悠】](/rehacq_fan/ids/hvXLADpNwqs "wikilink")
     -   公開日: 2026-04-04
@@ -405,16 +405,16 @@
     -   視聴数: 1,201,988
     -   **いいね数: 17,137**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
+1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](/rehacq_fan/ids/2XMbvuYkbeQ "wikilink")
+    -   公開日: 2023-12-28
+    -   視聴数: 1,194,824
+    -   **いいね数: 22,034**
+    -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン】年収1億円…行く人、行かない人違いは？【ReHacQ】](/rehacq_fan/ids/Ipck99H_vjU "wikilink")
     -   公開日: 2025-01-13
     -   視聴数: 1,190,812
     -   **いいね数: 15,414**
     -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](/rehacq_fan/ids/2XMbvuYkbeQ "wikilink")
-    -   公開日: 2023-12-28
-    -   視聴数: 1,188,783
-    -   **いいね数: 22,007**
-    -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【高橋弘樹vs認知症の予防】衝撃！70歳の認知症は30年前から始まっている！？アルツハイマー防ぐには？【ReHacQvsアメリカ天才医学者】](/rehacq_fan/ids/ZsLG3B_waNI "wikilink")
     -   公開日: 2025-06-25
     -   視聴数: 1,179,787

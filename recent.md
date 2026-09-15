@@ -1,31 +1,31 @@
+1.  [【ReHacQvs近藤大介】中国・習近平の野望！衝撃の軍事力とは？体制変更の理由は？日中関係どうなる？【須賀川拓vs中国】](/rehacq_fan/ids/0DsRN_HAn3M "wikilink")
+    -   公開日: 2026-09-15
+    -   視聴数: 3,731
+    -   **いいね数: 110**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/0DsRN_HAn3M/hqdefault.jpg)](https://www.youtube.com/watch?v=0DsRN_HAn3M)
+1.  [【ReHacQ討論会】茨城県北茨城市長選挙ネット討論会【本庄美奈子vs今井みちえvs豊田しげる】](/rehacq_fan/ids/C6VIN6ow7Nc "wikilink")
+    -   公開日: 2026-09-15
+    -   視聴数: 2,650
+    -   **いいね数: 54**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/C6VIN6ow7Nc/hqdefault.jpg)](https://www.youtube.com/watch?v=C6VIN6ow7Nc)
 1.  [【ReHacQvsiPhone18&Duo】新作買うべき？なぜ今折りたたみスマホ？【須賀川拓vs三上洋】](/rehacq_fan/ids/02TmrbDQX_E "wikilink")
     -   公開日: 2026-09-15
-    -   視聴数: 68,068
-    -   **いいね数: 334**
+    -   視聴数: 81,068
+    -   **いいね数: 372**
     -   出演者: 
     - [![](https://img.youtube.com/vi/02TmrbDQX_E/hqdefault.jpg)](https://www.youtube.com/watch?v=02TmrbDQX_E)
 1.  [【ReHacQ生配信】東出昌大が緊急参戦！一体なぜ…!? 飲みながらまったり雑談【ひろゆきvs箕輪厚介vs今野忍】](/rehacq_fan/ids/GJbXyW2YHBE "wikilink")
     -   公開日: 2026-09-14
-    -   視聴数: 671,605
-    -   **いいね数: 4,745**
+    -   視聴数: 693,412
+    -   **いいね数: 4,988**
     -   出演者: 
     - [![](https://img.youtube.com/vi/GJbXyW2YHBE/hqdefault.jpg)](https://www.youtube.com/watch?v=GJbXyW2YHBE)
 1.  [【今野忍vs沖縄県知事選2026】なぜ圧勝？今野忍が見た選挙の真実【ReHacQ緊急生配信】](/rehacq_fan/ids/8WBOu9lmyug "wikilink")
     -   公開日: 2026-09-14
-    -   視聴数: 495,015
-    -   **いいね数: 4,277**
+    -   視聴数: 505,344
+    -   **いいね数: 4,366**
     -   出演者: 
     - [![](https://img.youtube.com/vi/8WBOu9lmyug/hqdefault.jpg)](https://www.youtube.com/watch?v=8WBOu9lmyug)
-1.  [【高橋弘樹vs沖縄県知事選2026】激白！なぜ立候補を中止？赤裸々すぎウラ話【ReHacQvs下地幹郎】](/rehacq_fan/ids/ZB4jE7OGtLg "wikilink")
-    -   公開日: 2026-09-14
-    -   視聴数: 292,745
-    -   **いいね数: 2,970**
-    -   出演者: 下地幹郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/ZB4jE7OGtLg/hqdefault.jpg)](https://www.youtube.com/watch?v=ZB4jE7OGtLg)
-1.  [【高橋弘樹vs沖縄県知事選2026】緊急直撃！古謝げんた激白！沖縄の未来予想図は？【ReHacQ】](/rehacq_fan/ids/k0dvGhnbYD8 "wikilink")
-    -   公開日: 2026-09-14
-    -   視聴数: 508,296
-    -   **いいね数: 7,629**
-    -   出演者: 古謝げんた, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/k0dvGhnbYD8/hqdefault.jpg)](https://www.youtube.com/watch?v=k0dvGhnbYD8)
 
