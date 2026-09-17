@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/TwjvL8UA19o/sddefault.jpg)](https://www.youtube.com/watch?v=TwjvL8UA19o)
 -   公開日: 2026-09-10
 -   視聴数: 68,461
--   **いいね数: 177**
+-   **いいね数: 148**
 -   出演者: 出雲充, 砂川大, 郷治友孝
