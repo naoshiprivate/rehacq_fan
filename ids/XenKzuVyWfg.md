@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/XenKzuVyWfg/sddefault.jpg)](https://www.youtube.com/watch?v=XenKzuVyWfg)
 -   公開日: 2026-09-17
 -   視聴数: 55,701
--   **いいね数: 190**
+-   **いいね数: 199**
 -   出演者: 岩井圭也, [田中渓](/rehacq_fan/people/田中渓 "wikilink")

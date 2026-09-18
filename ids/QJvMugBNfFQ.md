@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/QJvMugBNfFQ/sddefault.jpg)](https://www.youtube.com/watch?v=QJvMugBNfFQ)
 -   公開日: 2026-09-17
 -   視聴数: 195,527
--   **いいね数: 843**
+-   **いいね数: 871**
 -   出演者: 川本真琴, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [若新雄純](/rehacq_fan/people/若新雄純 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

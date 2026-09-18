@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/k0dvGhnbYD8/sddefault.jpg)](https://www.youtube.com/watch?v=k0dvGhnbYD8)
 -   公開日: 2026-09-14
 -   視聴数: 664,259
--   **いいね数: 8,670**
+-   **いいね数: 8,672**
 -   出演者: 古謝げんた, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

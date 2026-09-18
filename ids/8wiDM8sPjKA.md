@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/8wiDM8sPjKA/sddefault.jpg)](https://www.youtube.com/watch?v=8wiDM8sPjKA)
 -   公開日: 2026-09-16
 -   視聴数: 188,714
--   **いいね数: 1,020**
+-   **いいね数: 1,021**
 -   出演者: オモロー山下, [朝倉慶](/rehacq_fan/people/朝倉慶 "wikilink")
