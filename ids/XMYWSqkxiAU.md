@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】香川県宇多津町長選挙ネット討論会【田村みつるvs谷川としひろvs本庄美奈子】](https://www.youtube.com/watch?v=XMYWSqkxiAU)
 [![](https://img.youtube.com/vi/XMYWSqkxiAU/sddefault.jpg)](https://www.youtube.com/watch?v=XMYWSqkxiAU)
 -   公開日: 2026-09-18
--   視聴数: 40,980
--   **いいね数: 99**
+-   視聴数: 43,303
+-   **いいね数: 100**
 -   出演者: 
