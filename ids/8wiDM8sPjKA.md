@@ -1,6 +1,6 @@
 ### [【相場vs勉強】知識が損を呼ぶ！？知っているほど危険？勉強しなくてよかった理由とは？【朝倉慶&オモロー山下& ReHacQ】](https://www.youtube.com/watch?v=8wiDM8sPjKA)
 [![](https://img.youtube.com/vi/8wiDM8sPjKA/sddefault.jpg)](https://www.youtube.com/watch?v=8wiDM8sPjKA)
 -   公開日: 2026-09-16
--   視聴数: 196,565
--   **いいね数: 1,054**
+-   視聴数: 197,132
+-   **いいね数: 1,060**
 -   出演者: オモロー山下, [朝倉慶](/rehacq_fan/people/朝倉慶 "wikilink")
