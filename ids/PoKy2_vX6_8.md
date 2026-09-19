@@ -3,4 +3,4 @@
 -   公開日: 2026-07-01
 -   視聴数: 43,403
 -   **いいね数: 354**
--   出演者: DAIBOUCHOU, [ちょる子](/rehacq_fan/people/ちょる子 "wikilink"), オモロー山下, 深野康彦
+-   出演者: DAIBOUCHOU, [ちょる子](/rehacq_fan/people/ちょる子 "wikilink"), [オモロー山下](/rehacq_fan/people/オモロー山下 "wikilink"), 深野康彦
