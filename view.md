@@ -137,8 +137,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン・サックス】年収3億だけど「二度と戻りたくない」外資系投資会社で感じた限界とは？【ReHacQ】](/rehacq_fan/ids/dKXQC1J0VLw "wikilink")
     -   公開日: 2025-07-29
-    -   視聴数: 1,935,875
-    -   **いいね数: 22,966**
+    -   視聴数: 1,968,725
+    -   **いいね数: 22,987**
     -   出演者: [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
     -   公開日: 2024-02-12
@@ -317,8 +317,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), [岩田明子](/rehacq_fan/people/岩田明子 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [菅野志桜里](/rehacq_fan/people/菅野志桜里 "wikilink")
 1.  [【石丸伸二vs後藤達也】為替は日銀構文を読め！トランプと株式市場【元NY専門家が予測】](/rehacq_fan/ids/7_sdf9uZUiU "wikilink")
     -   公開日: 2024-07-31
-    -   視聴数: 1,370,358
-    -   **いいね数: 21,390**
+    -   視聴数: 1,371,102
+    -   **いいね数: 21,388**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
@@ -390,16 +390,16 @@
     -   視聴数: 1,216,096
     -   **いいね数: 16,135**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](/rehacq_fan/ids/-67Yfoti-W0 "wikilink")
+    -   公開日: 2024-08-07
+    -   視聴数: 1,214,740
+    -   **いいね数: 21,321**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦】動きに注目！天才物理学者の楽しすぎる量子力学入門【野村泰紀・宇宙とは？】](/rehacq_fan/ids/5iuWBR80ZWs "wikilink")
     -   公開日: 2023-07-07
     -   視聴数: 1,212,028
     -   **いいね数: 17,291**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](/rehacq_fan/ids/-67Yfoti-W0 "wikilink")
-    -   公開日: 2024-08-07
-    -   視聴数: 1,208,043
-    -   **いいね数: 21,311**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsボビー・オロゴン】兄弟34人！父のスパルタ教育とは？【ガチの一夫多妻制】](/rehacq_fan/ids/hvJ0lBxFILU "wikilink")
     -   公開日: 2024-08-04
     -   視聴数: 1,201,988

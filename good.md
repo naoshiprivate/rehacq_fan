@@ -187,8 +187,8 @@
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン・サックス】年収3億だけど「二度と戻りたくない」外資系投資会社で感じた限界とは？【ReHacQ】](/rehacq_fan/ids/dKXQC1J0VLw "wikilink")
     -   公開日: 2025-07-29
-    -   視聴数: 1,935,875
-    -   **いいね数: 22,966**
+    -   視聴数: 1,968,725
+    -   **いいね数: 22,987**
     -   出演者: [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【衆院選2026】開票速報！結果は如何に…まったり緊急生配信【今野忍vs西田亮介vs石丸伸二vsひろゆきvs高橋弘樹】](/rehacq_fan/ids/OSAjuZ4h9KM "wikilink")
     -   公開日: 2026-02-08
@@ -237,13 +237,13 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs後藤達也】為替は日銀構文を読め！トランプと株式市場【元NY専門家が予測】](/rehacq_fan/ids/7_sdf9uZUiU "wikilink")
     -   公開日: 2024-07-31
-    -   視聴数: 1,370,358
-    -   **いいね数: 21,390**
+    -   視聴数: 1,371,102
+    -   **いいね数: 21,388**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](/rehacq_fan/ids/-67Yfoti-W0 "wikilink")
     -   公開日: 2024-08-07
-    -   視聴数: 1,208,043
-    -   **いいね数: 21,311**
+    -   視聴数: 1,214,740
+    -   **いいね数: 21,321**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs自民党税調会長】緊急参戦！宮沢洋一がすべて告白！103万の壁…決着の裏側【ReHacQ西田亮介&高橋弘樹】](/rehacq_fan/ids/mf37-gaqcFE "wikilink")
     -   公開日: 2025-04-06
