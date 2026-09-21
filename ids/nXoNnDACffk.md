@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs元朝日新聞主筆】激白!イラン戦争...政府対応に喝!?責任あるアメリカはもういない?日本の根本的問題点とは【ReHacQvs船橋洋一】](https://www.youtube.com/watch?v=nXoNnDACffk)
 [![](https://img.youtube.com/vi/nXoNnDACffk/sddefault.jpg)](https://www.youtube.com/watch?v=nXoNnDACffk)
 -   公開日: 2026-04-29
--   視聴数: 133,402
--   **いいね数: 1,899**
+-   視聴数: 135,801
+-   **いいね数: 1,907**
 -   出演者: 船橋洋一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
