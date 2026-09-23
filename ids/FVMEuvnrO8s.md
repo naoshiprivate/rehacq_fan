@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs経済学者】仕事は体に悪い？科学が示す残酷な現実とは？【ReHacQvs佐藤豪竜】](https://www.youtube.com/watch?v=FVMEuvnrO8s)
 [![](https://img.youtube.com/vi/FVMEuvnrO8s/sddefault.jpg)](https://www.youtube.com/watch?v=FVMEuvnrO8s)
 -   公開日: 2026-09-23
--   視聴数: 1,186
--   **いいね数: 43**
+-   視聴数: 3,428
+-   **いいね数: 127**
 -   出演者: 
