@@ -325,6 +325,11 @@
     -   視聴数: 1,330,351
     -   **いいね数: 30,823**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+1.  [【ひろゆきvs今野忍】聞きたいニュース！視聴者の質問に答えるニュース番組【ReHacQ高橋弘樹vs音喜多駿vs宇佐美典也】](/rehacq_fan/ids/uoeHYdsZR64 "wikilink")
+    -   公開日: 2026-09-19
+    -   視聴数: 1,299,654
+    -   **いいね数: 5,922**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】ちょっとだけ大切なお知らせ…兵庫県知事選に関して【神戸新聞さん…ランチしましょう】](/rehacq_fan/ids/0P-1c-mn2mc "wikilink")
     -   公開日: 2024-12-08
     -   視聴数: 1,297,646
@@ -335,11 +340,6 @@
     -   視聴数: 1,295,685
     -   **いいね数: 12,273**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ひろゆきvs今野忍】聞きたいニュース！視聴者の質問に答えるニュース番組【ReHacQ高橋弘樹vs音喜多駿vs宇佐美典也】](/rehacq_fan/ids/uoeHYdsZR64 "wikilink")
-    -   公開日: 2026-09-19
-    -   視聴数: 1,293,441
-    -   **いいね数: 5,903**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs銀行の元上司】半沢直樹か否か…銀行時代、上司を詰めた理由とは？【高橋弘樹】](/rehacq_fan/ids/9Ost8DSs1uU "wikilink")
     -   公開日: 2024-09-14
     -   視聴数: 1,289,597
@@ -477,8 +477,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs自民党税調会長】緊急参戦！宮沢洋一がすべて告白！103万の壁…決着の裏側【ReHacQ西田亮介&高橋弘樹】](/rehacq_fan/ids/mf37-gaqcFE "wikilink")
     -   公開日: 2025-04-06
-    -   視聴数: 1,149,688
-    -   **いいね数: 21,282**
+    -   視聴数: 1,150,228
+    -   **いいね数: 21,280**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮沢洋一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](/rehacq_fan/ids/w-ToOG5rMTc "wikilink")
     -   公開日: 2023-10-01

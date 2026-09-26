@@ -1,6 +1,6 @@
 ### [【今野忍vs日米首脳会談】緊急生配信！会談の目的は達成？成果は？【ReHacQvs小谷哲男vs渡瀬裕哉】](https://www.youtube.com/watch?v=rzzcFPvCz7o)
 [![](https://img.youtube.com/vi/rzzcFPvCz7o/sddefault.jpg)](https://www.youtube.com/watch?v=rzzcFPvCz7o)
 -   公開日: 2026-09-24
--   視聴数: 362,752
--   **いいね数: 1,978**
+-   視聴数: 367,926
+-   **いいね数: 2,026**
 -   出演者: 
