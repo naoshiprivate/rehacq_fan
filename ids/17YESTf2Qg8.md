@@ -1,6 +1,6 @@
 ### [【ReHacQvsIVS2026】「増益20％では足りない？」投資家が明かすグロース市場の残酷な現実【藤野英人×田端信太郎×朝倉祐介×持田昌幸】](https://www.youtube.com/watch?v=17YESTf2Qg8)
 [![](https://img.youtube.com/vi/17YESTf2Qg8/sddefault.jpg)](https://www.youtube.com/watch?v=17YESTf2Qg8)
 -   公開日: 2026-09-24
--   視聴数: 153,486
+-   視聴数: 154,345
 -   **いいね数: 377**
 -   出演者: 持田昌幸, 朝倉祐介, [田端信太郎](/rehacq_fan/people/田端信太郎 "wikilink"), [藤野英人](/rehacq_fan/people/藤野英人 "wikilink")
