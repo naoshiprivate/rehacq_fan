@@ -3,4 +3,4 @@
 -   公開日: 2026-02-13
 -   視聴数: 66,997
 -   **いいね数: 597**
--   出演者: [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), 菅原淳一
+-   出演者: [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [菅原淳一](/rehacq_fan/people/菅原淳一 "wikilink")

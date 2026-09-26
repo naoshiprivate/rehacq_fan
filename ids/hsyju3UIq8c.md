@@ -3,4 +3,4 @@
 -   公開日: 2025-11-10
 -   視聴数: 192,509
 -   **いいね数: 3,253**
--   出演者: 深作ヘスス, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [深作ヘスス](/rehacq_fan/people/深作ヘスス "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

@@ -3,4 +3,4 @@
 -   公開日: 2025-08-02
 -   視聴数: 822,987
 -   **いいね数: 11,126**
--   出演者: [にいみ彰平](/rehacq_fan/people/にいみ彰平 "wikilink"), 北村晴男, 山田吉彦, 片石貴展, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [にいみ彰平](/rehacq_fan/people/にいみ彰平 "wikilink"), 北村晴男, [山田吉彦](/rehacq_fan/people/山田吉彦 "wikilink"), 片石貴展, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

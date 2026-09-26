@@ -3,4 +3,4 @@
 -   公開日: 2026-07-02
 -   視聴数: 265,761
 -   **いいね数: 2,701**
--   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 鈴木拓也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [鈴木拓也](/rehacq_fan/people/鈴木拓也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

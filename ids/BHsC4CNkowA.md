@@ -3,4 +3,4 @@
 -   公開日: 2026-08-30
 -   視聴数: 253,954
 -   **いいね数: 3,245**
--   出演者: [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink"), 鈴木拓也, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
+-   出演者: [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink"), [鈴木拓也](/rehacq_fan/people/鈴木拓也 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
