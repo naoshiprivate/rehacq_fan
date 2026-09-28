@@ -165,16 +165,16 @@
     -   視聴数: 1,840,922
     -   **いいね数: 23,716**
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+1.  [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](/rehacq_fan/ids/iDPwEX2A73Y "wikilink")
+    -   公開日: 2024-07-18
+    -   視聴数: 1,825,995
+    -   **いいね数: 28,036**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
     -   公開日: 2024-09-10
     -   視聴数: 1,824,881
     -   **いいね数: 18,407**
     -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](/rehacq_fan/ids/iDPwEX2A73Y "wikilink")
-    -   公開日: 2024-07-18
-    -   視聴数: 1,824,240
-    -   **いいね数: 28,031**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs鈴木おさむ】SMAP生んだ天才・謎のP！初めて明かされる仕事術【リスクマネジメントの鬼】](/rehacq_fan/ids/7PgJY5fY5NY "wikilink")
     -   公開日: 2024-04-26
     -   視聴数: 1,813,458
