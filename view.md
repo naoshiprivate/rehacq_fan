@@ -485,6 +485,11 @@
     -   視聴数: 1,148,875
     -   **いいね数: 11,506**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
+1.  [【40代から若返る！】体力は才能じゃない！筋トレより効く最強・体力習慣とは？【田中渓&澤木一貴】](/rehacq_fan/ids/5xS_xtpWvVg "wikilink")
+    -   公開日: 2025-11-24
+    -   視聴数: 1,137,373
+    -   **いいね数: 11,167**
+    -   出演者: 澤木一貴, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [【ReHacQ緊急生配信】最新AIモデル「ミュトス」とは？危険性やリスク...日本のサイバーセキュリティの未来【塩崎彰久vs安野貴博vs今井翔太vs今野忍vs高橋弘樹】](/rehacq_fan/ids/JOz77X5Yh8I "wikilink")
     -   公開日: 2026-04-24
     -   視聴数: 1,136,494
@@ -495,8 +500,3 @@
     -   視聴数: 1,134,894
     -   **いいね数: 33,498**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【ひろゆきvs東出昌大】夏の夜！まったり雑談【アフリカ旅】](/rehacq_fan/ids/yfbTb_WzSTM "wikilink")
-    -   公開日: 2023-08-20
-    -   視聴数: 1,133,630
-    -   **いいね数: 12,621**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
