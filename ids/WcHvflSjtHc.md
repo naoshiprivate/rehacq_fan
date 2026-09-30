@@ -1,6 +1,6 @@
 ### [【野村泰紀vs高橋弘樹】宇宙についてなんでも聞いて！天才物理学者が視聴者の質問にガチ回答！【ReHacQ生配信】](https://www.youtube.com/watch?v=WcHvflSjtHc)
 [![](https://img.youtube.com/vi/WcHvflSjtHc/sddefault.jpg)](https://www.youtube.com/watch?v=WcHvflSjtHc)
 -   公開日: 2026-06-18
--   視聴数: 397,255
--   **いいね数: 5,156**
+-   視聴数: 418,446
+-   **いいね数: 5,257**
 -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
