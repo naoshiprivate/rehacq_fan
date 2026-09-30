@@ -1,6 +1,6 @@
 ### [【須賀川拓vs辞め三菱商事】なぜ商社マンがブリ漁師に？マッキンゼー辞め、起業…水産業界変えたいワケ【ReHacQvs松岡裕大】](https://www.youtube.com/watch?v=Mr1M3MmwJYw)
 [![](https://img.youtube.com/vi/Mr1M3MmwJYw/sddefault.jpg)](https://www.youtube.com/watch?v=Mr1M3MmwJYw)
 -   公開日: 2026-09-30
--   視聴数: 16,739
--   **いいね数: 98**
+-   視聴数: 23,387
+-   **いいね数: 120**
 -   出演者: 
