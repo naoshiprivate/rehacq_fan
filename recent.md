@@ -1,31 +1,31 @@
+1.  [【ReHacQ vs国連】衝撃体験！もう助けに来ないで！スリランカでの叫び…なぜ？武装勢力との交渉と葛藤【須賀川拓vsキハラハント愛】](/rehacq_fan/ids/rVSF6SV_UUE "wikilink")
+    -   公開日: 2026-09-30
+    -   視聴数: 2,620
+    -   **いいね数: 72**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/rVSF6SV_UUE/hqdefault.jpg)](https://www.youtube.com/watch?v=rVSF6SV_UUE)
+1.  [【須賀川拓vs辞め三菱商事】なぜ商社マンがブリ漁師に？マッキンゼー辞め、起業…水産業界変えたいワケ【ReHacQvs松岡裕大】](/rehacq_fan/ids/Mr1M3MmwJYw "wikilink")
+    -   公開日: 2026-09-30
+    -   視聴数: 2
+    -   **いいね数: 10**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/Mr1M3MmwJYw/hqdefault.jpg)](https://www.youtube.com/watch?v=Mr1M3MmwJYw)
+1.  [【ReHacQ討論会】福岡県議補選筑後市選挙区ネット討論会【牛島けいじろうvs石丸伸二】](/rehacq_fan/ids/F1dpGgCERac "wikilink")
+    -   公開日: 2026-09-30
+    -   視聴数: 62,325
+    -   **いいね数: 1,240**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/F1dpGgCERac/hqdefault.jpg)](https://www.youtube.com/watch?v=F1dpGgCERac)
 1.  [【ReHacQ生配信】8月、9月振り返り！新スタジオよりまったり雑談生配信【高橋弘樹】](/rehacq_fan/ids/PFdySV2komA "wikilink")
     -   公開日: 2026-09-29
-    -   視聴数: 449,413
-    -   **いいね数: 2,434**
+    -   視聴数: 494,271
+    -   **いいね数: 2,719**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/PFdySV2komA/hqdefault.jpg)](https://www.youtube.com/watch?v=PFdySV2komA)
 1.  [【斎藤幸平vs遺伝子組み換え作物】なぜ不安に感じる？遺伝子組み換えの真実と日本の農業の未来【ReHacQvs小島正美vs徳本修一vs高橋弘樹vs須賀川拓】](/rehacq_fan/ids/rcG1ZUF2V7M "wikilink")
     -   公開日: 2026-09-29
-    -   視聴数: 103,064
-    -   **いいね数: 626**
+    -   視聴数: 122,052
+    -   **いいね数: 771**
     -   出演者: 小島正美, 徳本修一, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/rcG1ZUF2V7M/hqdefault.jpg)](https://www.youtube.com/watch?v=rcG1ZUF2V7M)
-1.  [【斎藤幸平vs世界経済】天才トレーダーが緊急提言！？中産階級の崩壊…世界経済の嘘とは？【ReHacQ】](/rehacq_fan/ids/GqhEUGqhmWw "wikilink")
-    -   公開日: 2026-09-29
-    -   視聴数: 251,891
-    -   **いいね数: 2,523**
-    -   出演者: ギャリー・スティーヴンソン, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
-    - [![](https://img.youtube.com/vi/GqhEUGqhmWw/hqdefault.jpg)](https://www.youtube.com/watch?v=GqhEUGqhmWw)
-1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
-    -   公開日: 2026-09-28
-    -   視聴数: 815,144
-    -   **いいね数: 6,268**
-    -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
-    - [![](https://img.youtube.com/vi/ZMij1z4NOgo/hqdefault.jpg)](https://www.youtube.com/watch?v=ZMij1z4NOgo)
-1.  [【台湾有事への備え】激論！日本の防衛力の是非は？過去からの学び…自衛官の赤裸々告白【ReHacQ須賀川拓vs北川敬三】](/rehacq_fan/ids/PFGLitHhVHM "wikilink")
-    -   公開日: 2026-09-28
-    -   視聴数: 107,304
-    -   **いいね数: 469**
-    -   出演者: 北川敬三, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
-    - [![](https://img.youtube.com/vi/PFGLitHhVHM/hqdefault.jpg)](https://www.youtube.com/watch?v=PFGLitHhVHM)
 
