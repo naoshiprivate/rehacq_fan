@@ -322,8 +322,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
-    -   視聴数: 1,330,351
-    -   **いいね数: 30,823**
+    -   視聴数: 1,332,278
+    -   **いいね数: 30,808**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆきvs今野忍】聞きたいニュース！視聴者の質問に答えるニュース番組【ReHacQ高橋弘樹vs音喜多駿vs宇佐美典也】](/rehacq_fan/ids/uoeHYdsZR64 "wikilink")
     -   公開日: 2026-09-19
@@ -370,6 +370,11 @@
     -   視聴数: 1,261,329
     -   **いいね数: 17,225**
     -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 吉田あや, 川上りゅうせい, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
+    -   公開日: 2026-09-28
+    -   視聴数: 1,254,149
+    -   **いいね数: 8,451**
+    -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](/rehacq_fan/ids/CxDT2FaGi8o "wikilink")
     -   公開日: 2025-07-09
     -   視聴数: 1,251,090
@@ -395,11 +400,6 @@
     -   視聴数: 1,222,103
     -   **いいね数: 17,314**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
-    -   公開日: 2026-09-28
-    -   視聴数: 1,217,613
-    -   **いいね数: 8,319**
-    -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](/rehacq_fan/ids/xVW1qk9pj9s "wikilink")
     -   公開日: 2025-01-22
     -   視聴数: 1,216,820
