@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】8月、9月振り返り！新スタジオよりまったり雑談生配信【高橋弘樹】](https://www.youtube.com/watch?v=PFdySV2komA)
 [![](https://img.youtube.com/vi/PFdySV2komA/sddefault.jpg)](https://www.youtube.com/watch?v=PFdySV2komA)
 -   公開日: 2026-09-29
--   視聴数: 577,509
--   **いいね数: 3,010**
+-   視聴数: 578,649
+-   **いいね数: 3,011**
 -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

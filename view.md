@@ -195,6 +195,11 @@
     -   視聴数: 1,780,703
     -   **いいね数: 18,745**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/y0QYGfiKyj8 "wikilink")
+    -   公開日: 2025-12-22
+    -   視聴数: 1,745,235
+    -   **いいね数: 21,611**
+    -   出演者: 小林弘幸, [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
 1.  [【成田悠輔が推薦】宇宙と超弦理論！６歳にわかるように説明してみよう！【マルチバース】](/rehacq_fan/ids/4yiyaq0q6xQ "wikilink")
     -   公開日: 2024-03-09
     -   視聴数: 1,718,657
@@ -215,11 +220,6 @@
     -   視聴数: 1,678,535
     -   **いいね数: 21,559**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/y0QYGfiKyj8 "wikilink")
-    -   公開日: 2025-12-22
-    -   視聴数: 1,660,567
-    -   **いいね数: 21,052**
-    -   出演者: 小林弘幸, [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
 1.  [【坂上忍vsひろゆきvs箕輪厚介】炎上は恐れない！？芸歴56年…“ヒール”の流儀・生き様を語る！【ReHacQ】](/rehacq_fan/ids/FXER_XtqCkY "wikilink")
     -   公開日: 2026-05-03
     -   視聴数: 1,617,533
@@ -332,8 +332,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
     -   公開日: 2026-09-28
-    -   視聴数: 1,297,783
-    -   **いいね数: 8,801**
+    -   視聴数: 1,306,406
+    -   **いいね数: 8,897**
     -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [【緊急生配信】ちょっとだけ大切なお知らせ…兵庫県知事選に関して【神戸新聞さん…ランチしましょう】](/rehacq_fan/ids/0P-1c-mn2mc "wikilink")
     -   公開日: 2024-12-08
