@@ -1,6 +1,6 @@
 ### [【後藤達也vs今野忍】初対談！政治＆経済記者が高市内閣を徹底深掘り【ReHacQ】](https://www.youtube.com/watch?v=rcV7lBYsVHk)
 [![](https://img.youtube.com/vi/rcV7lBYsVHk/sddefault.jpg)](https://www.youtube.com/watch?v=rcV7lBYsVHk)
 -   公開日: 2026-10-01
--   視聴数: 490,838
--   **いいね数: 3,949**
+-   視聴数: 556,235
+-   **いいね数: 4,364**
 -   出演者: 
