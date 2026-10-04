@@ -27,8 +27,8 @@
     -   出演者: [西田尚史](/rehacq_fan/people/西田尚史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】共闘宣言!?自浄作用なき政治、改革するには？【高橋弘樹】](/rehacq_fan/ids/XKGshW6xD1k "wikilink")
     -   公開日: 2024-08-31
-    -   視聴数: 2,220,663
-    -   **いいね数: 38,155**
+    -   視聴数: 2,222,846
+    -   **いいね数: 38,163**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs玉木雄一郎】緊急生対談！国民民主党…これからの存在意義は？【高橋弘樹】](/rehacq_fan/ids/9_b3vH1wBP4 "wikilink")
     -   公開日: 2024-10-08
@@ -307,8 +307,8 @@
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】緊迫！石丸伸二が野党に激怒…今後のロードマップは？【高橋弘樹】](/rehacq_fan/ids/Lb9U4acxhs4 "wikilink")
     -   公開日: 2024-09-07
-    -   視聴数: 1,072,554
-    -   **いいね数: 19,207**
+    -   視聴数: 1,073,699
+    -   **いいね数: 19,220**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs呉座勇一】戦国時代のウソ！豊臣秀吉の正体とは？歴史に騙されない方法【ReHacQvs織田信長の真実】](/rehacq_fan/ids/H6ZVuj7IGOM "wikilink")
     -   公開日: 2025-12-18
@@ -325,6 +325,11 @@
     -   視聴数: 1,787,996
     -   **いいね数: 18,894**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【石丸伸二が唖然】結婚報告東出昌大！衝撃告白…幸せな人生とは？【世界の果てに、東出・ひろゆき置いてきた】](/rehacq_fan/ids/8xFzx_lOouI "wikilink")
+    -   公開日: 2024-08-27
+    -   視聴数: 909,894
+    -   **いいね数: 18,811**
+    -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆきvs国民民主党】衝撃的!日本倍増計画とは?【玉木雄一郎の野望 episode2】](/rehacq_fan/ids/EYKExpig3-4 "wikilink")
     -   公開日: 2023-05-28
     -   視聴数: 1,152,303
@@ -340,11 +345,6 @@
     -   視聴数: 1,294,112
     -   **いいね数: 18,798**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【石丸伸二が唖然】結婚報告東出昌大！衝撃告白…幸せな人生とは？【世界の果てに、東出・ひろゆき置いてきた】](/rehacq_fan/ids/8xFzx_lOouI "wikilink")
-    -   公開日: 2024-08-27
-    -   視聴数: 906,517
-    -   **いいね数: 18,793**
-    -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆきvs後藤達也】ReHacQスタート！緊急生配信【日経テレ東大学、超えるには？】](/rehacq_fan/ids/qUU0-PC6yyk "wikilink")
     -   公開日: 2023-03-05
     -   視聴数: 818,834

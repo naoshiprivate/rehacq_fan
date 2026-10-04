@@ -107,8 +107,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs吉村洋文】共闘宣言!?自浄作用なき政治、改革するには？【高橋弘樹】](/rehacq_fan/ids/XKGshW6xD1k "wikilink")
     -   公開日: 2024-08-31
-    -   視聴数: 2,220,663
-    -   **いいね数: 38,155**
+    -   視聴数: 2,222,846
+    -   **いいね数: 38,163**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
     -   公開日: 2025-08-09
@@ -225,16 +225,16 @@
     -   視聴数: 1,617,533
     -   **いいね数: 16,492**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
+1.  [【ReHacQvs犯罪心理学者】子育ての勘違い！非行少年が生まれる原因は親！？正しい親子関係と子供を救う言葉とは【出口保行&尾崎里紗】](/rehacq_fan/ids/ECHidEuUJNs "wikilink")
+    -   公開日: 2026-03-14
+    -   視聴数: 1,605,375
+    -   **いいね数: 14,713**
+    -   出演者: 出口保行, [尾崎里紗](/rehacq_fan/people/尾崎里紗 "wikilink")
 1.  [【呉座勇一vs高橋弘樹】秀吉は光秀なぜ打てた？衝撃のラッキーパンチ！歴史の罠【 ReHacQ戦国時代】](/rehacq_fan/ids/QkOnCrQTkE0 "wikilink")
     -   公開日: 2025-12-25
     -   視聴数: 1,587,086
     -   **いいね数: 11,777**
     -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ReHacQvs犯罪心理学者】子育ての勘違い！非行少年が生まれる原因は親！？正しい親子関係と子供を救う言葉とは【出口保行&尾崎里紗】](/rehacq_fan/ids/ECHidEuUJNs "wikilink")
-    -   公開日: 2026-03-14
-    -   視聴数: 1,585,721
-    -   **いいね数: 14,501**
-    -   出演者: 出口保行, [尾崎里紗](/rehacq_fan/people/尾崎里紗 "wikilink")
 1.  [【石丸伸二vs会見入れなかったジャーナリスト】前代未聞の激論…なぜ？取材会見時のジャーナリスト制限に関して【ひろゆきvs横田一vs西田亮介vs箕輪厚介vs高橋弘樹ReHacQ】](/rehacq_fan/ids/23N6ICQ55-c "wikilink")
     -   公開日: 2025-01-16
     -   視聴数: 1,584,077
@@ -277,8 +277,8 @@
     -   出演者: [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
     -   公開日: 2026-09-28
-    -   視聴数: 1,470,081
-    -   **いいね数: 9,655**
+    -   視聴数: 1,477,429
+    -   **いいね数: 9,690**
     -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [【後藤達也！投資ガチ議論】パックン！アメリカ金融教育とは？【長期投資】](/rehacq_fan/ids/DnaUPmvmoHU "wikilink")
     -   公開日: 2023-11-30
@@ -450,6 +450,11 @@
     -   視聴数: 1,170,345
     -   **いいね数: 10,709**
     -   出演者: [小泉悠](/rehacq_fan/people/小泉悠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vsヤバい日本史】もっと歴史が好きになる！紫式部の性格は最悪？豊臣秀吉の裏の顔とは？【ReHacQvs本郷和人】](/rehacq_fan/ids/IIrCRGp9RCI "wikilink")
+    -   公開日: 2026-06-29
+    -   視聴数: 1,166,526
+    -   **いいね数: 8,869**
+    -   出演者: [本郷和人](/rehacq_fan/people/本郷和人 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
     -   公開日: 2023-11-01
     -   視聴数: 1,164,978
@@ -495,8 +500,3 @@
     -   視聴数: 1,137,373
     -   **いいね数: 11,167**
     -   出演者: 澤木一貴, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
-1.  [【ReHacQ緊急生配信】最新AIモデル「ミュトス」とは？危険性やリスク...日本のサイバーセキュリティの未来【塩崎彰久vs安野貴博vs今井翔太vs今野忍vs高橋弘樹】](/rehacq_fan/ids/JOz77X5Yh8I "wikilink")
-    -   公開日: 2026-04-24
-    -   視聴数: 1,136,494
-    -   **いいね数: 10,828**
-    -   出演者: [今井翔太](/rehacq_fan/people/今井翔太 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 塩崎彰久, [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
