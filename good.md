@@ -215,16 +215,16 @@
     -   視聴数: 629,919
     -   **いいね数: 21,778**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
+    -   公開日: 2025-08-09
+    -   視聴数: 2,143,109
+    -   **いいね数: 21,638**
+    -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/y0QYGfiKyj8 "wikilink")
     -   公開日: 2025-12-22
     -   視聴数: 1,745,235
     -   **いいね数: 21,611**
     -   出演者: 小林弘幸, [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
-1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
-    -   公開日: 2025-08-09
-    -   視聴数: 2,093,667
-    -   **いいね数: 21,573**
-    -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【国民民主vsひろゆき】全部言う！玉木氏が衝撃告白！参院選で重大発表【ReHacQ高橋弘樹】](/rehacq_fan/ids/3WIDjkmg6xY "wikilink")
     -   公開日: 2025-02-02
     -   視聴数: 1,678,535
@@ -257,8 +257,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮沢洋一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【高橋弘樹vs 斎藤知事に激怒の議員】兵庫県告発文書！百条委員会の委員長の本音【ReHacQ】](/rehacq_fan/ids/uY0Jmw4wR7Y "wikilink")
     -   公開日: 2024-10-04
-    -   視聴数: 1,717,607
-    -   **いいね数: 21,144**
+    -   視聴数: 1,719,211
+    -   **いいね数: 21,149**
     -   出演者: 奥谷謙一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【金美齢vs高橋弘樹】激白！安倍晋三の知られざる素顔...総裁選の裏話とは？石破茂に激怒！一体なぜ？【ReHacQ】](/rehacq_fan/ids/mSI7MFp4pAE "wikilink")
     -   公開日: 2026-02-12

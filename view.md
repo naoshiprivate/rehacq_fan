@@ -110,6 +110,11 @@
     -   視聴数: 2,220,663
     -   **いいね数: 38,155**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
+    -   公開日: 2025-08-09
+    -   視聴数: 2,143,109
+    -   **いいね数: 21,638**
+    -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsデヴィ夫人】激怒‥国家観なき政治家は去れ？！ガチ放談【リハックマ】](/rehacq_fan/ids/XJbgK1m8j2Q "wikilink")
     -   公開日: 2024-06-23
     -   視聴数: 2,138,951
@@ -120,11 +125,6 @@
     -   視聴数: 2,128,456
     -   **いいね数: 26,529**
     -   出演者: [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
-    -   公開日: 2025-08-09
-    -   視聴数: 2,093,667
-    -   **いいね数: 21,573**
-    -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【岡田斗司夫vs後藤達也】ひろゆきとホリエモンも尊敬！価値観が変わる「評価経済社会」とは【緊急出演】](/rehacq_fan/ids/oHDV4qfKJSw "wikilink")
     -   公開日: 2024-08-08
     -   視聴数: 2,021,695
@@ -200,16 +200,16 @@
     -   視聴数: 1,745,235
     -   **いいね数: 21,611**
     -   出演者: 小林弘幸, [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
+1.  [【高橋弘樹vs 斎藤知事に激怒の議員】兵庫県告発文書！百条委員会の委員長の本音【ReHacQ】](/rehacq_fan/ids/uY0Jmw4wR7Y "wikilink")
+    -   公開日: 2024-10-04
+    -   視聴数: 1,719,211
+    -   **いいね数: 21,149**
+    -   出演者: 奥谷謙一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦】宇宙と超弦理論！６歳にわかるように説明してみよう！【マルチバース】](/rehacq_fan/ids/4yiyaq0q6xQ "wikilink")
     -   公開日: 2024-03-09
     -   視聴数: 1,718,657
     -   **いいね数: 16,792**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs 斎藤知事に激怒の議員】兵庫県告発文書！百条委員会の委員長の本音【ReHacQ】](/rehacq_fan/ids/uY0Jmw4wR7Y "wikilink")
-    -   公開日: 2024-10-04
-    -   視聴数: 1,717,607
-    -   **いいね数: 21,144**
-    -   出演者: 奥谷謙一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](/rehacq_fan/ids/CepOZXVtsCo "wikilink")
     -   公開日: 2023-10-25
     -   視聴数: 1,709,287
@@ -297,8 +297,8 @@
     -   出演者: 山上信吾, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
     -   公開日: 2026-09-28
-    -   視聴数: 1,439,052
-    -   **いいね数: 9,490**
+    -   視聴数: 1,447,349
+    -   **いいね数: 9,540**
     -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [東京都知事選2024！公開討論会【小池百合子vs石丸伸二vs田母神俊雄vs蓮舫】](/rehacq_fan/ids/QoFBeE9_9n4 "wikilink")
     -   公開日: 2024-06-24
