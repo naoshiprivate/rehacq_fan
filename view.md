@@ -277,8 +277,8 @@
     -   出演者: [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
     -   公開日: 2026-09-28
-    -   視聴数: 1,477,429
-    -   **いいね数: 9,690**
+    -   視聴数: 1,482,430
+    -   **いいね数: 9,716**
     -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [【後藤達也！投資ガチ議論】パックン！アメリカ金融教育とは？【長期投資】](/rehacq_fan/ids/DnaUPmvmoHU "wikilink")
     -   公開日: 2023-11-30
