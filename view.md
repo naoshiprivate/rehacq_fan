@@ -275,6 +275,11 @@
     -   視聴数: 1,497,645
     -   **いいね数: 8,273**
     -   出演者: [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
+    -   公開日: 2026-09-28
+    -   視聴数: 1,470,081
+    -   **いいね数: 9,655**
+    -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [【後藤達也！投資ガチ議論】パックン！アメリカ金融教育とは？【長期投資】](/rehacq_fan/ids/DnaUPmvmoHU "wikilink")
     -   公開日: 2023-11-30
     -   視聴数: 1,469,377
@@ -295,11 +300,6 @@
     -   視聴数: 1,462,378
     -   **いいね数: 22,188**
     -   出演者: 山上信吾, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
-    -   公開日: 2026-09-28
-    -   視聴数: 1,449,337
-    -   **いいね数: 9,553**
-    -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [東京都知事選2024！公開討論会【小池百合子vs石丸伸二vs田母神俊雄vs蓮舫】](/rehacq_fan/ids/QoFBeE9_9n4 "wikilink")
     -   公開日: 2024-06-24
     -   視聴数: 1,437,804
