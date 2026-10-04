@@ -297,8 +297,8 @@
     -   出演者: 山上信吾, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
     -   公開日: 2026-09-28
-    -   視聴数: 1,447,349
-    -   **いいね数: 9,540**
+    -   視聴数: 1,449,337
+    -   **いいね数: 9,553**
     -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [東京都知事選2024！公開討論会【小池百合子vs石丸伸二vs田母神俊雄vs蓮舫】](/rehacq_fan/ids/QoFBeE9_9n4 "wikilink")
     -   公開日: 2024-06-24
@@ -347,8 +347,8 @@
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs銀行の元上司】半沢直樹か否か…銀行時代、上司を詰めた理由とは？【高橋弘樹】](/rehacq_fan/ids/9Ost8DSs1uU "wikilink")
     -   公開日: 2024-09-14
-    -   視聴数: 1,289,597
-    -   **いいね数: 18,786**
+    -   視聴数: 1,294,112
+    -   **いいね数: 18,798**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](/rehacq_fan/ids/v6K85s-g9Oc "wikilink")
     -   公開日: 2025-02-05
