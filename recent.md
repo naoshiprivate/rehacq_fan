@@ -1,31 +1,31 @@
 1.  [【後藤達也vs今野忍②】日銀利上げの真実…適切な為替水準とは【ReHacQ】](/rehacq_fan/ids/VhkHBQJ284 "wikilink")
     -   公開日: 2026-10-08
-    -   視聴数: 62,445
-    -   **いいね数: 1,570**
+    -   視聴数: 194,163
+    -   **いいね数: 2,474**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_VhkHBQJ284/hqdefault.jpg)](https://www.youtube.com/watch?v=_VhkHBQJ284)
 1.  [【今野忍vs政党交付金】なぜ政党交付金必要？税の正しい使い道【ReHacQvs浅尾慶一郎】](/rehacq_fan/ids/lCLXIgQTANw "wikilink")
     -   公開日: 2026-10-08
-    -   視聴数: 60,430
-    -   **いいね数: 417**
+    -   視聴数: 80,128
+    -   **いいね数: 498**
     -   出演者: 
     - [![](https://img.youtube.com/vi/lCLXIgQTANw/hqdefault.jpg)](https://www.youtube.com/watch?v=lCLXIgQTANw)
 1.  [【ReHacQ生配信】あつまれ！害虫の森！まったり緊急生配信【今野忍vs箕輪厚介vs西田亮介vs高橋弘樹】](/rehacq_fan/ids/2rkuD_DeerM "wikilink")
     -   公開日: 2026-10-07
-    -   視聴数: 558,678
-    -   **いいね数: 4,391**
+    -   視聴数: 601,911
+    -   **いいね数: 4,567**
     -   出演者: 
     - [![](https://img.youtube.com/vi/2rkuD_DeerM/hqdefault.jpg)](https://www.youtube.com/watch?v=2rkuD_DeerM)
 1.  [【ReHacQ生配信】ReHacQ新潟始動！まったり緊急生配信【箕輪厚介&高橋弘樹】](/rehacq_fan/ids/ZrfUbbQL8CE "wikilink")
     -   公開日: 2026-10-07
-    -   視聴数: 212,301
-    -   **いいね数: 1,624**
+    -   視聴数: 218,559
+    -   **いいね数: 1,655**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ZrfUbbQL8CE/hqdefault.jpg)](https://www.youtube.com/watch?v=ZrfUbbQL8CE)
 1.  [【須賀川拓vs辞め三菱商事】総合商社&マッキンゼー辞め...なぜアメリカで起業？水産業界に革命起こせ！【ReHacQvs松岡裕大】](/rehacq_fan/ids/pP8oWocn5_Y "wikilink")
     -   公開日: 2026-10-07
-    -   視聴数: 52,752
-    -   **いいね数: 171**
+    -   視聴数: 54,830
+    -   **いいね数: 174**
     -   出演者: 
     - [![](https://img.youtube.com/vi/pP8oWocn5_Y/hqdefault.jpg)](https://www.youtube.com/watch?v=pP8oWocn5_Y)
 

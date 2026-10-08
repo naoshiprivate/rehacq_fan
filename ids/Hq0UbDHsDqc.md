@@ -1,6 +1,6 @@
 ### [【田原総一朗vs格闘家】人を熱狂させるには？批判にどう立ち向かう？【ReHacQvs青木真也】](https://www.youtube.com/watch?v=Hq0UbDHsDqc)
 [![](https://img.youtube.com/vi/Hq0UbDHsDqc/sddefault.jpg)](https://www.youtube.com/watch?v=Hq0UbDHsDqc)
 -   公開日: 2026-10-05
--   視聴数: 181,709
--   **いいね数: 1,006**
+-   視聴数: 184,535
+-   **いいね数: 1,012**
 -   出演者: 
