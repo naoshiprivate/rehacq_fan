@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】あつまれ！害虫の森！まったり緊急生配信【今野忍vs箕輪厚介vs西田亮介vs高橋弘樹】](https://www.youtube.com/watch?v=2rkuD_DeerM)
 [![](https://img.youtube.com/vi/2rkuD_DeerM/sddefault.jpg)](https://www.youtube.com/watch?v=2rkuD_DeerM)
 -   公開日: 2026-10-07
--   視聴数: 500,774
--   **いいね数: 3,977**
+-   視聴数: 527,059
+-   **いいね数: 4,207**
 -   出演者: 
