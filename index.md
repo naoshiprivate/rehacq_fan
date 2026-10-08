@@ -1,53 +1,59 @@
 # ReHacQ 最近の動画
-1.  [【ReHacQ生配信】あつまれ！害虫の森！まったり緊急生配信【箕輪厚介&高橋弘樹】](/rehacq_fan/ids/2rkuD_DeerM "wikilink")
+1.  [【今野忍vs政党交付金】なぜ政党交付金必要？税の正しい使い道【ReHacQvs浅尾慶一郎】](/rehacq_fan/ids/lCLXIgQTANw "wikilink")
+    -   公開日: 2026-10-08
+    -   視聴数: 7,544
+    -   **いいね数: 251**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/lCLXIgQTANw/hqdefault.jpg)](https://www.youtube.com/watch?v=lCLXIgQTANw)
+1.  [【ReHacQ生配信】あつまれ！害虫の森！まったり緊急生配信【今野忍vs箕輪厚介vs西田亮介vs高橋弘樹】](/rehacq_fan/ids/2rkuD_DeerM "wikilink")
     -   公開日: 2026-10-07
-    -   視聴数: 404,980
-    -   **いいね数: 3,161**
+    -   視聴数: 500,774
+    -   **いいね数: 3,977**
     -   出演者: 
     - [![](https://img.youtube.com/vi/2rkuD_DeerM/hqdefault.jpg)](https://www.youtube.com/watch?v=2rkuD_DeerM)
 1.  [【ReHacQ生配信】ReHacQ新潟始動！まったり緊急生配信【箕輪厚介&高橋弘樹】](/rehacq_fan/ids/ZrfUbbQL8CE "wikilink")
     -   公開日: 2026-10-07
-    -   視聴数: 179,650
-    -   **いいね数: 1,404**
+    -   視聴数: 199,844
+    -   **いいね数: 1,576**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ZrfUbbQL8CE/hqdefault.jpg)](https://www.youtube.com/watch?v=ZrfUbbQL8CE)
 1.  [【須賀川拓vs辞め三菱商事】総合商社&マッキンゼー辞め...なぜアメリカで起業？水産業界に革命起こせ！【ReHacQvs松岡裕大】](/rehacq_fan/ids/pP8oWocn5_Y "wikilink")
     -   公開日: 2026-10-07
-    -   視聴数: 45,870
-    -   **いいね数: 145**
+    -   視聴数: 49,843
+    -   **いいね数: 163**
     -   出演者: 
     - [![](https://img.youtube.com/vi/pP8oWocn5_Y/hqdefault.jpg)](https://www.youtube.com/watch?v=pP8oWocn5_Y)
 1.  [【RehacQ生配信】テレ東を電撃退社...なぜ辞めた？新たな野望とは？【高橋弘樹vs阿部欣司】](/rehacq_fan/ids/drr01W9sxos "wikilink")
     -   公開日: 2026-10-06
-    -   視聴数: 435,124
-    -   **いいね数: 2,912**
+    -   視聴数: 446,798
+    -   **いいね数: 2,979**
     -   出演者: 
     - [![](https://img.youtube.com/vi/drr01W9sxos/hqdefault.jpg)](https://www.youtube.com/watch?v=drr01W9sxos)
-1.  [【高橋弘樹vs秦始皇帝】新解釈キングダム！春秋戦国時代の史記はウソ！？秦王・嬴政の正体とは？史実での李信とは？【ReHacQvs鶴間和幸】](/rehacq_fan/ids/vutUxeLPgTg "wikilink")
-    -   公開日: 2026-10-06
-    -   視聴数: 417,810
-    -   **いいね数: 1,986**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/vutUxeLPgTg/hqdefault.jpg)](https://www.youtube.com/watch?v=vutUxeLPgTg)
 
 # ReHacQの人気動画
 ## 最近の人気動画
+1.  [【ReHacQ生配信】あつまれ！害虫の森！まったり緊急生配信【今野忍vs箕輪厚介vs西田亮介vs高橋弘樹】](/rehacq_fan/ids/2rkuD_DeerM "wikilink")
+    -   公開日: 2026-10-07
+    -   視聴数: 500,774
+    -   **いいね数: 3,977**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/2rkuD_DeerM/hqdefault.jpg)](https://www.youtube.com/watch?v=2rkuD_DeerM)
 1.  [【首都直下型地震】完全解説！衝撃の被害規模は？72時間生き残るためどうする？今できることは...【ReHacQ東出昌大vs平田直】](/rehacq_fan/ids/dkhoQqy4zbA "wikilink")
     -   公開日: 2026-10-04
-    -   視聴数: 535,962
-    -   **いいね数: 1,782**
+    -   視聴数: 546,797
+    -   **いいね数: 1,818**
     -   出演者: 平田直, [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
     - [![](https://img.youtube.com/vi/dkhoQqy4zbA/hqdefault.jpg)](https://www.youtube.com/watch?v=dkhoQqy4zbA)
 1.  [【今野忍vs中室牧子】聞きたいニュース！簗大臣の音声…立民本部縮小へ…視聴者の質問に答えるニュース番組【ReHacQ】](/rehacq_fan/ids/K76sI5utlcM "wikilink")
     -   公開日: 2026-10-03
-    -   視聴数: 531,948
-    -   **いいね数: 2,990**
+    -   視聴数: 534,552
+    -   **いいね数: 2,999**
     -   出演者: [中室牧子](/rehacq_fan/people/中室牧子 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink")
     - [![](https://img.youtube.com/vi/K76sI5utlcM/hqdefault.jpg)](https://www.youtube.com/watch?v=K76sI5utlcM)
 1.  [【後藤達也vs今野忍】初対談！政治＆経済記者が高市内閣を徹底深掘り【ReHacQ】](/rehacq_fan/ids/rcV7lBYsVHk "wikilink")
     -   公開日: 2026-10-01
-    -   視聴数: 812,800
-    -   **いいね数: 5,580**
+    -   視聴数: 816,401
+    -   **いいね数: 5,592**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
     - [![](https://img.youtube.com/vi/rcV7lBYsVHk/hqdefault.jpg)](https://www.youtube.com/watch?v=rcV7lBYsVHk)
 1.  [【ReHacQ生配信】8月、9月振り返り！新スタジオよりまったり雑談生配信【高橋弘樹】](/rehacq_fan/ids/PFdySV2komA "wikilink")
@@ -56,12 +62,6 @@
     -   **いいね数: 3,136**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/PFdySV2komA/hqdefault.jpg)](https://www.youtube.com/watch?v=PFdySV2komA)
-1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
-    -   公開日: 2026-09-28
-    -   視聴数: 1,580,353
-    -   **いいね数: 10,212**
-    -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
-    - [![](https://img.youtube.com/vi/ZMij1z4NOgo/hqdefault.jpg)](https://www.youtube.com/watch?v=ZMij1z4NOgo)
 
 # データ
 ## 出演者別エンゲージメント
@@ -76,11 +76,11 @@
 ## 時系列データ
 #### [2026年10月](videos/202610 "wikilink")
 
--   動画数: 17, 視聴数: 6,197,534, いいね数: 38,003
+-   動画数: 18, 視聴数: 6,435,651, いいね数: 39,894
 
 #### [2026年09月](videos/202609 "wikilink")
 
--   動画数: 76, 視聴数: 26,166,929, いいね数: 157,529
+-   動画数: 76, 視聴数: 26,167,460, いいね数: 157,535
 
 #### [2026年08月](videos/202608 "wikilink")
 
@@ -100,11 +100,11 @@
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 26,547,686, いいね数: 384,111
+-   動画数: 96, 視聴数: 26,548,128, いいね数: 384,111
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 24,482,379, いいね数: 299,326
+-   動画数: 89, 視聴数: 24,484,062, いいね数: 299,344
 
 #### [2026年02月](videos/202602 "wikilink")
 
@@ -116,7 +116,7 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 20,401,914, いいね数: 229,796
+-   動画数: 83, 視聴数: 20,404,436, いいね数: 229,798
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -124,7 +124,7 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 26,893,913, いいね数: 364,788
+-   動画数: 102, 視聴数: 26,894,094, いいね数: 364,788
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -136,11 +136,11 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 23,931,056, いいね数: 388,861
+-   動画数: 76, 視聴数: 23,931,124, いいね数: 388,861
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 19,450,247, いいね数: 329,189
+-   動画数: 78, 視聴数: 19,450,457, いいね数: 329,190
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -172,7 +172,7 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,637,408, いいね数: 344,717
+-   動画数: 72, 視聴数: 23,643,131, いいね数: 344,715
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -251,4 +251,4 @@
 -   動画数: 14, 視聴数: 8,386,704, いいね数: 142,336
 
 ---
-2026-10-08 13:15
+2026-10-08 20:15
