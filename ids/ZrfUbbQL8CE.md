@@ -1,6 +1,6 @@
 ### [【ReHacQ生配信】ReHacQ新潟始動！まったり緊急生配信【箕輪厚介&高橋弘樹】](https://www.youtube.com/watch?v=ZrfUbbQL8CE)
 [![](https://img.youtube.com/vi/ZrfUbbQL8CE/sddefault.jpg)](https://www.youtube.com/watch?v=ZrfUbbQL8CE)
 -   公開日: 2026-10-07
--   視聴数: 218,559
--   **いいね数: 1,655**
+-   視聴数: 222,778
+-   **いいね数: 1,682**
 -   出演者: 
