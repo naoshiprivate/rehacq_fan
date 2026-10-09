@@ -1,6 +1,6 @@
 ### [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](https://www.youtube.com/watch?v=hio2XdBPW5Y)
 [![](https://img.youtube.com/vi/hio2XdBPW5Y/sddefault.jpg)](https://www.youtube.com/watch?v=hio2XdBPW5Y)
 -   公開日: 2024-02-24
--   視聴数: 3,167,160
--   **いいね数: 28,474**
+-   視聴数: 3,215,213
+-   **いいね数: 28,640**
 -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
