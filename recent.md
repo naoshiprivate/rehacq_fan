@@ -1,31 +1,31 @@
+1.  [【ReHacQ討論会】兵庫県川西市長選挙ネット討論会【高橋弘樹vs越田けんじろう】](/rehacq_fan/ids/HS54Z_LysS0 "wikilink")
+    -   公開日: 2026-10-09
+    -   視聴数: 1,697
+    -   **いいね数: 68**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/HS54Z_LysS0/hqdefault.jpg)](https://www.youtube.com/watch?v=HS54Z_LysS0)
 1.  [【後藤達也vs今野忍②】日銀利上げの真実…適切な為替水準とは【ReHacQ】](/rehacq_fan/ids/VhkHBQJ284 "wikilink")
     -   公開日: 2026-10-08
-    -   視聴数: 257,859
-    -   **いいね数: 3,506**
+    -   視聴数: 268,236
+    -   **いいね数: 3,688**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_VhkHBQJ284/hqdefault.jpg)](https://www.youtube.com/watch?v=_VhkHBQJ284)
 1.  [【今野忍vs政党交付金】なぜ政党交付金必要？税の正しい使い道【ReHacQvs浅尾慶一郎】](/rehacq_fan/ids/lCLXIgQTANw "wikilink")
     -   公開日: 2026-10-08
-    -   視聴数: 87,948
-    -   **いいね数: 583**
+    -   視聴数: 89,239
+    -   **いいね数: 600**
     -   出演者: 
     - [![](https://img.youtube.com/vi/lCLXIgQTANw/hqdefault.jpg)](https://www.youtube.com/watch?v=lCLXIgQTANw)
 1.  [【ReHacQ生配信】あつまれ！害虫の森！まったり緊急生配信【今野忍vs箕輪厚介vs西田亮介vs高橋弘樹】](/rehacq_fan/ids/2rkuD_DeerM "wikilink")
     -   公開日: 2026-10-07
-    -   視聴数: 622,108
-    -   **いいね数: 4,732**
+    -   視聴数: 625,643
+    -   **いいね数: 4,767**
     -   出演者: 
     - [![](https://img.youtube.com/vi/2rkuD_DeerM/hqdefault.jpg)](https://www.youtube.com/watch?v=2rkuD_DeerM)
 1.  [【ReHacQ生配信】ReHacQ新潟始動！まったり緊急生配信【箕輪厚介&高橋弘樹】](/rehacq_fan/ids/ZrfUbbQL8CE "wikilink")
     -   公開日: 2026-10-07
-    -   視聴数: 222,778
-    -   **いいね数: 1,682**
+    -   視聴数: 223,483
+    -   **いいね数: 1,690**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ZrfUbbQL8CE/hqdefault.jpg)](https://www.youtube.com/watch?v=ZrfUbbQL8CE)
-1.  [【須賀川拓vs辞め三菱商事】総合商社&マッキンゼー辞め...なぜアメリカで起業？水産業界に革命起こせ！【ReHacQvs松岡裕大】](/rehacq_fan/ids/pP8oWocn5_Y "wikilink")
-    -   公開日: 2026-10-07
-    -   視聴数: 56,027
-    -   **いいね数: 178**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/pP8oWocn5_Y/hqdefault.jpg)](https://www.youtube.com/watch?v=pP8oWocn5_Y)
 
