@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【ReHacQ討論会】神奈川県横浜市長選挙ネット討論会【高橋弘樹vs藤川さちこvs山中竹春vs中谷一馬vs原沢あつみvs福山あつしvs山本理顕vsあさか由香】](/rehacq_fan/ids/y4SsW9c-gSI "wikilink")
     -   公開日: 2026-10-10
-    -   視聴数: 230,033
-    -   **いいね数: 1,589**
+    -   視聴数: 369,797
+    -   **いいね数: 1,967**
     -   出演者: 
     - [![](https://img.youtube.com/vi/y4SsW9c-gSI/hqdefault.jpg)](https://www.youtube.com/watch?v=y4SsW9c-gSI)
 1.  [【高橋弘樹vs世界の仮面】「死者の魂」が仮面になって現れる！？アフリカ・ザンビア社会の驚くべき世界観【ReHacQvs吉田憲司】](/rehacq_fan/ids/fL_7XFvTyfQ "wikilink")
     -   公開日: 2026-10-10
-    -   視聴数: 38,325
-    -   **いいね数: 141**
+    -   視聴数: 52,558
+    -   **いいね数: 183**
     -   出演者: 
     - [![](https://img.youtube.com/vi/fL_7XFvTyfQ/hqdefault.jpg)](https://www.youtube.com/watch?v=fL_7XFvTyfQ)
 1.  [【スーツ・ベテランちvs国学研究者】「いつでも死ぬ覚悟」Z世代に届けたい衝撃人生観...スーツがYouTubeを続けるワケ【ReHacQvs石橋直樹】](/rehacq_fan/ids/S9I4-_xVfTY "wikilink")
     -   公開日: 2026-10-10
-    -   視聴数: 91,893
-    -   **いいね数: 902**
+    -   視聴数: 108,773
+    -   **いいね数: 1,009**
     -   出演者: 
     - [![](https://img.youtube.com/vi/S9I4-_xVfTY/hqdefault.jpg)](https://www.youtube.com/watch?v=S9I4-_xVfTY)
 1.  [【今野忍vs黒岩里奈】聞きたいニュース！視聴者の質問に答えるニュース番組【ReHacQ高橋弘樹vs音喜多駿】](/rehacq_fan/ids/3oSxgd8c2Ok "wikilink")
     -   公開日: 2026-10-09
-    -   視聴数: 529,361
-    -   **いいね数: 3,108**
+    -   視聴数: 558,350
+    -   **いいね数: 3,198**
     -   出演者: 
     - [![](https://img.youtube.com/vi/3oSxgd8c2Ok/hqdefault.jpg)](https://www.youtube.com/watch?v=3oSxgd8c2Ok)
 1.  [【婚活vs資産1億円】年収よりも金銭感覚が大事？節約は結婚の武器か否か！？【節約YouTuberくらま＆森本智子＆東留伽&ReHacQ】](/rehacq_fan/ids/OC-NNnwjxD8 "wikilink")
     -   公開日: 2026-10-09
-    -   視聴数: 157,121
-    -   **いいね数: 764**
+    -   視聴数: 164,069
+    -   **いいね数: 782**
     -   出演者: 
     - [![](https://img.youtube.com/vi/OC-NNnwjxD8/hqdefault.jpg)](https://www.youtube.com/watch?v=OC-NNnwjxD8)
 
@@ -34,34 +34,34 @@
 ## 最近の人気動画
 1.  [【今野忍vs黒岩里奈】聞きたいニュース！視聴者の質問に答えるニュース番組【ReHacQ高橋弘樹vs音喜多駿】](/rehacq_fan/ids/3oSxgd8c2Ok "wikilink")
     -   公開日: 2026-10-09
-    -   視聴数: 529,361
-    -   **いいね数: 3,108**
+    -   視聴数: 558,350
+    -   **いいね数: 3,198**
     -   出演者: 
     - [![](https://img.youtube.com/vi/3oSxgd8c2Ok/hqdefault.jpg)](https://www.youtube.com/watch?v=3oSxgd8c2Ok)
+1.  [【後藤達也vs今野忍②】日銀利上げの真実…適切な為替水準とは【ReHacQ】](/rehacq_fan/ids/VhkHBQJ284 "wikilink")
+    -   公開日: 2026-10-08
+    -   視聴数: 512,241
+    -   **いいね数: 6,052**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/_VhkHBQJ284/hqdefault.jpg)](https://www.youtube.com/watch?v=_VhkHBQJ284)
 1.  [【ReHacQ生配信】あつまれ！害虫の森！まったり緊急生配信【今野忍vs箕輪厚介vs西田亮介vs高橋弘樹】](/rehacq_fan/ids/2rkuD_DeerM "wikilink")
     -   公開日: 2026-10-07
-    -   視聴数: 707,437
-    -   **いいね数: 5,278**
+    -   視聴数: 715,550
+    -   **いいね数: 5,310**
     -   出演者: 
     - [![](https://img.youtube.com/vi/2rkuD_DeerM/hqdefault.jpg)](https://www.youtube.com/watch?v=2rkuD_DeerM)
 1.  [【高橋弘樹vs秦始皇帝】新解釈キングダム！春秋戦国時代の史記はウソ！？秦王・嬴政の正体とは？史実での李信とは？【ReHacQvs鶴間和幸】](/rehacq_fan/ids/vutUxeLPgTg "wikilink")
     -   公開日: 2026-10-06
-    -   視聴数: 632,847
-    -   **いいね数: 2,699**
+    -   視聴数: 652,528
+    -   **いいね数: 2,745**
     -   出演者: 
     - [![](https://img.youtube.com/vi/vutUxeLPgTg/hqdefault.jpg)](https://www.youtube.com/watch?v=vutUxeLPgTg)
 1.  [【壇蜜vs田中渓】結婚はギャンブル！？…逆プロポーズのきっかけと意外な私生活とは？【ReHacQ】](/rehacq_fan/ids/B0Dec07XGh0 "wikilink")
     -   公開日: 2026-10-05
-    -   視聴数: 500,420
-    -   **いいね数: 4,558**
+    -   視聴数: 503,923
+    -   **いいね数: 4,576**
     -   出演者: 
     - [![](https://img.youtube.com/vi/B0Dec07XGh0/hqdefault.jpg)](https://www.youtube.com/watch?v=B0Dec07XGh0)
-1.  [【首都直下型地震】完全解説！衝撃の被害規模は？72時間生き残るためどうする？今できることは...【ReHacQ東出昌大vs平田直】](/rehacq_fan/ids/dkhoQqy4zbA "wikilink")
-    -   公開日: 2026-10-04
-    -   視聴数: 597,486
-    -   **いいね数: 1,943**
-    -   出演者: 平田直, [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
-    - [![](https://img.youtube.com/vi/dkhoQqy4zbA/hqdefault.jpg)](https://www.youtube.com/watch?v=dkhoQqy4zbA)
 
 # データ
 ## 出演者別エンゲージメント
@@ -76,7 +76,7 @@
 ## 時系列データ
 #### [2026年10月](videos/202610 "wikilink")
 
--   動画数: 25, 視聴数: 8,909,205, いいね数: 57,000
+-   動画数: 25, 視聴数: 9,196,086, いいね数: 57,900
 
 #### [2026年09月](videos/202609 "wikilink")
 
@@ -84,19 +84,19 @@
 
 #### [2026年08月](videos/202608 "wikilink")
 
--   動画数: 85, 視聴数: 21,155,786, いいね数: 217,907
+-   動画数: 85, 視聴数: 21,157,466, いいね数: 217,909
 
 #### [2026年07月](videos/202607 "wikilink")
 
--   動画数: 96, 視聴数: 14,825,817, いいね数: 216,864
+-   動画数: 96, 視聴数: 14,826,804, いいね数: 216,871
 
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 92, 視聴数: 17,839,974, いいね数: 223,856
+-   動画数: 92, 視聴数: 17,840,672, いいね数: 223,872
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 27,457,291, いいね数: 416,545
+-   動画数: 111, 視聴数: 27,461,151, いいね数: 416,553
 
 #### [2026年04月](videos/202604 "wikilink")
 
@@ -104,7 +104,7 @@
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 24,591,613, いいね数: 299,683
+-   動画数: 89, 視聴数: 24,591,658, いいね数: 299,684
 
 #### [2026年02月](videos/202602 "wikilink")
 
@@ -120,19 +120,19 @@
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 14,214,048, いいね数: 188,271
+-   動画数: 79, 視聴数: 14,214,386, いいね数: 188,272
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 26,906,738, いいね数: 364,806
+-   動画数: 102, 視聴数: 26,907,363, いいね数: 364,801
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 19,128,018, いいね数: 286,803
+-   動画数: 87, 視聴数: 19,135,253, いいね数: 286,836
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 17,779,198, いいね数: 275,500
+-   動画数: 65, 視聴数: 17,785,732, いいね数: 275,516
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -184,15 +184,15 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 16,815,644, いいね数: 295,393
+-   動画数: 44, 視聴数: 16,815,815, いいね数: 295,393
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 11,268,328, いいね数: 147,174
+-   動画数: 31, 視聴数: 11,278,116, いいね数: 147,224
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 7,000,942, いいね数: 85,695
+-   動画数: 29, 視聴数: 7,001,676, いいね数: 85,696
 
 #### [2024年04月](videos/202404 "wikilink")
 
@@ -251,4 +251,4 @@
 -   動画数: 14, 視聴数: 8,393,325, いいね数: 142,351
 
 ---
-2026-10-11 00:15
+2026-10-11 07:15
