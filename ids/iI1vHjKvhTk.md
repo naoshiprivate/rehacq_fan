@@ -1,6 +1,6 @@
 ### [【ロシア・ウクライナ戦争】なぜ泥沼化？終戦条件は？台湾有事の可能性と日本に起きること…カギはトランプ？なぜ？【ReHacQ鈴木拓也vs高橋杉雄】](https://www.youtube.com/watch?v=iI1vHjKvhTk)
 [![](https://img.youtube.com/vi/iI1vHjKvhTk/sddefault.jpg)](https://www.youtube.com/watch?v=iI1vHjKvhTk)
 -   公開日: 2026-10-12
--   視聴数: 73,149
--   **いいね数: 492**
+-   視聴数: 128,872
+-   **いいね数: 627**
 -   出演者: 
