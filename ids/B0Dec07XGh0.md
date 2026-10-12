@@ -1,6 +1,6 @@
 ### [【壇蜜vs田中渓】結婚はギャンブル！？…逆プロポーズのきっかけと意外な私生活とは？【ReHacQ】](https://www.youtube.com/watch?v=B0Dec07XGh0)
 [![](https://img.youtube.com/vi/B0Dec07XGh0/sddefault.jpg)](https://www.youtube.com/watch?v=B0Dec07XGh0)
 -   公開日: 2026-10-05
--   視聴数: 519,123
--   **いいね数: 4,703**
+-   視聴数: 524,178
+-   **いいね数: 4,748**
 -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
