@@ -199,7 +199,7 @@
     -   公開日: 2025-12-22
     -   視聴数: 1,745,235
     -   **いいね数: 21,611**
-    -   出演者: 小林弘幸, [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
+    -   出演者: [小林弘幸](/rehacq_fan/people/小林弘幸 "wikilink"), [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
 1.  [【成田悠輔が推薦】宇宙と超弦理論！６歳にわかるように説明してみよう！【マルチバース】](/rehacq_fan/ids/4yiyaq0q6xQ "wikilink")
     -   公開日: 2024-03-09
     -   視聴数: 1,741,533
@@ -455,6 +455,11 @@
     -   視聴数: 1,174,915
     -   **いいね数: 13,795**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 東谷義和
+1.  [【40代から若返る！】体力は才能じゃない！筋トレより効く最強・体力習慣とは？【田中渓&澤木一貴】](/rehacq_fan/ids/5xS_xtpWvVg "wikilink")
+    -   公開日: 2025-11-24
+    -   視聴数: 1,174,511
+    -   **いいね数: 11,259**
+    -   出演者: 澤木一貴, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](/rehacq_fan/ids/RwjSzGvyEoA "wikilink")
     -   公開日: 2025-06-10
     -   視聴数: 1,174,349
@@ -495,8 +500,3 @@
     -   視聴数: 1,153,318
     -   **いいね数: 10,879**
     -   出演者: [今井翔太](/rehacq_fan/people/今井翔太 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 塩崎彰久, [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ひろゆきvs国民民主党】衝撃的!日本倍増計画とは?【玉木雄一郎の野望 episode2】](/rehacq_fan/ids/EYKExpig3-4 "wikilink")
-    -   公開日: 2023-05-28
-    -   視聴数: 1,153,194
-    -   **いいね数: 18,805**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")

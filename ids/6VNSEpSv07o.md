@@ -3,4 +3,4 @@
 -   公開日: 2025-12-30
 -   視聴数: 337,572
 -   **いいね数: 8,212**
--   出演者: 小林弘幸, [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
+-   出演者: [小林弘幸](/rehacq_fan/people/小林弘幸 "wikilink"), [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
