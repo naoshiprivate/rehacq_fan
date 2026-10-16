@@ -160,6 +160,11 @@
     -   視聴数: 1,941,512
     -   **いいね数: 16,481**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
+1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/y0QYGfiKyj8 "wikilink")
+    -   公開日: 2025-12-22
+    -   視聴数: 1,882,754
+    -   **いいね数: 22,506**
+    -   出演者: [小林弘幸](/rehacq_fan/people/小林弘幸 "wikilink"), [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
 1.  [【後藤達也vs鈴木おさむ】SMAP生んだ天才・謎のP！初めて明かされる仕事術【リスクマネジメントの鬼】](/rehacq_fan/ids/7PgJY5fY5NY "wikilink")
     -   公開日: 2024-04-26
     -   視聴数: 1,857,950
@@ -195,11 +200,6 @@
     -   視聴数: 1,794,494
     -   **いいね数: 18,901**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/y0QYGfiKyj8 "wikilink")
-    -   公開日: 2025-12-22
-    -   視聴数: 1,745,235
-    -   **いいね数: 21,611**
-    -   出演者: [小林弘幸](/rehacq_fan/people/小林弘幸 "wikilink"), [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
 1.  [【成田悠輔が推薦】宇宙と超弦理論！６歳にわかるように説明してみよう！【マルチバース】](/rehacq_fan/ids/4yiyaq0q6xQ "wikilink")
     -   公開日: 2024-03-09
     -   視聴数: 1,741,533

@@ -195,6 +195,11 @@
     -   視聴数: 2,733,788
     -   **いいね数: 22,518**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/y0QYGfiKyj8 "wikilink")
+    -   公開日: 2025-12-22
+    -   視聴数: 1,882,754
+    -   **いいね数: 22,506**
+    -   出演者: [小林弘幸](/rehacq_fan/people/小林弘幸 "wikilink"), [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
 1.  [【高橋弘樹vs元駐オーストラリア大使】日本外交はなぜ弱腰？中国やアメリカとどう向き合う？【ReHacQvs山上信吾】](/rehacq_fan/ids/v3KQs-g_co "wikilink")
     -   公開日: 2026-05-01
     -   視聴数: 1,509,173
@@ -220,11 +225,6 @@
     -   視聴数: 2,143,109
     -   **いいね数: 21,638**
     -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/y0QYGfiKyj8 "wikilink")
-    -   公開日: 2025-12-22
-    -   視聴数: 1,745,235
-    -   **いいね数: 21,611**
-    -   出演者: [小林弘幸](/rehacq_fan/people/小林弘幸 "wikilink"), [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
 1.  [【国民民主vsひろゆき】全部言う！玉木氏が衝撃告白！参院選で重大発表【ReHacQ高橋弘樹】](/rehacq_fan/ids/3WIDjkmg6xY "wikilink")
     -   公開日: 2025-02-02
     -   視聴数: 1,678,794
