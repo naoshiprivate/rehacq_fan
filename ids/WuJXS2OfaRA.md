@@ -3,4 +3,4 @@
 -   公開日: 2026-03-27
 -   視聴数: 68,819
 -   **いいね数: 794**
--   出演者: 丸山義正, [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [馬渕磨理子](/rehacq_fan/people/馬渕磨理子 "wikilink")
+-   出演者: [丸山義正](/rehacq_fan/people/丸山義正 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [馬渕磨理子](/rehacq_fan/people/馬渕磨理子 "wikilink")

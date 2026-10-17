@@ -3,4 +3,4 @@
 -   公開日: 2025-11-28
 -   視聴数: 91,762
 -   **いいね数: 826**
--   出演者: 丸山義正, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
+-   出演者: [丸山義正](/rehacq_fan/people/丸山義正 "wikilink"), [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
