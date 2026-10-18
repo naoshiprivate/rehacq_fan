@@ -1,6 +1,6 @@
 ### [【高橋弘樹vsアフリカ】科学が発達しても「まじない」はなくならない？人間と呪術の深い関係【ReHacQvs吉田憲司】](https://www.youtube.com/watch?v=BLQ27cK2w4o)
 [![](https://img.youtube.com/vi/BLQ27cK2w4o/sddefault.jpg)](https://www.youtube.com/watch?v=BLQ27cK2w4o)
 -   公開日: 2026-10-17
--   視聴数: 58,975
--   **いいね数: 227**
+-   視聴数: 67,633
+-   **いいね数: 277**
 -   出演者: 
