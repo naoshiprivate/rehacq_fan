@@ -112,8 +112,8 @@
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
     -   公開日: 2025-08-09
-    -   視聴数: 2,143,109
-    -   **いいね数: 21,638**
+    -   視聴数: 2,175,147
+    -   **いいね数: 21,686**
     -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【西田亮介vs米山隆一】SNSと政治についてガチ討論！デマや誹謗中傷など課題山積...これからどうなる？【ReHacQ高橋弘樹】](/rehacq_fan/ids/B5-KBz_t3wU "wikilink")
     -   公開日: 2025-04-29
@@ -347,8 +347,8 @@
     -   出演者: 
 1.  [【石丸伸二vs銀行の元上司】半沢直樹か否か…銀行時代、上司を詰めた理由とは？【高橋弘樹】](/rehacq_fan/ids/9Ost8DSs1uU "wikilink")
     -   公開日: 2024-09-14
-    -   視聴数: 1,294,112
-    -   **いいね数: 18,798**
+    -   視聴数: 1,295,938
+    -   **いいね数: 18,793**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](/rehacq_fan/ids/v6K85s-g9Oc "wikilink")
     -   公開日: 2025-02-05
