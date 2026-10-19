@@ -107,8 +107,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs吉村洋文】共闘宣言!?自浄作用なき政治、改革するには？【高橋弘樹】](/rehacq_fan/ids/XKGshW6xD1k "wikilink")
     -   公開日: 2024-08-31
-    -   視聴数: 2,222,846
-    -   **いいね数: 38,163**
+    -   視聴数: 2,224,153
+    -   **いいね数: 38,152**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
     -   公開日: 2025-08-09
@@ -232,8 +232,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【ReHacQvs犯罪心理学者】子育ての勘違い！非行少年が生まれる原因は親！？正しい親子関係と子供を救う言葉とは【出口保行&尾崎里紗】](/rehacq_fan/ids/ECHidEuUJNs "wikilink")
     -   公開日: 2026-03-14
-    -   視聴数: 1,605,375
-    -   **いいね数: 14,713**
+    -   視聴数: 1,618,243
+    -   **いいね数: 14,738**
     -   出演者: 出口保行, [尾崎里紗](/rehacq_fan/people/尾崎里紗 "wikilink")
 1.  [【石丸伸二vs会見入れなかったジャーナリスト】前代未聞の激論…なぜ？取材会見時のジャーナリスト制限に関して【ひろゆきvs横田一vs西田亮介vs箕輪厚介vs高橋弘樹ReHacQ】](/rehacq_fan/ids/23N6ICQ55-c "wikilink")
     -   公開日: 2025-01-16
@@ -385,6 +385,11 @@
     -   視聴数: 1,257,668
     -   **いいね数: 20,308**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vsヤバい日本史】もっと歴史が好きになる！紫式部の性格は最悪？豊臣秀吉の裏の顔とは？【ReHacQvs本郷和人】](/rehacq_fan/ids/IIrCRGp9RCI "wikilink")
+    -   公開日: 2026-06-29
+    -   視聴数: 1,256,347
+    -   **いいね数: 9,124**
+    -   出演者: [本郷和人](/rehacq_fan/people/本郷和人 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](/rehacq_fan/ids/LyfcqUBmBlc "wikilink")
     -   公開日: 2024-06-15
     -   視聴数: 1,248,052
@@ -465,11 +470,6 @@
     -   視聴数: 1,174,511
     -   **いいね数: 11,259**
     -   出演者: 澤木一貴, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
-1.  [【高橋弘樹vsヤバい日本史】もっと歴史が好きになる！紫式部の性格は最悪？豊臣秀吉の裏の顔とは？【ReHacQvs本郷和人】](/rehacq_fan/ids/IIrCRGp9RCI "wikilink")
-    -   公開日: 2026-06-29
-    -   視聴数: 1,166,526
-    -   **いいね数: 8,869**
-    -   出演者: [本郷和人](/rehacq_fan/people/本郷和人 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【藤田晋が緊急出演】「人生は不平等、だから…」メディア最後の出演！全ビジネスパーソンに伝えたい事【ReHacQ高橋弘樹】](/rehacq_fan/ids/kT34SGVBs6Y "wikilink")
     -   公開日: 2025-12-13
     -   視聴数: 1,164,111
