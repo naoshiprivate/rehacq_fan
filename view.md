@@ -327,8 +327,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), [岩田明子](/rehacq_fan/people/岩田明子 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [菅野志桜里](/rehacq_fan/people/菅野志桜里 "wikilink")
 1.  [【石丸伸二vs後藤達也】為替は日銀構文を読め！トランプと株式市場【元NY専門家が予測】](/rehacq_fan/ids/7_sdf9uZUiU "wikilink")
     -   公開日: 2024-07-31
-    -   視聴数: 1,371,932
-    -   **いいね数: 21,380**
+    -   視聴数: 1,372,440
+    -   **いいね数: 21,374**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
@@ -412,8 +412,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](/rehacq_fan/ids/-67Yfoti-W0 "wikilink")
     -   公開日: 2024-08-07
-    -   視聴数: 1,220,762
-    -   **いいね数: 21,315**
+    -   視聴数: 1,223,000
+    -   **いいね数: 21,316**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ生配信】東出昌大が緊急参戦！一体なぜ…!? 飲みながらまったり雑談【ひろゆきvs箕輪厚介vs今野忍】](/rehacq_fan/ids/GJbXyW2YHBE "wikilink")
     -   公開日: 2026-09-14
@@ -465,6 +465,11 @@
     -   視聴数: 1,179,666
     -   **いいね数: 13,802**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 東谷義和
+1.  [【高橋弘樹vsエンジン】電気自動車の罠... 世界が追随！日本のエンジンとは？【ReHacQvs草鹿仁】](/rehacq_fan/ids/Hg712G-UvHo "wikilink")
+    -   公開日: 2026-06-05
+    -   視聴数: 1,177,537
+    -   **いいね数: 10,558**
+    -   出演者: 草鹿仁, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【40代から若返る！】体力は才能じゃない！筋トレより効く最強・体力習慣とは？【田中渓&澤木一貴】](/rehacq_fan/ids/5xS_xtpWvVg "wikilink")
     -   公開日: 2025-11-24
     -   視聴数: 1,174,511
@@ -495,8 +500,3 @@
     -   視聴数: 1,154,661
     -   **いいね数: 21,469**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【ReHacQ緊急生配信】最新AIモデル「ミュトス」とは？危険性やリスク...日本のサイバーセキュリティの未来【塩崎彰久vs安野貴博vs今井翔太vs今野忍vs高橋弘樹】](/rehacq_fan/ids/JOz77X5Yh8I "wikilink")
-    -   公開日: 2026-04-24
-    -   視聴数: 1,153,318
-    -   **いいね数: 10,879**
-    -   出演者: [今井翔太](/rehacq_fan/people/今井翔太 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 塩崎彰久, [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
