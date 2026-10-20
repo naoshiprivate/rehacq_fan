@@ -1,6 +1,6 @@
 ### [【今野忍vs箕輪厚介vs高橋弘樹】おじさん大騒ぎ！ひまわり畑で奇跡の１枚！？元議員と合流し…【ReHacQ旅in福岡②】](https://www.youtube.com/watch?v=7a3IRmUZecM)
 [![](https://img.youtube.com/vi/7a3IRmUZecM/sddefault.jpg)](https://www.youtube.com/watch?v=7a3IRmUZecM)
 -   公開日: 2026-10-19
--   視聴数: 132,272
--   **いいね数: 1,522**
+-   視聴数: 160,074
+-   **いいね数: 1,774**
 -   出演者: 
