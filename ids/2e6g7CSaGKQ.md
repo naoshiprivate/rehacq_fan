@@ -1,6 +1,6 @@
-### [【ReHacQvs元共同通信支局長】本当にあった日米密約...アメリカも揉めた？トランプの本音とは？【鈴木拓也vs春名幹男】](https://www.youtube.com/watch?v=2e6g7CSaGKQ)
+### [【ReHacQvs日米密約】本当にあった隠された話...アメリカも揉めた？トランプの本音とは？【鈴木拓也vs春名幹男】](https://www.youtube.com/watch?v=2e6g7CSaGKQ)
 [![](https://img.youtube.com/vi/2e6g7CSaGKQ/sddefault.jpg)](https://www.youtube.com/watch?v=2e6g7CSaGKQ)
 -   公開日: 2026-10-20
--   視聴数: 27,307
--   **いいね数: 107**
+-   視聴数: 32,102
+-   **いいね数: 112**
 -   出演者: 春名幹男, [鈴木拓也](/rehacq_fan/people/鈴木拓也 "wikilink")
