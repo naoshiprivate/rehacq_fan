@@ -1,6 +1,6 @@
 ### [【朝倉慶vsちょる子】相場で生き残る！インフレ時代の資産防衛…人気株に潜む罠とは？【ReHacQ】](https://www.youtube.com/watch?v=N7XQSj9MljM)
 [![](https://img.youtube.com/vi/N7XQSj9MljM/sddefault.jpg)](https://www.youtube.com/watch?v=N7XQSj9MljM)
 -   公開日: 2026-10-21
--   視聴数: 89,036
--   **いいね数: 1,009**
+-   視聴数: 113,255
+-   **いいね数: 1,121**
 -   出演者: 
