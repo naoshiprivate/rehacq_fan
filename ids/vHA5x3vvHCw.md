@@ -1,6 +1,6 @@
 ### [【ひろゆきvs NHK女将アナ】衝撃サウナ！ ReHacQ旅in富山【超行き当たりバッタリの旅】](https://www.youtube.com/watch?v=vHA5x3vvHCw)
 [![](https://img.youtube.com/vi/vHA5x3vvHCw/sddefault.jpg)](https://www.youtube.com/watch?v=vHA5x3vvHCw)
 -   公開日: 2023-05-27
--   視聴数: 343,353
--   **いいね数: 5,292**
+-   視聴数: 351,301
+-   **いいね数: 5,298**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
