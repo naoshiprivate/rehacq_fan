@@ -350,6 +350,11 @@
     -   視聴数: 1,295,938
     -   **いいね数: 18,793**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](/rehacq_fan/ids/JxdSFPP3_Bg "wikilink")
+    -   公開日: 2025-05-13
+    -   視聴数: 1,289,357
+    -   **いいね数: 8,342**
+    -   出演者: [渡部雅浩](/rehacq_fan/people/渡部雅浩 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](/rehacq_fan/ids/v6K85s-g9Oc "wikilink")
     -   公開日: 2025-02-05
     -   視聴数: 1,288,642
@@ -360,11 +365,6 @@
     -   視聴数: 1,286,761
     -   **いいね数: 7,274**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](/rehacq_fan/ids/JxdSFPP3_Bg "wikilink")
-    -   公開日: 2025-05-13
-    -   視聴数: 1,286,325
-    -   **いいね数: 8,343**
-    -   出演者: [渡部雅浩](/rehacq_fan/people/渡部雅浩 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【なぜ高市早苗と連立？】維新・吉村代表に聞く！自民党は約束を守るのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Rx4U0L9SK9w "wikilink")
     -   公開日: 2025-10-17
     -   視聴数: 1,268,684
@@ -480,6 +480,11 @@
     -   視聴数: 1,172,860
     -   **いいね数: 12,175**
     -   出演者: 藤田晋, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【ReHacQ緊急生配信】最新AIモデル「ミュトス」とは？危険性やリスク...日本のサイバーセキュリティの未来【塩崎彰久vs安野貴博vs今井翔太vs今野忍vs高橋弘樹】](/rehacq_fan/ids/JOz77X5Yh8I "wikilink")
+    -   公開日: 2026-04-24
+    -   視聴数: 1,167,392
+    -   **いいね数: 10,911**
+    -   出演者: [今井翔太](/rehacq_fan/people/今井翔太 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 塩崎彰久, [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](/rehacq_fan/ids/w-ToOG5rMTc "wikilink")
     -   公開日: 2023-10-01
     -   視聴数: 1,161,592
@@ -495,8 +500,3 @@
     -   視聴数: 1,155,952
     -   **いいね数: 15,569**
     -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【石丸伸二vs西田亮介】「再生の道」存在意義は？改革か無意味か…箕輪厚介も激論【ReHacQ】](/rehacq_fan/ids/Lws5rbO6AYo "wikilink")
-    -   公開日: 2025-04-23
-    -   視聴数: 1,154,661
-    -   **いいね数: 21,469**
-    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
