@@ -145,16 +145,16 @@
     -   視聴数: 2,007,121
     -   **いいね数: 17,906**
     -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
+    -   公開日: 2024-07-27
+    -   視聴数: 1,974,571
+    -   **いいね数: 18,431**
+    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](/rehacq_fan/ids/4G8qsbpfLNo "wikilink")
     -   公開日: 2024-02-20
     -   視聴数: 1,965,977
     -   **いいね数: 17,212**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
-1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
-    -   公開日: 2024-07-27
-    -   視聴数: 1,962,216
-    -   **いいね数: 18,417**
-    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
     -   公開日: 2024-02-12
     -   視聴数: 1,944,598

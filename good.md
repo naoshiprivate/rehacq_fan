@@ -367,8 +367,8 @@
     -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
     -   公開日: 2024-07-27
-    -   視聴数: 1,962,216
-    -   **いいね数: 18,417**
+    -   視聴数: 1,974,571
+    -   **いいね数: 18,431**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](/rehacq_fan/ids/KihRlwlSPCI "wikilink")
     -   公開日: 2025-07-12
@@ -397,8 +397,8 @@
     -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【なぜ自公連立崩壊？】高市早苗会談で何が…代表に聞く！なぜ連立終了？公明党のこれから【ReHacQ高橋弘樹】](/rehacq_fan/ids/MOY5qRsVZjc "wikilink")
     -   公開日: 2025-10-11
-    -   視聴数: 912,787
-    -   **いいね数: 17,849**
+    -   視聴数: 912,972
+    -   **いいね数: 17,842**
     -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs認知症の予防】衝撃！70歳の認知症は30年前から始まっている！？アルツハイマー防ぐには？【ReHacQvsアメリカ天才医学者】](/rehacq_fan/ids/ZsLG3B_waNI "wikilink")
     -   公開日: 2025-06-25
