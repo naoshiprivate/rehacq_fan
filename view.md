@@ -202,8 +202,8 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔の推薦】ビジネスと量子力学！超弦理論の謎【野村泰紀と宇宙】](/rehacq_fan/ids/lp7PPFsnQAE "wikilink")
     -   公開日: 2023-07-14
-    -   視聴数: 1,794,494
-    -   **いいね数: 18,901**
+    -   視聴数: 1,799,250
+    -   **いいね数: 18,895**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦】宇宙と超弦理論！６歳にわかるように説明してみよう！【マルチバース】](/rehacq_fan/ids/4yiyaq0q6xQ "wikilink")
     -   公開日: 2024-03-09
@@ -330,6 +330,11 @@
     -   視聴数: 1,372,440
     -   **いいね数: 21,374**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【小泉悠vs高橋弘樹】核保有の是非...日米同盟は破棄される!?台湾有事・イラン・ロシアウクライナ...混沌とした世界での安全保障とは？弱小国日本が具体的にすべきこと【ReHacQvs戦争】](/rehacq_fan/ids/O0rdxFIsK-I "wikilink")
+    -   公開日: 2026-04-11
+    -   視聴数: 1,339,251
+    -   **いいね数: 11,166**
+    -   出演者: [小泉悠](/rehacq_fan/people/小泉悠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
     -   視聴数: 1,338,169
@@ -375,11 +380,6 @@
     -   視聴数: 1,265,345
     -   **いいね数: 17,224**
     -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 吉田あや, 川上りゅうせい, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【小泉悠vs高橋弘樹】核保有の是非...日米同盟は破棄される!?台湾有事・イラン・ロシアウクライナ...混沌とした世界での安全保障とは？弱小国日本が具体的にすべきこと【ReHacQvs戦争】](/rehacq_fan/ids/O0rdxFIsK-I "wikilink")
-    -   公開日: 2026-04-11
-    -   視聴数: 1,259,468
-    -   **いいね数: 10,912**
-    -   出演者: [小泉悠](/rehacq_fan/people/小泉悠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ生配信】東出昌大が緊急参戦！一体なぜ…!? 飲みながらまったり雑談【ひろゆきvs箕輪厚介vs今野忍】](/rehacq_fan/ids/GJbXyW2YHBE "wikilink")
     -   公開日: 2026-09-14
     -   視聴数: 1,258,766
@@ -405,16 +405,16 @@
     -   視聴数: 1,244,245
     -   **いいね数: 11,422**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), 林下清志
+1.  [【成田悠輔が推薦】動きに注目！天才物理学者の楽しすぎる量子力学入門【野村泰紀・宇宙とは？】](/rehacq_fan/ids/5iuWBR80ZWs "wikilink")
+    -   公開日: 2023-07-07
+    -   視聴数: 1,235,922
+    -   **いいね数: 17,343**
+    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vsひろゆき】高市早苗が首相に指名！自維連立政権発足へ…日本どうなる！？まったり雑談【ReHacQ高橋弘樹vs西田亮介vs土田しんvs音喜多駿vs小西ひろゆき】](/rehacq_fan/ids/FLpXxsuYKls "wikilink")
     -   公開日: 2025-10-21
     -   視聴数: 1,230,340
     -   **いいね数: 10,487**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [土田しん](/rehacq_fan/people/土田しん "wikilink"), [小西ひろゆき](/rehacq_fan/people/小西ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【成田悠輔が推薦】動きに注目！天才物理学者の楽しすぎる量子力学入門【野村泰紀・宇宙とは？】](/rehacq_fan/ids/5iuWBR80ZWs "wikilink")
-    -   公開日: 2023-07-07
-    -   視聴数: 1,230,153
-    -   **いいね数: 17,333**
-    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs認知症の予防】衝撃！70歳の認知症は30年前から始まっている！？アルツハイマー防ぐには？【ReHacQvsアメリカ天才医学者】](/rehacq_fan/ids/ZsLG3B_waNI "wikilink")
     -   公開日: 2025-06-25
     -   視聴数: 1,225,011
@@ -450,16 +450,16 @@
     -   視聴数: 1,200,015
     -   **いいね数: 15,033**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
+1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
+    -   公開日: 2023-11-01
+    -   視聴数: 1,190,992
+    -   **いいね数: 19,652**
+    -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](/rehacq_fan/ids/RwjSzGvyEoA "wikilink")
     -   公開日: 2025-06-10
     -   視聴数: 1,189,637
     -   **いいね数: 19,790**
     -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
-    -   公開日: 2023-11-01
-    -   視聴数: 1,182,024
-    -   **いいね数: 19,602**
-    -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ガーシーが謝罪】被害者・川上量生に直接…一体なぜ？参議院議員から急転逮捕…真相とは？【なぜN国から立候補？】](/rehacq_fan/ids/mt5tmXdLERs "wikilink")
     -   公開日: 2024-12-26
     -   視聴数: 1,179,666

@@ -302,8 +302,8 @@
     -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
     -   公開日: 2023-11-01
-    -   視聴数: 1,182,024
-    -   **いいね数: 19,602**
+    -   視聴数: 1,190,992
+    -   **いいね数: 19,652**
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs呉座勇一】戦国時代のウソ！豊臣秀吉の正体とは？歴史に騙されない方法【ReHacQvs織田信長の真実】](/rehacq_fan/ids/H6ZVuj7IGOM "wikilink")
     -   公開日: 2025-12-18
@@ -322,8 +322,8 @@
     -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔の推薦】ビジネスと量子力学！超弦理論の謎【野村泰紀と宇宙】](/rehacq_fan/ids/lp7PPFsnQAE "wikilink")
     -   公開日: 2023-07-14
-    -   視聴数: 1,794,494
-    -   **いいね数: 18,901**
+    -   視聴数: 1,799,250
+    -   **いいね数: 18,895**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦の天才】シン量子力学！6歳にわかるように説明してみよう！【ReHacQvs野村泰紀】](/rehacq_fan/ids/DEG9OZoYzIU "wikilink")
     -   公開日: 2024-03-02
@@ -347,8 +347,8 @@
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ReHacQ生配信】日本保守党にガチ質問...衆院選2026【百田尚樹vs高橋弘樹】](/rehacq_fan/ids/cYLcT1fhacw "wikilink")
     -   公開日: 2026-02-04
-    -   視聴数: 413,481
-    -   **いいね数: 18,793**
+    -   視聴数: 413,843
+    -   **いいね数: 18,786**
     -   出演者: 百田尚樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs後藤達也】ReHacQスタート！緊急生配信【日経テレ東大学、超えるには？】](/rehacq_fan/ids/qUU0-PC6yyk "wikilink")
     -   公開日: 2023-03-05
@@ -417,8 +417,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔が推薦】動きに注目！天才物理学者の楽しすぎる量子力学入門【野村泰紀・宇宙とは？】](/rehacq_fan/ids/5iuWBR80ZWs "wikilink")
     -   公開日: 2023-07-07
-    -   視聴数: 1,230,153
-    -   **いいね数: 17,333**
+    -   視聴数: 1,235,922
+    -   **いいね数: 17,343**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【衆院選2026】あつまれ！落選の森...今後どうする？まったり緊急生配信【中谷一馬vs川上りゅうせいvs吉田あやvs今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/HEsGRg73oiw "wikilink")
     -   公開日: 2026-02-09
