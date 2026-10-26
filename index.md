@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【石丸伸二vs埼玉県久喜市長】貯金がゼロに!?財政の危機どう立て直す?市長の決断…【ReHacQvs貴志信智】](/rehacq_fan/ids/HofX7d5BhzA "wikilink")
     -   公開日: 2026-10-26
-    -   視聴数: 41,867
-    -   **いいね数: 2,099**
+    -   視聴数: 71,077
+    -   **いいね数: 2,395**
     -   出演者: 
     - [![](https://img.youtube.com/vi/HofX7d5BhzA/hqdefault.jpg)](https://www.youtube.com/watch?v=HofX7d5BhzA)
 1.  [【動画戦略vs企業PR】商品は売り込まない！？老舗書店「有隣堂」…企業動画の勝ち筋とは？【有隣堂＆ReHacQ】](/rehacq_fan/ids/vs8fCPkdYcM "wikilink")
     -   公開日: 2026-10-26
-    -   視聴数: 76,437
-    -   **いいね数: 1,385**
+    -   視聴数: 93,783
+    -   **いいね数: 1,534**
     -   出演者: 
     - [![](https://img.youtube.com/vi/vs8fCPkdYcM/hqdefault.jpg)](https://www.youtube.com/watch?v=vs8fCPkdYcM)
 1.  [【ひろゆきvs林芳正】衝撃告白…地方衰退は政治で止められる？日本のグランドデザインは【ReHacQ高橋弘樹】](/rehacq_fan/ids/8EBvTMjazKs "wikilink")
     -   公開日: 2026-10-25
-    -   視聴数: 253,112
-    -   **いいね数: 1,546**
+    -   視聴数: 258,232
+    -   **いいね数: 1,565**
     -   出演者: 
     - [![](https://img.youtube.com/vi/8EBvTMjazKs/hqdefault.jpg)](https://www.youtube.com/watch?v=8EBvTMjazKs)
 1.  [【呉座勇一vs高橋弘樹】なぜ日本は男社会に？不倫したら島送り…日本の家制度の謎とは？【ReHacQ】](/rehacq_fan/ids/Rd-amlQOqTM "wikilink")
     -   公開日: 2026-10-25
-    -   視聴数: 232,507
-    -   **いいね数: 1,842**
+    -   視聴数: 235,081
+    -   **いいね数: 1,852**
     -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/Rd-amlQOqTM/hqdefault.jpg)](https://www.youtube.com/watch?v=Rd-amlQOqTM)
 1.  [【ReHacQ生配信】辞めマスコミ記者本音座談会！なぜ会社辞めた？【阿部欣司vs今野忍vs後藤達也vs高橋弘樹vsひろゆき】](/rehacq_fan/ids/AF5OY6yH1Ag "wikilink")
     -   公開日: 2026-10-24
-    -   視聴数: 741,354
-    -   **いいね数: 4,687**
+    -   視聴数: 747,114
+    -   **いいね数: 4,717**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 阿部欣司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/AF5OY6yH1Ag/hqdefault.jpg)](https://www.youtube.com/watch?v=AF5OY6yH1Ag)
 
@@ -34,14 +34,14 @@
 ## 最近の人気動画
 1.  [【ReHacQ生配信】辞めマスコミ記者本音座談会！なぜ会社辞めた？【阿部欣司vs今野忍vs後藤達也vs高橋弘樹vsひろゆき】](/rehacq_fan/ids/AF5OY6yH1Ag "wikilink")
     -   公開日: 2026-10-24
-    -   視聴数: 741,354
-    -   **いいね数: 4,687**
+    -   視聴数: 747,114
+    -   **いいね数: 4,717**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 阿部欣司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/AF5OY6yH1Ag/hqdefault.jpg)](https://www.youtube.com/watch?v=AF5OY6yH1Ag)
 1.  [【まったり寝不足生配信】堀大輔緊急参戦！あつまれ！ショートスリーパー(？)の森【箕輪厚介vsReHacQ高橋弘樹】](/rehacq_fan/ids/EIUCvNwFuUg "wikilink")
     -   公開日: 2026-10-23
-    -   視聴数: 1,240,499
-    -   **いいね数: 7,038**
+    -   視聴数: 1,248,976
+    -   **いいね数: 7,057**
     -   出演者: 堀大輔, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/EIUCvNwFuUg/hqdefault.jpg)](https://www.youtube.com/watch?v=EIUCvNwFuUg)
 1.  [【ReHacQ生配信】横浜市長選2026！あつまれ！落選の森【石丸伸二vs中谷一馬vs音喜多駿vs高橋弘樹】](/rehacq_fan/ids/xldNkev5Ygs "wikilink")
@@ -76,7 +76,7 @@
 ## 時系列データ
 #### [2026年10月](videos/202610 "wikilink")
 
--   動画数: 69, 視聴数: 23,766,915, いいね数: 155,752
+-   動画数: 69, 視聴数: 23,987,205, いいね数: 156,866
 
 #### [2026年09月](videos/202609 "wikilink")
 
@@ -108,7 +108,7 @@
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 26,835,877, いいね数: 367,032
+-   動画数: 98, 視聴数: 26,841,234, いいね数: 367,041
 
 #### [2026年01月](videos/202601 "wikilink")
 
@@ -120,11 +120,11 @@
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 14,339,101, いいね数: 188,731
+-   動画数: 79, 視聴数: 14,341,679, いいね数: 188,744
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 27,076,560, いいね数: 365,394
+-   動画数: 102, 視聴数: 27,078,735, いいね数: 365,399
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -132,11 +132,11 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 17,883,690, いいね数: 275,666
+-   動画数: 65, 視聴数: 17,885,753, いいね数: 275,671
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 24,100,189, いいね数: 389,530
+-   動画数: 76, 視聴数: 24,101,866, いいね数: 389,520
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -144,7 +144,7 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 17,407,160, いいね数: 211,711
+-   動画数: 63, 視聴数: 17,407,785, いいね数: 211,705
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -172,7 +172,7 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,703,874, いいね数: 344,748
+-   動画数: 72, 視聴数: 23,703,888, いいね数: 344,748
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -224,7 +224,7 @@
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,719,778, いいね数: 88,254
+-   動画数: 27, 視聴数: 6,720,060, いいね数: 88,254
 
 #### [2023年08月](videos/202308 "wikilink")
 
@@ -248,7 +248,7 @@
 
 #### [2023年03月](videos/202303 "wikilink")
 
--   動画数: 14, 視聴数: 8,434,754, いいね数: 142,394
+-   動画数: 14, 視聴数: 8,438,594, いいね数: 142,403
 
 ---
-2026-10-26 23:15
+2026-10-27 00:15
