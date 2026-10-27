@@ -332,8 +332,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【まったり寝不足生配信】堀大輔緊急参戦！あつまれ！ショートスリーパー(？)の森【箕輪厚介vsReHacQ高橋弘樹】](/rehacq_fan/ids/EIUCvNwFuUg "wikilink")
     -   公開日: 2026-10-23
-    -   視聴数: 1,343,513
-    -   **いいね数: 7,395**
+    -   視聴数: 1,354,269
+    -   **いいね数: 7,438**
     -   出演者: 堀大輔, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【小泉悠vs高橋弘樹】核保有の是非...日米同盟は破棄される!?台湾有事・イラン・ロシアウクライナ...混沌とした世界での安全保障とは？弱小国日本が具体的にすべきこと【ReHacQvs戦争】](/rehacq_fan/ids/O0rdxFIsK-I "wikilink")
     -   公開日: 2026-04-11
@@ -385,16 +385,16 @@
     -   視聴数: 1,265,345
     -   **いいね数: 17,224**
     -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 吉田あや, 川上りゅうせい, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](/rehacq_fan/ids/CxDT2FaGi8o "wikilink")
+    -   公開日: 2025-07-09
+    -   視聴数: 1,261,396
+    -   **いいね数: 20,299**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ生配信】東出昌大が緊急参戦！一体なぜ…!? 飲みながらまったり雑談【ひろゆきvs箕輪厚介vs今野忍】](/rehacq_fan/ids/GJbXyW2YHBE "wikilink")
     -   公開日: 2026-09-14
     -   視聴数: 1,258,766
     -   **いいね数: 7,859**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
-1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](/rehacq_fan/ids/CxDT2FaGi8o "wikilink")
-    -   公開日: 2025-07-09
-    -   視聴数: 1,257,668
-    -   **いいね数: 20,308**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vsヤバい日本史】もっと歴史が好きになる！紫式部の性格は最悪？豊臣秀吉の裏の顔とは？【ReHacQvs本郷和人】](/rehacq_fan/ids/IIrCRGp9RCI "wikilink")
     -   公開日: 2026-06-29
     -   視聴数: 1,256,347
