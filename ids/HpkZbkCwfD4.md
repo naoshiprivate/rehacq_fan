@@ -1,6 +1,6 @@
 ### [【みずほ銀行vs日銀元キャップ】円安決める「４つの原因」【金利だけではダメ！】](https://www.youtube.com/watch?v=HpkZbkCwfD4)
 [![](https://img.youtube.com/vi/HpkZbkCwfD4/sddefault.jpg)](https://www.youtube.com/watch?v=HpkZbkCwfD4)
 -   公開日: 2023-10-05
--   視聴数: 305,725
--   **いいね数: 2,597**
+-   視聴数: 306,299
+-   **いいね数: 2,594**
 -   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
