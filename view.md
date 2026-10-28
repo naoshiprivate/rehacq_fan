@@ -170,16 +170,16 @@
     -   視聴数: 1,882,754
     -   **いいね数: 22,506**
     -   出演者: [小林弘幸](/rehacq_fan/people/小林弘幸 "wikilink"), [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
+1.  [【後藤達也vs鈴木おさむ】SMAP生んだ天才・謎のP！初めて明かされる仕事術【リスクマネジメントの鬼】](/rehacq_fan/ids/7PgJY5fY5NY "wikilink")
+    -   公開日: 2024-04-26
+    -   視聴数: 1,865,753
+    -   **いいね数: 11,553**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [鈴木おさむ](/rehacq_fan/people/鈴木おさむ "wikilink")
 1.  [【坂上忍vsひろゆきvs箕輪厚介】動物に年間１億円！？保護犬保護猫の闇…芸能活動引退後を語る【ReHacQ】](/rehacq_fan/ids/E4WP-h_fhUc "wikilink")
     -   公開日: 2026-05-10
     -   視聴数: 1,858,949
     -   **いいね数: 24,498**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
-1.  [【後藤達也vs鈴木おさむ】SMAP生んだ天才・謎のP！初めて明かされる仕事術【リスクマネジメントの鬼】](/rehacq_fan/ids/7PgJY5fY5NY "wikilink")
-    -   公開日: 2024-04-26
-    -   視聴数: 1,857,950
-    -   **いいね数: 11,546**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [鈴木おさむ](/rehacq_fan/people/鈴木おさむ "wikilink")
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
     -   公開日: 2024-09-10
     -   視聴数: 1,849,200
@@ -305,6 +305,11 @@
     -   視聴数: 1,468,533
     -   **いいね数: 20,418**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
+1.  [【まったり寝不足生配信】堀大輔緊急参戦！あつまれ！ショートスリーパー(？)の森【箕輪厚介vsReHacQ高橋弘樹】](/rehacq_fan/ids/EIUCvNwFuUg "wikilink")
+    -   公開日: 2026-10-23
+    -   視聴数: 1,449,180
+    -   **いいね数: 7,720**
+    -   出演者: 堀大輔, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs近藤大介】中国人と日本人は似てると思うと失敗する？習近平はどこへ向かうのか？【ReHacQ中国経済SP】](/rehacq_fan/ids/MBD3k2kLnD8 "wikilink")
     -   公開日: 2025-09-30
     -   視聴数: 1,439,319
@@ -315,11 +320,6 @@
     -   視聴数: 1,438,876
     -   **いいね数: 33,229**
     -   出演者: 
-1.  [【まったり寝不足生配信】堀大輔緊急参戦！あつまれ！ショートスリーパー(？)の森【箕輪厚介vsReHacQ高橋弘樹】](/rehacq_fan/ids/EIUCvNwFuUg "wikilink")
-    -   公開日: 2026-10-23
-    -   視聴数: 1,421,453
-    -   **いいね数: 7,629**
-    -   出演者: 堀大輔, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】前兵庫県知事が緊急生出演...「パワハラ」「告発文書」「PC文書」の真相は？【ReHacQ】](/rehacq_fan/ids/jNGjngpf05U "wikilink")
     -   公開日: 2024-10-03
     -   視聴数: 1,416,463

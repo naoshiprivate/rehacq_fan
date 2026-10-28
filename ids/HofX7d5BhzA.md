@@ -1,6 +1,6 @@
 ### [【石丸伸二vs埼玉県久喜市長】貯金がゼロに!?財政の危機どう立て直す?市長の決断…【ReHacQvs貴志信智】](https://www.youtube.com/watch?v=HofX7d5BhzA)
 [![](https://img.youtube.com/vi/HofX7d5BhzA/sddefault.jpg)](https://www.youtube.com/watch?v=HofX7d5BhzA)
 -   公開日: 2026-10-26
--   視聴数: 304,253
--   **いいね数: 4,720**
+-   視聴数: 317,672
+-   **いいね数: 4,871**
 -   出演者: 
