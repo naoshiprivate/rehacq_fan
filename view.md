@@ -237,8 +237,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 坂上忍, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【まったり寝不足生配信】堀大輔緊急参戦！あつまれ！ショートスリーパー(？)の森【箕輪厚介vsReHacQ高橋弘樹】](/rehacq_fan/ids/EIUCvNwFuUg "wikilink")
     -   公開日: 2026-10-23
-    -   視聴数: 1,619,652
-    -   **いいね数: 8,250**
+    -   視聴数: 1,641,100
+    -   **いいね数: 8,284**
     -   出演者: 堀大輔, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQvs犯罪心理学者】子育ての勘違い！非行少年が生まれる原因は親！？正しい親子関係と子供を救う言葉とは【出口保行&尾崎里紗】](/rehacq_fan/ids/ECHidEuUJNs "wikilink")
     -   公開日: 2026-03-14
