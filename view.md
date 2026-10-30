@@ -252,8 +252,8 @@
     -   出演者: [小泉悠](/rehacq_fan/people/小泉悠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【まったり寝不足生配信】堀大輔緊急参戦！あつまれ！ショートスリーパー(？)の森【箕輪厚介vsReHacQ高橋弘樹】](/rehacq_fan/ids/EIUCvNwFuUg "wikilink")
     -   公開日: 2026-10-23
-    -   視聴数: 1,579,380
-    -   **いいね数: 8,119**
+    -   視聴数: 1,581,156
+    -   **いいね数: 8,127**
     -   出演者: 堀大輔, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ討論会】兵庫県知事選挙【候補者7人vs高橋弘樹】](/rehacq_fan/ids/b-bNBgMhpNM "wikilink")
     -   公開日: 2024-11-01
