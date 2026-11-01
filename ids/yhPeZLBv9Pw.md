@@ -1,6 +1,6 @@
 ### [【今野忍vs箕輪厚介vs高橋弘樹】ロケ中緊急事態発生!?福岡の島旅を振り返り生配信【ReHacQ旅in福岡③鑑賞会】](https://www.youtube.com/watch?v=yhPeZLBv9Pw)
 [![](https://img.youtube.com/vi/yhPeZLBv9Pw/sddefault.jpg)](https://www.youtube.com/watch?v=yhPeZLBv9Pw)
 -   公開日: 2026-10-31
--   視聴数: 413,204
--   **いいね数: 1,811**
+-   視聴数: 457,927
+-   **いいね数: 2,174**
 -   出演者: 
