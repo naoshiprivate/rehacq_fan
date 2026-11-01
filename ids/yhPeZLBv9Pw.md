@@ -1,6 +1,6 @@
 ### [【今野忍vs箕輪厚介vs高橋弘樹】ロケ中緊急事態発生!?福岡の島旅を振り返り生配信【ReHacQ旅in福岡③鑑賞会】](https://www.youtube.com/watch?v=yhPeZLBv9Pw)
 [![](https://img.youtube.com/vi/yhPeZLBv9Pw/sddefault.jpg)](https://www.youtube.com/watch?v=yhPeZLBv9Pw)
 -   公開日: 2026-10-31
--   視聴数: 467,307
--   **いいね数: 2,219**
--   出演者: 
+-   視聴数: 515,636
+-   **いいね数: 2,615**
+-   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
