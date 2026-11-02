@@ -1,32 +1,32 @@
 # ReHacQ 最近の動画
 1.  [【今野忍vs安野貴博】激論100分！完全版サイバー攻撃の未来…情報漏洩の危険性【ReHacQ】](/rehacq_fan/ids/fOMv6nbkC8E "wikilink")
     -   公開日: 2026-11-01
-    -   視聴数: 269,304
-    -   **いいね数: 2,345**
+    -   視聴数: 348,367
+    -   **いいね数: 3,096**
     -   出演者: 
     - [![](https://img.youtube.com/vi/fOMv6nbkC8E/hqdefault.jpg)](https://www.youtube.com/watch?v=fOMv6nbkC8E)
 1.  [【ひろゆきvs林芳正】米中との外交どうする？安全保障の課題と10年先の日本【ReHacQ高橋弘樹】](/rehacq_fan/ids/g8dWdpanbyQ "wikilink")
     -   公開日: 2026-11-01
-    -   視聴数: 127,473
-    -   **いいね数: 894**
+    -   視聴数: 141,439
+    -   **いいね数: 1,021**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [林芳正](/rehacq_fan/people/林芳正 "wikilink")
     - [![](https://img.youtube.com/vi/g8dWdpanbyQ/hqdefault.jpg)](https://www.youtube.com/watch?v=g8dWdpanbyQ)
 1.  [【今野忍vs箕輪厚介vs高橋弘樹】ロケ中緊急事態発生!?福岡の島旅を振り返り生配信【ReHacQ旅in福岡③鑑賞会】](/rehacq_fan/ids/yhPeZLBv9Pw "wikilink")
     -   公開日: 2026-10-31
-    -   視聴数: 561,584
-    -   **いいね数: 2,847**
+    -   視聴数: 573,228
+    -   **いいね数: 2,926**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/yhPeZLBv9Pw/hqdefault.jpg)](https://www.youtube.com/watch?v=yhPeZLBv9Pw)
 1.  [【石丸伸二vsひろゆき】『山月記』の真相…知られざる友情物語…無名作家と言われた中島敦の苦悩と最期【高橋弘樹vs田中章義】](/rehacq_fan/ids/uVeTBMvXBn8 "wikilink")
     -   公開日: 2026-10-31
-    -   視聴数: 178,903
-    -   **いいね数: 2,012**
+    -   視聴数: 183,528
+    -   **いいね数: 2,067**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [田中章義](/rehacq_fan/people/田中章義 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/uVeTBMvXBn8/hqdefault.jpg)](https://www.youtube.com/watch?v=uVeTBMvXBn8)
 1.  [【ReHacQ生配信】10月振り返り！まったり雑談生配信【高橋弘樹】](/rehacq_fan/ids/b9g0cMkp2rQ "wikilink")
     -   公開日: 2026-10-30
-    -   視聴数: 338,690
-    -   **いいね数: 1,569**
+    -   視聴数: 340,924
+    -   **いいね数: 1,582**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/b9g0cMkp2rQ/hqdefault.jpg)](https://www.youtube.com/watch?v=b9g0cMkp2rQ)
 
@@ -34,26 +34,26 @@
 ## 最近の人気動画
 1.  [【今野忍vs箕輪厚介vs高橋弘樹】ロケ中緊急事態発生!?福岡の島旅を振り返り生配信【ReHacQ旅in福岡③鑑賞会】](/rehacq_fan/ids/yhPeZLBv9Pw "wikilink")
     -   公開日: 2026-10-31
-    -   視聴数: 561,584
-    -   **いいね数: 2,847**
+    -   視聴数: 573,228
+    -   **いいね数: 2,926**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/yhPeZLBv9Pw/hqdefault.jpg)](https://www.youtube.com/watch?v=yhPeZLBv9Pw)
 1.  [【高橋弘樹vs参政党】消費税0で日本変わる？幹事長の訴え！経済再生の切り札とは？【ReHacQvs安藤裕】](/rehacq_fan/ids/j1FDSKDRzvY "wikilink")
     -   公開日: 2026-10-28
-    -   視聴数: 553,393
-    -   **いいね数: 8,339**
+    -   視聴数: 558,947
+    -   **いいね数: 8,385**
     -   出演者: 安藤裕, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/j1FDSKDRzvY/hqdefault.jpg)](https://www.youtube.com/watch?v=j1FDSKDRzvY)
 1.  [【高橋弘樹vs機動戦士ガンダム】超貴重!アニメ制作裏話!シャアの誕生は喧嘩から？設定はいつもギリギリ決定？【ReHacQvs富野由悠季】](/rehacq_fan/ids/4IFdHBtsSZs "wikilink")
     -   公開日: 2026-10-27
-    -   視聴数: 737,591
-    -   **いいね数: 11,476**
+    -   視聴数: 740,446
+    -   **いいね数: 11,520**
     -   出演者: 富野由悠季, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/4IFdHBtsSZs/hqdefault.jpg)](https://www.youtube.com/watch?v=4IFdHBtsSZs)
 1.  [【ReHacQ生配信】辞めマスコミ記者本音座談会！なぜ会社辞めた？【阿部欣司vs今野忍vs後藤達也vs高橋弘樹vsひろゆき】](/rehacq_fan/ids/AF5OY6yH1Ag "wikilink")
     -   公開日: 2026-10-24
-    -   視聴数: 998,629
-    -   **いいね数: 5,763**
+    -   視聴数: 1,002,298
+    -   **いいね数: 5,774**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 阿部欣司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/AF5OY6yH1Ag/hqdefault.jpg)](https://www.youtube.com/watch?v=AF5OY6yH1Ag)
 1.  [【まったり寝不足生配信】堀大輔緊急参戦！あつまれ！ショートスリーパー(？)の森【箕輪厚介vsReHacQ高橋弘樹】](/rehacq_fan/ids/EIUCvNwFuUg "wikilink")
@@ -76,15 +76,15 @@
 ## 時系列データ
 #### [2026年11月](videos/202611 "wikilink")
 
--   動画数: 2, 視聴数: 396,777, いいね数: 3,239
+-   動画数: 2, 視聴数: 489,806, いいね数: 4,117
 
 #### [2026年10月](videos/202610 "wikilink")
 
--   動画数: 81, 視聴数: 30,860,812, いいね数: 209,726
+-   動画数: 81, 視聴数: 30,917,303, いいね数: 210,152
 
 #### [2026年09月](videos/202609 "wikilink")
 
--   動画数: 76, 視聴数: 28,431,137, いいね数: 166,586
+-   動画数: 76, 視聴数: 28,442,925, いいね数: 166,659
 
 #### [2026年08月](videos/202608 "wikilink")
 
@@ -100,23 +100,23 @@
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 28,105,726, いいね数: 419,549
+-   動画数: 111, 視聴数: 28,108,391, いいね数: 419,558
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 27,245,621, いいね数: 386,469
+-   動画数: 96, 視聴数: 27,248,016, いいね数: 386,475
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 24,983,347, いいね数: 301,262
+-   動画数: 89, 視聴数: 24,984,428, いいね数: 301,275
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 98, 視聴数: 26,906,374, いいね数: 367,196
+-   動画数: 98, 視聴数: 26,906,389, いいね数: 367,196
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 90, 視聴数: 25,087,888, いいね数: 344,267
+-   動画数: 90, 視聴数: 25,096,725, いいね数: 344,269
 
 #### [2025年12月](videos/202512 "wikilink")
 
@@ -124,11 +124,11 @@
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 14,393,030, いいね数: 188,871
+-   動画数: 79, 視聴数: 14,393,038, いいね数: 188,871
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 27,163,740, いいね数: 365,679
+-   動画数: 102, 視聴数: 27,163,767, いいね数: 365,678
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -172,11 +172,11 @@
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 23,938,966, いいね数: 384,803
+-   動画数: 38, 視聴数: 23,940,404, いいね数: 384,798
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,711,290, いいね数: 344,754
+-   動画数: 72, 視聴数: 23,711,794, いいね数: 344,744
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -255,4 +255,4 @@
 -   動画数: 14, 視聴数: 8,439,748, いいね数: 142,393
 
 ---
-2026-11-02 07:15
+2026-11-02 12:15
