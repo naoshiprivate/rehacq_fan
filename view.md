@@ -47,8 +47,8 @@
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [緊急対談　川上量生、立花孝志【ReHacQ SP】](/rehacq_fan/ids/KPwDlYmzEIA "wikilink")
     -   公開日: 2023-03-21
-    -   視聴数: 2,770,412
-    -   **いいね数: 37,142**
+    -   視聴数: 2,775,081
+    -   **いいね数: 37,125**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【衆院選2026】開票速報！結果は如何に…まったり緊急生配信【今野忍vs西田亮介vs石丸伸二vsひろゆきvs高橋弘樹】](/rehacq_fan/ids/OSAjuZ4h9KM "wikilink")
     -   公開日: 2026-02-08
@@ -65,16 +65,16 @@
     -   視聴数: 2,603,805
     -   **いいね数: 27,867**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [鈴木宗男](/rehacq_fan/people/鈴木宗男 "wikilink")
+1.  [【ひろゆきvs徳川家】徳川慶喜・明治天皇の玄孫が語る…家宝の歴史的価値、現在のお金事情とは？【ReHacQ高橋弘樹vs山岸美喜vs竹田恒泰】](/rehacq_fan/ids/GBWLEsCykyo "wikilink")
+    -   公開日: 2026-01-25
+    -   視聴数: 2,568,260
+    -   **いいね数: 25,942**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 山岸美喜, 竹田恒泰, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【Google賞金4.5億】睡眠革命！「朝型がいい」はウソ!?最新研究【柳沢正史】](/rehacq_fan/ids/IWqndzRAJnQ "wikilink")
     -   公開日: 2023-11-07
     -   視聴数: 2,533,115
     -   **いいね数: 28,782**
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ひろゆきvs徳川家】徳川慶喜・明治天皇の玄孫が語る…家宝の歴史的価値、現在のお金事情とは？【ReHacQ高橋弘樹vs山岸美喜vs竹田恒泰】](/rehacq_fan/ids/GBWLEsCykyo "wikilink")
-    -   公開日: 2026-01-25
-    -   視聴数: 2,520,589
-    -   **いいね数: 25,718**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 山岸美喜, 竹田恒泰, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs近藤大介②】激動する中国政治_習近平の権力構造と地政学リスクとは？【ReHacQ中国経済SP】](/rehacq_fan/ids/ubUYvwixxCg "wikilink")
     -   公開日: 2025-10-09
     -   視聴数: 2,512,044

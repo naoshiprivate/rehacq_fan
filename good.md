@@ -37,8 +37,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [緊急対談　川上量生、立花孝志【ReHacQ SP】](/rehacq_fan/ids/KPwDlYmzEIA "wikilink")
     -   公開日: 2023-03-21
-    -   視聴数: 2,770,412
-    -   **いいね数: 37,142**
+    -   視聴数: 2,775,081
+    -   **いいね数: 37,125**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【成田悠輔が絶賛】6歳でもわかる!?天才物理学者のガチ授業【野村泰紀】](/rehacq_fan/ids/jyAZpcjzxFU "wikilink")
     -   公開日: 2024-02-17
@@ -142,8 +142,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs徳川家】徳川慶喜・明治天皇の玄孫が語る…家宝の歴史的価値、現在のお金事情とは？【ReHacQ高橋弘樹vs山岸美喜vs竹田恒泰】](/rehacq_fan/ids/GBWLEsCykyo "wikilink")
     -   公開日: 2026-01-25
-    -   視聴数: 2,520,589
-    -   **いいね数: 25,718**
+    -   視聴数: 2,568,260
+    -   **いいね数: 25,942**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 山岸美喜, 竹田恒泰, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs会見入れなかったジャーナリスト】前代未聞の激論…なぜ？取材会見時のジャーナリスト制限に関して【ひろゆきvs横田一vs西田亮介vs箕輪厚介vs高橋弘樹ReHacQ】](/rehacq_fan/ids/23N6ICQ55-c "wikilink")
     -   公開日: 2025-01-16
