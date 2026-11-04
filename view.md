@@ -145,6 +145,11 @@
     -   視聴数: 2,036,503
     -   **いいね数: 28,346**
     -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
+    -   公開日: 2026-09-28
+    -   視聴数: 2,020,196
+    -   **いいね数: 11,932**
+    -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
     -   公開日: 2024-07-27
     -   視聴数: 1,974,571
@@ -165,11 +170,6 @@
     -   視聴数: 1,944,598
     -   **いいね数: 16,492**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
-1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
-    -   公開日: 2026-09-28
-    -   視聴数: 1,893,826
-    -   **いいね数: 11,482**
-    -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [【後藤達也vs鈴木おさむ】SMAP生んだ天才・謎のP！初めて明かされる仕事術【リスクマネジメントの鬼】](/rehacq_fan/ids/7PgJY5fY5NY "wikilink")
     -   公開日: 2024-04-26
     -   視聴数: 1,865,753
@@ -380,6 +380,11 @@
     -   視聴数: 1,288,938
     -   **いいね数: 17,530**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+1.  [【ReHacQ生配信】東出昌大が緊急参戦！一体なぜ…!? 飲みながらまったり雑談【ひろゆきvs箕輪厚介vs今野忍】](/rehacq_fan/ids/GJbXyW2YHBE "wikilink")
+    -   公開日: 2026-09-14
+    -   視聴数: 1,277,772
+    -   **いいね数: 7,920**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【なぜ高市早苗と連立？】維新・吉村代表に聞く！自民党は約束を守るのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Rx4U0L9SK9w "wikilink")
     -   公開日: 2025-10-17
     -   視聴数: 1,268,921
@@ -395,11 +400,6 @@
     -   視聴数: 1,261,396
     -   **いいね数: 20,299**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ReHacQ生配信】東出昌大が緊急参戦！一体なぜ…!? 飲みながらまったり雑談【ひろゆきvs箕輪厚介vs今野忍】](/rehacq_fan/ids/GJbXyW2YHBE "wikilink")
-    -   公開日: 2026-09-14
-    -   視聴数: 1,258,766
-    -   **いいね数: 7,859**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【ひろゆきvsビッグダディ】衝撃！究極の子育て論を展開！止まらぬ少子化に抗う術とは...【林下清志vsナレソメ勝倉】](/rehacq_fan/ids/gE1Tqo86I_Y "wikilink")
     -   公開日: 2025-07-20
     -   視聴数: 1,254,523
