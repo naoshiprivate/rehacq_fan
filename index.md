@@ -1,58 +1,58 @@
 # ReHacQ 最近の動画
 1.  [【今野忍vs斎藤幸平】聞きたいニュース！視聴者の質問に答えるニュース番組【ReHacQ高橋弘樹】](/rehacq_fan/ids/53L1XdaD1dA "wikilink")
     -   公開日: 2026-11-06
-    -   視聴数: 5,523
-    -   **いいね数: 204**
-    -   出演者: 
+    -   視聴数: 27,740
+    -   **いいね数: 600**
+    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/53L1XdaD1dA/hqdefault.jpg)](https://www.youtube.com/watch?v=53L1XdaD1dA)
 1.  [【ReHacQ生配信】横浜市長選2026！あつまれ！落選の森【今野忍vs福山あつしvs音喜多駿vs高橋弘樹】](/rehacq_fan/ids/NNiT0O1G6S0 "wikilink")
     -   公開日: 2026-11-06
-    -   視聴数: 35,270
-    -   **いいね数: 976**
-    -   出演者: 
+    -   視聴数: 35,296
+    -   **いいね数: 1,124**
+    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 福山あつし, [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/NNiT0O1G6S0/hqdefault.jpg)](https://www.youtube.com/watch?v=NNiT0O1G6S0)
 1.  [【フランス暴動】ユーロ経済圏の財政を徹底解説!!欧州に広がる抗議運動の経済への影響は【伊藤さゆり＆永濱利廣＆松尾英里子＆ReHacQ】](/rehacq_fan/ids/dJq0zvoultQ "wikilink")
     -   公開日: 2026-11-06
-    -   視聴数: 34,092
-    -   **いいね数: 246**
-    -   出演者: 
+    -   視聴数: 68,952
+    -   **いいね数: 255**
+    -   出演者: 伊藤さゆり, [松尾英里子](/rehacq_fan/people/松尾英里子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/dJq0zvoultQ/hqdefault.jpg)](https://www.youtube.com/watch?v=dJq0zvoultQ)
 1.  [【ひろゆきvs今野忍②】1700の自治体を変えるには？ひろゆき&いずみ新党（仮）の目指すビジョンとは？【ReHacQvs東国原英夫】](/rehacq_fan/ids/nSQFL1Y4wVI "wikilink")
     -   公開日: 2026-11-06
-    -   視聴数: 69,280
-    -   **いいね数: 865**
-    -   出演者: 
+    -   視聴数: 78,644
+    -   **いいね数: 894**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 東国原英夫
     - [![](https://img.youtube.com/vi/nSQFL1Y4wVI/hqdefault.jpg)](https://www.youtube.com/watch?v=nSQFL1Y4wVI)
 1.  [【石丸伸二vsひろゆき】緊急生配信！アメリカ中間選挙日本への影響は？【ReHacQvs西田亮介】](/rehacq_fan/ids/Z9bbRkITIVg "wikilink")
     -   公開日: 2026-11-05
-    -   視聴数: 629,304
-    -   **いいね数: 6,576**
-    -   出演者: 
+    -   視聴数: 640,811
+    -   **いいね数: 6,636**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
     - [![](https://img.youtube.com/vi/Z9bbRkITIVg/hqdefault.jpg)](https://www.youtube.com/watch?v=Z9bbRkITIVg)
 
 # ReHacQの人気動画
 ## 最近の人気動画
 1.  [【石丸伸二vsひろゆき】緊急生配信！アメリカ中間選挙日本への影響は？【ReHacQvs西田亮介】](/rehacq_fan/ids/Z9bbRkITIVg "wikilink")
     -   公開日: 2026-11-05
-    -   視聴数: 629,304
-    -   **いいね数: 6,576**
-    -   出演者: 
+    -   視聴数: 640,811
+    -   **いいね数: 6,636**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
     - [![](https://img.youtube.com/vi/Z9bbRkITIVg/hqdefault.jpg)](https://www.youtube.com/watch?v=Z9bbRkITIVg)
 1.  [【後藤達也vsアメリカ中間選挙】民主党が歴史的勝利？トランプ政権の命運は？【前嶋和弘vs小谷哲男】](/rehacq_fan/ids/zBmFgRxJ09Q "wikilink")
     -   公開日: 2026-11-04
-    -   視聴数: 524,822
-    -   **いいね数: 2,995**
-    -   出演者: 
+    -   視聴数: 526,084
+    -   **いいね数: 2,997**
+    -   出演者: [前嶋和弘](/rehacq_fan/people/前嶋和弘 "wikilink"), [小谷哲男](/rehacq_fan/people/小谷哲男 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
     - [![](https://img.youtube.com/vi/zBmFgRxJ09Q/hqdefault.jpg)](https://www.youtube.com/watch?v=zBmFgRxJ09Q)
 1.  [【今野忍vs安野貴博】激論100分！完全版サイバー攻撃の未来…情報漏洩の危険性【ReHacQ】](/rehacq_fan/ids/fOMv6nbkC8E "wikilink")
     -   公開日: 2026-11-01
-    -   視聴数: 712,097
-    -   **いいね数: 5,816**
-    -   出演者: 
+    -   視聴数: 712,712
+    -   **いいね数: 5,820**
+    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [安野貴博](/rehacq_fan/people/安野貴博 "wikilink")
     - [![](https://img.youtube.com/vi/fOMv6nbkC8E/hqdefault.jpg)](https://www.youtube.com/watch?v=fOMv6nbkC8E)
 1.  [【今野忍vs箕輪厚介vs高橋弘樹】ロケ中緊急事態発生!?福岡の島旅を振り返り生配信【ReHacQ旅in福岡③鑑賞会】](/rehacq_fan/ids/yhPeZLBv9Pw "wikilink")
     -   公開日: 2026-10-31
-    -   視聴数: 675,162
+    -   視聴数: 675,511
     -   **いいね数: 3,543**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/yhPeZLBv9Pw/hqdefault.jpg)](https://www.youtube.com/watch?v=yhPeZLBv9Pw)
@@ -76,11 +76,11 @@
 ## 時系列データ
 #### [2026年11月](videos/202611 "wikilink")
 
--   動画数: 17, 視聴数: 4,488,695, いいね数: 36,252
+-   動画数: 17, 視聴数: 4,578,290, いいね数: 36,930
 
 #### [2026年10月](videos/202610 "wikilink")
 
--   動画数: 81, 視聴数: 31,831,750, いいね数: 216,049
+-   動画数: 81, 視聴数: 31,832,338, いいね数: 216,051
 
 #### [2026年09月](videos/202609 "wikilink")
 
@@ -100,15 +100,15 @@
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 28,176,229, いいね数: 419,914
+-   動画数: 111, 視聴数: 28,176,378, いいね数: 419,912
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 27,269,360, いいね数: 386,527
+-   動画数: 96, 視聴数: 27,271,617, いいね数: 386,602
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 25,066,117, いいね数: 301,599
+-   動画数: 89, 視聴数: 25,066,343, いいね数: 301,597
 
 #### [2026年02月](videos/202602 "wikilink")
 
@@ -120,7 +120,7 @@
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 83, 視聴数: 21,303,644, いいね数: 232,929
+-   動画数: 83, 視聴数: 21,309,835, いいね数: 232,931
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -132,7 +132,7 @@
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 19,270,548, いいね数: 287,071
+-   動画数: 87, 視聴数: 19,270,991, いいね数: 287,079
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -140,11 +140,11 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 24,187,277, いいね数: 389,712
+-   動画数: 76, 視聴数: 24,187,335, いいね数: 389,712
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 19,803,684, いいね数: 330,231
+-   動画数: 78, 視聴数: 19,803,820, いいね数: 330,234
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -176,7 +176,7 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 23,722,038, いいね数: 344,709
+-   動画数: 72, 視聴数: 23,723,260, いいね数: 344,701
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -255,4 +255,4 @@
 -   動画数: 14, 視聴数: 8,466,596, いいね数: 142,392
 
 ---
-2026-11-06 23:15
+2026-11-07 00:15
