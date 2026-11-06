@@ -1,6 +1,6 @@
 ### [【動画戦略vs企業PR】動画がつまらない？社内ウケの地獄…面白さで選ばれるワケとは？【有隣堂＆ReHacQ】](https://www.youtube.com/watch?v=DMboJFjpDVc)
 [![](https://img.youtube.com/vi/DMboJFjpDVc/sddefault.jpg)](https://www.youtube.com/watch?v=DMboJFjpDVc)
 -   公開日: 2026-11-02
--   視聴数: 209,762
--   **いいね数: 2,248**
+-   視聴数: 210,018
+-   **いいね数: 2,252**
 -   出演者: 
