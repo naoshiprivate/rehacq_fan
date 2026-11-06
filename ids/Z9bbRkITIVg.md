@@ -1,6 +1,6 @@
 ### [【石丸伸二vsひろゆき】緊急生配信！アメリカ中間選挙日本への影響は？【ReHacQvs西田亮介】](https://www.youtube.com/watch?v=Z9bbRkITIVg)
 [![](https://img.youtube.com/vi/Z9bbRkITIVg/sddefault.jpg)](https://www.youtube.com/watch?v=Z9bbRkITIVg)
 -   公開日: 2026-11-05
--   視聴数: 540,729
--   **いいね数: 5,369**
+-   視聴数: 553,111
+-   **いいね数: 5,546**
 -   出演者: 
