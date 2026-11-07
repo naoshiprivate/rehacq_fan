@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/dJq0zvoultQ/sddefault.jpg)](https://www.youtube.com/watch?v=dJq0zvoultQ)
 -   公開日: 2026-11-06
 -   視聴数: 106,570
--   **いいね数: 302**
+-   **いいね数: 344**
 -   出演者: 伊藤さゆり, [松尾英里子](/rehacq_fan/people/松尾英里子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")

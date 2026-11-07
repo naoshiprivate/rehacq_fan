@@ -1,6 +1,6 @@
 ### [【動画戦略vs企業PR】動画がつまらない？社内ウケの地獄…面白さで選ばれるワケとは？【有隣堂＆ReHacQ】](https://www.youtube.com/watch?v=DMboJFjpDVc)
 [![](https://img.youtube.com/vi/DMboJFjpDVc/sddefault.jpg)](https://www.youtube.com/watch?v=DMboJFjpDVc)
 -   公開日: 2026-11-02
--   視聴数: 213,123
--   **いいね数: 2,269**
+-   視聴数: 213,884
+-   **いいね数: 2,279**
 -   出演者: R.B.ブッコロー, ハヤシユタカ, [リハックマ](/rehacq_fan/people/リハックマ "wikilink")
