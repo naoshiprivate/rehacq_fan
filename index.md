@@ -1,53 +1,53 @@
 # ReHacQ 最近の動画
+1.  [【ReHacQ討論会】愛媛県松山市長選挙ネット討論会【高橋弘樹vs木下ごうvs田中エリナvs田中野たいせい】](/rehacq_fan/ids/HK9iA42LHuw "wikilink")
+    -   公開日: 2026-11-07
+    -   視聴数: 3,060
+    -   **いいね数: 88**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/HK9iA42LHuw/hqdefault.jpg)](https://www.youtube.com/watch?v=HK9iA42LHuw)
+1.  [【緊急生配信】光文社「FLASH」訴訟について【ReHacQvs高橋弘樹vs箕輪厚介】](/rehacq_fan/ids/n9e5hpr4vJs "wikilink")
+    -   公開日: 2026-11-07
+    -   視聴数: 170,096
+    -   **いいね数: 1,838**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/n9e5hpr4vJs/hqdefault.jpg)](https://www.youtube.com/watch?v=n9e5hpr4vJs)
 1.  [【清水宏保vs田中渓】緊張は消さなくて良い？世界一が実践！金メダリストの本番力とは？【ReHacQ】](/rehacq_fan/ids/3K9LsvR2UVI "wikilink")
     -   公開日: 2026-11-07
-    -   視聴数: 1,515
-    -   **いいね数: 91**
+    -   視聴数: 45,011
+    -   **いいね数: 302**
     -   出演者: 清水宏保, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
     - [![](https://img.youtube.com/vi/3K9LsvR2UVI/hqdefault.jpg)](https://www.youtube.com/watch?v=3K9LsvR2UVI)
 1.  [【今野忍vs斎藤幸平】聞きたいニュース！視聴者の質問に答えるニュース番組【ReHacQ高橋弘樹】](/rehacq_fan/ids/53L1XdaD1dA "wikilink")
     -   公開日: 2026-11-06
-    -   視聴数: 360,731
-    -   **いいね数: 2,267**
+    -   視聴数: 431,700
+    -   **いいね数: 2,788**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/53L1XdaD1dA/hqdefault.jpg)](https://www.youtube.com/watch?v=53L1XdaD1dA)
 1.  [【ReHacQ生配信】横浜市長選2026！あつまれ！落選の森【今野忍vs福山あつしvs音喜多駿vs高橋弘樹】](/rehacq_fan/ids/NNiT0O1G6S0 "wikilink")
     -   公開日: 2026-11-06
-    -   視聴数: 237,046
-    -   **いいね数: 1,662**
+    -   視聴数: 256,585
+    -   **いいね数: 1,819**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 福山あつし, [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/NNiT0O1G6S0/hqdefault.jpg)](https://www.youtube.com/watch?v=NNiT0O1G6S0)
-1.  [【フランス暴動】ユーロ経済圏の財政を徹底解説!!欧州に広がる抗議運動の経済への影響は【伊藤さゆり＆永濱利廣＆松尾英里子＆ReHacQ】](/rehacq_fan/ids/dJq0zvoultQ "wikilink")
-    -   公開日: 2026-11-06
-    -   視聴数: 107,294
-    -   **いいね数: 350**
-    -   出演者: 伊藤さゆり, [松尾英里子](/rehacq_fan/people/松尾英里子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
-    - [![](https://img.youtube.com/vi/dJq0zvoultQ/hqdefault.jpg)](https://www.youtube.com/watch?v=dJq0zvoultQ)
-1.  [【ひろゆきvs今野忍②】1700の自治体を変えるには？ひろゆき&いずみ新党（仮）の目指すビジョンとは？【ReHacQvs東国原英夫】](/rehacq_fan/ids/nSQFL1Y4wVI "wikilink")
-    -   公開日: 2026-11-06
-    -   視聴数: 125,653
-    -   **いいね数: 1,021**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 東国原英夫
-    - [![](https://img.youtube.com/vi/nSQFL1Y4wVI/hqdefault.jpg)](https://www.youtube.com/watch?v=nSQFL1Y4wVI)
 
 # ReHacQの人気動画
 ## 最近の人気動画
 1.  [【石丸伸二vsひろゆき】緊急生配信！アメリカ中間選挙日本への影響は？【ReHacQvs西田亮介】](/rehacq_fan/ids/Z9bbRkITIVg "wikilink")
     -   公開日: 2026-11-05
-    -   視聴数: 715,765
-    -   **いいね数: 6,935**
+    -   視聴数: 736,908
+    -   **いいね数: 7,093**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
     - [![](https://img.youtube.com/vi/Z9bbRkITIVg/hqdefault.jpg)](https://www.youtube.com/watch?v=Z9bbRkITIVg)
 1.  [【後藤達也vsアメリカ中間選挙】民主党が歴史的勝利？トランプ政権の命運は？【前嶋和弘vs小谷哲男】](/rehacq_fan/ids/zBmFgRxJ09Q "wikilink")
     -   公開日: 2026-11-04
-    -   視聴数: 535,639
-    -   **いいね数: 3,018**
+    -   視聴数: 539,473
+    -   **いいね数: 3,037**
     -   出演者: [前嶋和弘](/rehacq_fan/people/前嶋和弘 "wikilink"), [小谷哲男](/rehacq_fan/people/小谷哲男 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
     - [![](https://img.youtube.com/vi/zBmFgRxJ09Q/hqdefault.jpg)](https://www.youtube.com/watch?v=zBmFgRxJ09Q)
 1.  [【今野忍vs安野貴博】激論100分！完全版サイバー攻撃の未来…情報漏洩の危険性【ReHacQ】](/rehacq_fan/ids/fOMv6nbkC8E "wikilink")
     -   公開日: 2026-11-01
-    -   視聴数: 719,748
-    -   **いいね数: 5,856**
+    -   視聴数: 723,970
+    -   **いいね数: 5,888**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [安野貴博](/rehacq_fan/people/安野貴博 "wikilink")
     - [![](https://img.youtube.com/vi/fOMv6nbkC8E/hqdefault.jpg)](https://www.youtube.com/watch?v=fOMv6nbkC8E)
 1.  [【今野忍vs箕輪厚介vs高橋弘樹】ロケ中緊急事態発生!?福岡の島旅を振り返り生配信【ReHacQ旅in福岡③鑑賞会】](/rehacq_fan/ids/yhPeZLBv9Pw "wikilink")
@@ -76,7 +76,7 @@
 ## 時系列データ
 #### [2026年11月](videos/202611 "wikilink")
 
--   動画数: 18, 視聴数: 5,356,846, いいね数: 40,106
+-   動画数: 20, 視聴数: 5,749,860, いいね数: 43,555
 
 #### [2026年10月](videos/202610 "wikilink")
 
@@ -84,7 +84,7 @@
 
 #### [2026年09月](videos/202609 "wikilink")
 
--   動画数: 76, 視聴数: 28,762,163, いいね数: 167,598
+-   動画数: 76, 視聴数: 28,765,451, いいね数: 167,613
 
 #### [2026年08月](videos/202608 "wikilink")
 
@@ -96,19 +96,19 @@
 
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 92, 視聴数: 18,615,890, いいね数: 226,987
+-   動画数: 92, 視聴数: 18,628,898, いいね数: 227,028
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 111, 視聴数: 28,249,302, いいね数: 420,438
+-   動画数: 111, 視聴数: 28,249,341, いいね数: 420,437
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 96, 視聴数: 27,271,617, いいね数: 386,602
+-   動画数: 96, 視聴数: 27,274,015, いいね数: 386,599
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 89, 視聴数: 25,131,299, いいね数: 301,702
+-   動画数: 89, 視聴数: 25,131,315, いいね数: 301,702
 
 #### [2026年02月](videos/202602 "wikilink")
 
@@ -128,11 +128,11 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 27,175,130, いいね数: 365,732
+-   動画数: 102, 視聴数: 27,176,348, いいね数: 365,734
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 19,272,567, いいね数: 287,078
+-   動画数: 87, 視聴数: 19,272,771, いいね数: 287,078
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -180,11 +180,11 @@
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 16,009,115, いいね数: 228,328
+-   動画数: 50, 視聴数: 16,009,695, いいね数: 228,319
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 22,591,577, いいね数: 345,840
+-   動画数: 43, 視聴数: 22,595,392, いいね数: 345,845
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -255,4 +255,4 @@
 -   動画数: 14, 視聴数: 8,466,596, いいね数: 142,392
 
 ---
-2026-11-07 13:15
+2026-11-07 20:15
