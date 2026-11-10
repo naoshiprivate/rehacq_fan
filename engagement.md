@@ -30,8 +30,8 @@
 1. [スザンヌ](/rehacq_fan/people/スザンヌ): 1.28 (58)
 1. [西田亮介](/rehacq_fan/people/西田亮介): 1.26 (195)
 1. [河村真木子](/rehacq_fan/people/河村真木子): 1.26 (11)
-1. [東出昌大](/rehacq_fan/people/東出昌大): 1.25 (26)
 1. [成田修造](/rehacq_fan/people/成田修造): 1.25 (31)
+1. [東留伽](/rehacq_fan/people/東留伽): 1.25 (13)
 
 
 # 平均いいね数ランキング
@@ -41,7 +41,7 @@
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 7,683 (32)
 1. [西田亮介](/rehacq_fan/people/西田亮介): 7,143 (195)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 7,070 (38)
-1. [東出昌大](/rehacq_fan/people/東出昌大): 6,441 (26)
+1. [東出昌大](/rehacq_fan/people/東出昌大): 6,445 (26)
 1. [ひろゆき](/rehacq_fan/people/ひろゆき): 6,379 (284)
 1. [勝倉千尋](/rehacq_fan/people/勝倉千尋): 6,272 (13)
 1. [今野忍](/rehacq_fan/people/今野忍): 6,240 (97)
@@ -55,22 +55,22 @@
 1. [足立康史](/rehacq_fan/people/足立康史): 5,304 (11)
 1. [後藤達也](/rehacq_fan/people/後藤達也): 5,248 (168)
 1. [黒岩里奈](/rehacq_fan/people/黒岩里奈): 5,171 (13)
-1. [呉座勇一](/rehacq_fan/people/呉座勇一): 5,161 (23)
+1. [呉座勇一](/rehacq_fan/people/呉座勇一): 5,166 (23)
 
 
 # 平均視聴数ランキング
 
-1. [呉座勇一](/rehacq_fan/people/呉座勇一): 722,764 (23)
+1. [呉座勇一](/rehacq_fan/people/呉座勇一): 724,140 (23)
 1. [吉村洋文](/rehacq_fan/people/吉村洋文): 663,469 (14)
-1. [今野忍](/rehacq_fan/people/今野忍): 585,784 (97)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 574,883 (187)
-1. [西田亮介](/rehacq_fan/people/西田亮介): 564,710 (195)
+1. [今野忍](/rehacq_fan/people/今野忍): 585,811 (97)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 574,888 (187)
+1. [西田亮介](/rehacq_fan/people/西田亮介): 564,733 (195)
 1. [中谷一馬](/rehacq_fan/people/中谷一馬): 546,726 (13)
-1. [ひろゆき](/rehacq_fan/people/ひろゆき): 532,718 (284)
+1. [ひろゆき](/rehacq_fan/people/ひろゆき): 532,741 (284)
 1. [中室牧子](/rehacq_fan/people/中室牧子): 528,723 (11)
-1. [音喜多駿](/rehacq_fan/people/音喜多駿): 526,597 (38)
-1. [成田悠輔](/rehacq_fan/people/成田悠輔): 517,882 (32)
-1. [東出昌大](/rehacq_fan/people/東出昌大): 514,746 (26)
+1. [音喜多駿](/rehacq_fan/people/音喜多駿): 526,602 (38)
+1. [成田悠輔](/rehacq_fan/people/成田悠輔): 518,002 (32)
+1. [東出昌大](/rehacq_fan/people/東出昌大): 516,141 (26)
 1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 514,234 (63)
 1. [野村泰紀](/rehacq_fan/people/野村泰紀): 504,242 (34)
 1. [宇佐美典也](/rehacq_fan/people/宇佐美典也): 502,531 (14)
