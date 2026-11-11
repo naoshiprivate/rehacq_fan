@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】東京都品川区長選挙ネット討論会【高橋弘樹vs森沢きょうこvs浜田けんたろう】](https://www.youtube.com/watch?v=v3H3dhGbM2Y)
 [![](https://img.youtube.com/vi/v3H3dhGbM2Y/sddefault.jpg)](https://www.youtube.com/watch?v=v3H3dhGbM2Y)
 -   公開日: 2026-11-10
--   視聴数: 43,938
--   **いいね数: 196**
+-   視聴数: 55,204
+-   **いいね数: 214**
 -   出演者: 

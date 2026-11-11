@@ -420,16 +420,16 @@
     -   視聴数: 1,232,791
     -   **いいね数: 17,855**
     -   出演者: 山田悠史, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【石丸伸二vsひろゆき】高市早苗が首相に指名！自維連立政権発足へ…日本どうなる！？まったり雑談【ReHacQ高橋弘樹vs西田亮介vs土田しんvs音喜多駿vs小西ひろゆき】](/rehacq_fan/ids/FLpXxsuYKls "wikilink")
+    -   公開日: 2025-10-21
+    -   視聴数: 1,231,753
+    -   **いいね数: 10,479**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [土田しん](/rehacq_fan/people/土田しん "wikilink"), [小西ひろゆき](/rehacq_fan/people/小西ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](/rehacq_fan/ids/arcYBqJcY8w "wikilink")
     -   公開日: 2024-01-27
     -   視聴数: 1,231,198
     -   **いいね数: 15,133**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
-1.  [【石丸伸二vsひろゆき】高市早苗が首相に指名！自維連立政権発足へ…日本どうなる！？まったり雑談【ReHacQ高橋弘樹vs西田亮介vs土田しんvs音喜多駿vs小西ひろゆき】](/rehacq_fan/ids/FLpXxsuYKls "wikilink")
-    -   公開日: 2025-10-21
-    -   視聴数: 1,230,999
-    -   **いいね数: 10,485**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [土田しん](/rehacq_fan/people/土田しん "wikilink"), [小西ひろゆき](/rehacq_fan/people/小西ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン】年収1億円…行く人、行かない人違いは？【ReHacQ】](/rehacq_fan/ids/Ipck99H_vjU "wikilink")
     -   公開日: 2025-01-13
     -   視聴数: 1,225,035
