@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】兵庫県尼崎市長選挙ネット討論会【高橋弘樹vs福永かつや】](https://www.youtube.com/watch?v=eU8iz3_aNF4)
 [![](https://img.youtube.com/vi/eU8iz3_aNF4/sddefault.jpg)](https://www.youtube.com/watch?v=eU8iz3_aNF4)
 -   公開日: 2026-11-11
--   視聴数: 226,001
--   **いいね数: 4,177**
+-   視聴数: 232,262
+-   **いいね数: 4,237**
 -   出演者: 
