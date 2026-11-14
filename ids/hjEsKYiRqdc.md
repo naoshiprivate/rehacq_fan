@@ -1,6 +1,6 @@
 ### [【須賀川拓vsイスラエル兵】覆面の兵士が激白、イスラエルを去った医師1,370人…なぜ？＆まるで異世界…ユダヤ教超正統派の街【ReHacQ今野忍・高橋和夫】](https://www.youtube.com/watch?v=hjEsKYiRqdc)
 [![](https://img.youtube.com/vi/hjEsKYiRqdc/sddefault.jpg)](https://www.youtube.com/watch?v=hjEsKYiRqdc)
 -   公開日: 2026-11-07
--   視聴数: 316,890
--   **いいね数: 1,929**
--   出演者: 
+-   視聴数: 317,773
+-   **いいね数: 1,936**
+-   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋和夫](/rehacq_fan/people/高橋和夫 "wikilink")

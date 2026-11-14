@@ -3,4 +3,4 @@
 -   公開日: 2026-01-23
 -   視聴数: 548,310
 -   **いいね数: 4,358**
--   出演者: [にいみ彰平](/rehacq_fan/people/にいみ彰平 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 奥村祥大, [小西ひろゆき](/rehacq_fan/people/小西ひろゆき "wikilink"), 山添拓, 滝波宏文, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [にいみ彰平](/rehacq_fan/people/にいみ彰平 "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), 奥村祥大, [小西ひろゆき](/rehacq_fan/people/小西ひろゆき "wikilink"), [山添拓](/rehacq_fan/people/山添拓 "wikilink"), 滝波宏文, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

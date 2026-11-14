@@ -3,4 +3,4 @@
 -   公開日: 2026-03-20
 -   視聴数: 53,997
 -   **いいね数: 564**
--   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), 片岡剛士
+-   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [片岡剛士](/rehacq_fan/people/片岡剛士 "wikilink")
