@@ -3,4 +3,4 @@
 -   公開日: 2026-10-06
 -   視聴数: 711,256
 -   **いいね数: 4,443**
--   出演者: 阿部欣司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [阿部欣司](/rehacq_fan/people/阿部欣司 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
