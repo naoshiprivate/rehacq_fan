@@ -112,8 +112,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs吉村洋文】共闘宣言!?自浄作用なき政治、改革するには？【高橋弘樹】](/rehacq_fan/ids/XKGshW6xD1k "wikilink")
     -   公開日: 2024-08-31
-    -   視聴数: 2,225,181
-    -   **いいね数: 38,136**
+    -   視聴数: 2,226,496
+    -   **いいね数: 38,115**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【西田亮介vs米山隆一】SNSと政治についてガチ討論！デマや誹謗中傷など課題山積...これからどうなる？【ReHacQ高橋弘樹】](/rehacq_fan/ids/B5-KBz_t3wU "wikilink")
     -   公開日: 2025-04-29
@@ -310,6 +310,11 @@
     -   視聴数: 1,468,738
     -   **いいね数: 20,415**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
+1.  [【高橋弘樹vsヤバい日本史】もっと歴史が好きになる！紫式部の性格は最悪？豊臣秀吉の裏の顔とは？【ReHacQvs本郷和人】](/rehacq_fan/ids/IIrCRGp9RCI "wikilink")
+    -   公開日: 2026-06-29
+    -   視聴数: 1,467,050
+    -   **いいね数: 9,770**
+    -   出演者: [本郷和人](/rehacq_fan/people/本郷和人 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs近藤大介】中国人と日本人は似てると思うと失敗する？習近平はどこへ向かうのか？【ReHacQ中国経済SP】](/rehacq_fan/ids/MBD3k2kLnD8 "wikilink")
     -   公開日: 2025-09-30
     -   視聴数: 1,444,076
@@ -345,11 +350,6 @@
     -   視聴数: 1,348,733
     -   **いいね数: 30,778**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【高橋弘樹vsヤバい日本史】もっと歴史が好きになる！紫式部の性格は最悪？豊臣秀吉の裏の顔とは？【ReHacQvs本郷和人】](/rehacq_fan/ids/IIrCRGp9RCI "wikilink")
-    -   公開日: 2026-06-29
-    -   視聴数: 1,347,696
-    -   **いいね数: 9,427**
-    -   出演者: [本郷和人](/rehacq_fan/people/本郷和人 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
     -   公開日: 2026-02-13
     -   視聴数: 1,330,786
