@@ -80,6 +80,11 @@
     -   視聴数: 2,524,914
     -   **いいね数: 16,260**
     -   出演者: [近藤大介](/rehacq_fan/people/近藤大介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【緊急出演！独占告白】元指名手配犯 菊地直子！17年の逃亡…なぜ？！地下鉄サリン事件後逃げたワケは？逮捕の経緯は？無罪確定でも…【ReHacQ高橋弘樹vs元オウム真理教信者】](/rehacq_fan/ids/1CqVQj5yKkk "wikilink")
+    -   公開日: 2026-11-17
+    -   視聴数: 2,505,795
+    -   **いいね数: 18,799**
+    -   出演者: 菊地直子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs高市早苗】高市早苗が描く“強い日本”構想　減税・国防・外国人政策の行方は？【ReHacQ総裁選SP】](/rehacq_fan/ids/gvhsrihOCrc "wikilink")
     -   公開日: 2025-09-26
     -   視聴数: 2,484,732
@@ -90,11 +95,6 @@
     -   視聴数: 2,456,812
     -   **いいね数: 32,916**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【緊急出演！独占告白】元指名手配犯 菊地直子！17年の逃亡…なぜ？！地下鉄サリン事件後逃げたワケは？逮捕の経緯は？無罪確定でも…【ReHacQ高橋弘樹vs元オウム真理教信者】](/rehacq_fan/ids/1CqVQj5yKkk "wikilink")
-    -   公開日: 2026-11-17
-    -   視聴数: 2,447,238
-    -   **いいね数: 18,498**
-    -   出演者: 菊地直子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs鈴木宗男】ウクライナ侵攻に持論…ロシアの思惑は？【日本維新の会・副代表】](/rehacq_fan/ids/Thz0fKoe98c "wikilink")
     -   公開日: 2023-07-23
     -   視聴数: 2,420,127
@@ -140,6 +140,11 @@
     -   視聴数: 2,067,368
     -   **いいね数: 17,775**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
+1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
+    -   公開日: 2026-09-28
+    -   視聴数: 2,064,239
+    -   **いいね数: 12,156**
+    -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン・サックス】年収3億だけど「二度と戻りたくない」外資系投資会社で感じた限界とは？【ReHacQ】](/rehacq_fan/ids/dKXQC1J0VLw "wikilink")
     -   公開日: 2025-07-29
     -   視聴数: 2,061,328
@@ -155,11 +160,6 @@
     -   視聴数: 2,040,933
     -   **いいね数: 28,340**
     -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-1.  [【壇蜜vs田中渓】人生変わった29歳…デビュー秘話と夫にも見せない日記の中の裏の顔とは？【ReHacQ】](/rehacq_fan/ids/ZMij1z4NOgo "wikilink")
-    -   公開日: 2026-09-28
-    -   視聴数: 2,020,196
-    -   **いいね数: 11,932**
-    -   出演者: 壇蜜, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
 1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/y0QYGfiKyj8 "wikilink")
     -   公開日: 2025-12-22
     -   視聴数: 2,004,955
@@ -362,8 +362,8 @@
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【林真理子が緊急出演】120分ガチ人生相談！50代は危機？80代は終わり？一番辛かった時は？恋愛,仕事,人生振り返りSP【ReHacQ高橋弘樹vs箕輪厚介】](/rehacq_fan/ids/qb6hvQpwVyg "wikilink")
     -   公開日: 2026-11-13
-    -   視聴数: 1,320,926
-    -   **いいね数: 10,924**
+    -   視聴数: 1,330,168
+    -   **いいね数: 11,002**
     -   出演者: 林真理子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs小西洋之】改憲の論点は？…「サルと同じ」発言の真相【なんで更迭されたんですか？】](/rehacq_fan/ids/h11UzRqjXyM "wikilink")
     -   公開日: 2023-08-20
@@ -380,6 +380,11 @@
     -   視聴数: 1,297,064
     -   **いいね数: 18,777**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+1.  [【ReHacQ生配信】東出昌大が緊急参戦！一体なぜ…!? 飲みながらまったり雑談【ひろゆきvs箕輪厚介vs今野忍】](/rehacq_fan/ids/GJbXyW2YHBE "wikilink")
+    -   公開日: 2026-09-14
+    -   視聴数: 1,296,837
+    -   **いいね数: 8,003**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](/rehacq_fan/ids/JxdSFPP3_Bg "wikilink")
     -   公開日: 2025-05-13
     -   視聴数: 1,291,247
@@ -390,11 +395,6 @@
     -   視聴数: 1,289,407
     -   **いいね数: 17,525**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【ReHacQ生配信】東出昌大が緊急参戦！一体なぜ…!? 飲みながらまったり雑談【ひろゆきvs箕輪厚介vs今野忍】](/rehacq_fan/ids/GJbXyW2YHBE "wikilink")
-    -   公開日: 2026-09-14
-    -   視聴数: 1,277,772
-    -   **いいね数: 7,920**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
 1.  [【衆院選2026】あつまれ！落選の森...今後どうする？まったり緊急生配信【中谷一馬vs川上りゅうせいvs吉田あやvs今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/HEsGRg73oiw "wikilink")
     -   公開日: 2026-02-09
     -   視聴数: 1,270,405
