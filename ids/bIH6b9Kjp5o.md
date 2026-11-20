@@ -3,4 +3,4 @@
 -   公開日: 2025-10-31
 -   視聴数: 55,542
 -   **いいね数: 634**
--   出演者: 安井明彦, [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [馬渕磨理子](/rehacq_fan/people/馬渕磨理子 "wikilink")
+-   出演者: [安井明彦](/rehacq_fan/people/安井明彦 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [馬渕磨理子](/rehacq_fan/people/馬渕磨理子 "wikilink")

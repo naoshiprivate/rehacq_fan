@@ -3,4 +3,4 @@
 -   公開日: 2026-03-14
 -   視聴数: 1,705,163
 -   **いいね数: 15,005**
--   出演者: 出口保行, [尾崎里紗](/rehacq_fan/people/尾崎里紗 "wikilink")
+-   出演者: [出口保行](/rehacq_fan/people/出口保行 "wikilink"), [尾崎里紗](/rehacq_fan/people/尾崎里紗 "wikilink")
