@@ -57,8 +57,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急出演！独占告白】元指名手配犯 菊地直子！17年の逃亡…なぜ？！地下鉄サリン事件後逃げたワケは？逮捕の経緯は？無罪確定でも…【ReHacQ高橋弘樹vs元オウム真理教信者】](/rehacq_fan/ids/1CqVQj5yKkk "wikilink")
     -   公開日: 2026-11-17
-    -   視聴数: 2,700,231
-    -   **いいね数: 19,596**
+    -   視聴数: 2,707,291
+    -   **いいね数: 19,667**
     -   出演者: 菊地直子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【衝撃の最終兵器】「政治と金」問題に激震…岸田総理は1.8億円！玉木雄一郎代表は…？政治家のお金の流れ全部サクッと検索！衝撃ツールとは!?【自民党&国民民主党&立憲民主党&維新…ReHacQ】](/rehacq_fan/ids/3Hfpr-_7Ykg "wikilink")
     -   公開日: 2025-04-13
@@ -165,20 +165,20 @@
     -   視聴数: 2,004,955
     -   **いいね数: 23,190**
     -   出演者: [小林弘幸](/rehacq_fan/people/小林弘幸 "wikilink"), [松丸友紀](/rehacq_fan/people/松丸友紀 "wikilink")
+1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](/rehacq_fan/ids/4G8qsbpfLNo "wikilink")
+    -   公開日: 2024-02-20
+    -   視聴数: 1,996,271
+    -   **いいね数: 17,295**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
     -   公開日: 2024-07-27
     -   視聴数: 1,986,107
     -   **いいね数: 18,455**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](/rehacq_fan/ids/4G8qsbpfLNo "wikilink")
-    -   公開日: 2024-02-20
-    -   視聴数: 1,977,275
-    -   **いいね数: 17,239**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
     -   公開日: 2024-02-12
-    -   視聴数: 1,947,459
-    -   **いいね数: 16,502**
+    -   視聴数: 1,952,435
+    -   **いいね数: 16,518**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【坂上忍vsひろゆきvs箕輪厚介】動物に年間１億円！？保護犬保護猫の闇…芸能活動引退後を語る【ReHacQ】](/rehacq_fan/ids/E4WP-h_fhUc "wikilink")
     -   公開日: 2026-05-10
@@ -345,16 +345,16 @@
     -   視聴数: 1,389,140
     -   **いいね数: 13,232**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), [岩田明子](/rehacq_fan/people/岩田明子 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [菅野志桜里](/rehacq_fan/people/菅野志桜里 "wikilink")
+1.  [【林真理子が緊急出演】120分ガチ人生相談！50代は危機？80代は終わり？一番辛かった時は？恋愛,仕事,人生振り返りSP【ReHacQ高橋弘樹vs箕輪厚介】](/rehacq_fan/ids/qb6hvQpwVyg "wikilink")
+    -   公開日: 2026-11-13
+    -   視聴数: 1,374,866
+    -   **いいね数: 11,282**
+    -   出演者: 林真理子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs後藤達也】為替は日銀構文を読め！トランプと株式市場【元NY専門家が予測】](/rehacq_fan/ids/7_sdf9uZUiU "wikilink")
     -   公開日: 2024-07-31
     -   視聴数: 1,373,245
     -   **いいね数: 21,353**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【林真理子が緊急出演】120分ガチ人生相談！50代は危機？80代は終わり？一番辛かった時は？恋愛,仕事,人生振り返りSP【ReHacQ高橋弘樹vs箕輪厚介】](/rehacq_fan/ids/qb6hvQpwVyg "wikilink")
-    -   公開日: 2026-11-13
-    -   視聴数: 1,372,528
-    -   **いいね数: 11,259**
-    -   出演者: 林真理子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
     -   視聴数: 1,348,733
@@ -420,6 +420,11 @@
     -   視聴数: 1,263,344
     -   **いいね数: 11,494**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), 林下清志
+1.  [【藤田晋が緊急出演】「人生は不平等、だから…」メディア最後の出演！全ビジネスパーソンに伝えたい事【ReHacQ高橋弘樹】](/rehacq_fan/ids/kT34SGVBs6Y "wikilink")
+    -   公開日: 2025-12-13
+    -   視聴数: 1,254,274
+    -   **いいね数: 12,437**
+    -   出演者: 藤田晋, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](/rehacq_fan/ids/LyfcqUBmBlc "wikilink")
     -   公開日: 2024-06-15
     -   視聴数: 1,249,985
@@ -495,8 +500,3 @@
     -   視聴数: 1,198,374
     -   **いいね数: 19,688**
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【後藤達也vs今野忍②】日銀利上げの真実…適切な為替水準とは【ReHacQ】](/rehacq_fan/ids/VhkHBQJ284 "wikilink")
-    -   公開日: 2026-10-08
-    -   視聴数: 1,196,061
-    -   **いいね数: 9,898**
-    -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")

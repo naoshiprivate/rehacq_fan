@@ -312,8 +312,8 @@
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急出演！独占告白】元指名手配犯 菊地直子！17年の逃亡…なぜ？！地下鉄サリン事件後逃げたワケは？逮捕の経緯は？無罪確定でも…【ReHacQ高橋弘樹vs元オウム真理教信者】](/rehacq_fan/ids/1CqVQj5yKkk "wikilink")
     -   公開日: 2026-11-17
-    -   視聴数: 2,700,231
-    -   **いいね数: 19,596**
+    -   視聴数: 2,707,291
+    -   **いいね数: 19,667**
     -   出演者: 菊地直子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】緊迫！石丸伸二が野党に激怒…今後のロードマップは？【高橋弘樹】](/rehacq_fan/ids/Lb9U4acxhs4 "wikilink")
     -   公開日: 2024-09-07
@@ -322,8 +322,8 @@
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
     -   公開日: 2025-11-21
-    -   視聴数: 1,112,506
-    -   **いいね数: 19,021**
+    -   視聴数: 1,115,267
+    -   **いいね数: 19,031**
     -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔の推薦】ビジネスと量子力学！超弦理論の謎【野村泰紀と宇宙】](/rehacq_fan/ids/lp7PPFsnQAE "wikilink")
     -   公開日: 2023-07-14
@@ -427,8 +427,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](/rehacq_fan/ids/4G8qsbpfLNo "wikilink")
     -   公開日: 2024-02-20
-    -   視聴数: 1,977,275
-    -   **いいね数: 17,239**
+    -   視聴数: 1,996,271
+    -   **いいね数: 17,295**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【衆院選2026】あつまれ！落選の森...今後どうする？まったり緊急生配信【中谷一馬vs川上りゅうせいvs吉田あやvs今野忍vs西田亮介vs石丸伸二vs高橋弘樹】](/rehacq_fan/ids/HEsGRg73oiw "wikilink")
     -   公開日: 2026-02-09
@@ -490,13 +490,13 @@
     -   視聴数: 1,082,478
     -   **いいね数: 16,577**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
+    -   公開日: 2024-02-12
+    -   視聴数: 1,952,435
+    -   **いいね数: 16,518**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【ひろゆきvs玉木雄一郎】５兆円！○○国債を！【野党の存在意義は？】](/rehacq_fan/ids/vJ2MS0ZjLdA "wikilink")
     -   公開日: 2023-05-23
     -   視聴数: 1,134,115
     -   **いいね数: 16,503**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元引きこもりがVTuber, [大井基行](/rehacq_fan/people/大井基行 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
-    -   公開日: 2024-02-12
-    -   視聴数: 1,947,459
-    -   **いいね数: 16,502**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
