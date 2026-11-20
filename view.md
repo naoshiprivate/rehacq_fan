@@ -47,8 +47,8 @@
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急出演！独占告白】元指名手配犯 菊地直子！17年の逃亡…なぜ？！地下鉄サリン事件後逃げたワケは？逮捕の経緯は？無罪確定でも…【ReHacQ高橋弘樹vs元オウム真理教信者】](/rehacq_fan/ids/1CqVQj5yKkk "wikilink")
     -   公開日: 2026-11-17
-    -   視聴数: 2,786,091
-    -   **いいね数: 20,107**
+    -   視聴数: 2,808,888
+    -   **いいね数: 20,276**
     -   出演者: 菊地直子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [緊急対談　川上量生、立花孝志【ReHacQ SP】](/rehacq_fan/ids/KPwDlYmzEIA "wikilink")
     -   公開日: 2023-03-21
@@ -335,16 +335,16 @@
     -   視聴数: 1,418,089
     -   **いいね数: 29,332**
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink")
+1.  [【林真理子が緊急出演】120分ガチ人生相談！50代は危機？80代は終わり？一番辛かった時は？恋愛,仕事,人生振り返りSP【ReHacQ高橋弘樹vs箕輪厚介】](/rehacq_fan/ids/qb6hvQpwVyg "wikilink")
+    -   公開日: 2026-11-13
+    -   視聴数: 1,406,721
+    -   **いいね数: 11,502**
+    -   出演者: 林真理子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【小泉悠vs高橋弘樹】核保有の是非...日米同盟は破棄される!?台湾有事・イラン・ロシアウクライナ...混沌とした世界での安全保障とは？弱小国日本が具体的にすべきこと【ReHacQvs戦争】](/rehacq_fan/ids/O0rdxFIsK-I "wikilink")
     -   公開日: 2026-04-11
     -   視聴数: 1,403,303
     -   **いいね数: 11,382**
     -   出演者: [小泉悠](/rehacq_fan/people/小泉悠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【林真理子が緊急出演】120分ガチ人生相談！50代は危機？80代は終わり？一番辛かった時は？恋愛,仕事,人生振り返りSP【ReHacQ高橋弘樹vs箕輪厚介】](/rehacq_fan/ids/qb6hvQpwVyg "wikilink")
-    -   公開日: 2026-11-13
-    -   視聴数: 1,400,697
-    -   **いいね数: 11,441**
-    -   出演者: 林真理子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【橋下徹vs石丸伸二vsひろゆき】酔うまで生テレビ【ReHacQ&ABEMAコラボ】](/rehacq_fan/ids/keQnFHx1atQ "wikilink")
     -   公開日: 2024-10-05
     -   視聴数: 1,389,140
