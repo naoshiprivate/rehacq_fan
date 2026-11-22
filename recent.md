@@ -1,31 +1,31 @@
 1.  [【ひろゆき&石丸伸二&後藤達也&今野忍】祝！200万人突破…今後どうする！？生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/D4p8Q5KoTWY "wikilink")
     -   公開日: 2026-11-21
-    -   視聴数: 691,620
-    -   **いいね数: 4,838**
+    -   視聴数: 782,442
+    -   **いいね数: 5,966**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/D4p8Q5KoTWY/hqdefault.jpg)](https://www.youtube.com/watch?v=D4p8Q5KoTWY)
 1.  [【ReHacQ緊急生配信】AI株急落…NVIDIA騒動どうなる？アンソロピック上場の影響は？勢力図は変わる？【後藤達也vs今井翔太】](/rehacq_fan/ids/ITR1D_nMP1U "wikilink")
     -   公開日: 2026-11-21
-    -   視聴数: 301,118
-    -   **いいね数: 1,834**
+    -   視聴数: 342,972
+    -   **いいね数: 2,239**
     -   出演者: [今井翔太](/rehacq_fan/people/今井翔太 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
     - [![](https://img.youtube.com/vi/ITR1D_nMP1U/hqdefault.jpg)](https://www.youtube.com/watch?v=ITR1D_nMP1U)
 1.  [【コムドットやまとvs学歴】番組再開！騒動後の初収録...本音で全部語ります【ReHacQvsベテランちvs高田ふーみん】](/rehacq_fan/ids/JfFQidFz0Lg "wikilink")
     -   公開日: 2026-11-21
-    -   視聴数: 228,078
-    -   **いいね数: 2,663**
+    -   視聴数: 254,815
+    -   **いいね数: 2,973**
     -   出演者: [やまと](/rehacq_fan/people/やまと "wikilink"), [ベテランち](/rehacq_fan/people/ベテランち "wikilink"), [高田ふーみん](/rehacq_fan/people/高田ふーみん "wikilink")
     - [![](https://img.youtube.com/vi/JfFQidFz0Lg/hqdefault.jpg)](https://www.youtube.com/watch?v=JfFQidFz0Lg)
 1.  [【ReHacQ生配信】聞きたいニュース！視聴者の質問に答えるニュース番組【ReHacQ高橋弘樹vs西田亮介vs箕輪厚介】](/rehacq_fan/ids/Ntsb8q6owYI "wikilink")
     -   公開日: 2026-11-20
-    -   視聴数: 532,215
-    -   **いいね数: 2,041**
+    -   視聴数: 538,410
+    -   **いいね数: 2,078**
     -   出演者: [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/Ntsb8q6owYI/hqdefault.jpg)](https://www.youtube.com/watch?v=Ntsb8q6owYI)
 1.  [【高橋弘樹vs箕輪厚介】ガチ企画会議を全公開！年末特番で実現したいヤバすぎる企画＆ゲストとは！？【ReHacQ】](/rehacq_fan/ids/vEmtcmeix94 "wikilink")
     -   公開日: 2026-11-20
-    -   視聴数: 217,869
-    -   **いいね数: 1,626**
+    -   視聴数: 221,452
+    -   **いいね数: 1,655**
     -   出演者: [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/vEmtcmeix94/hqdefault.jpg)](https://www.youtube.com/watch?v=vEmtcmeix94)
 
