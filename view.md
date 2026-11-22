@@ -37,8 +37,8 @@
     -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急出演！独占告白】元指名手配犯 菊地直子！17年の逃亡…なぜ？！地下鉄サリン事件後逃げたワケは？逮捕の経緯は？無罪確定でも…【ReHacQ高橋弘樹vs元オウム真理教信者】](/rehacq_fan/ids/1CqVQj5yKkk "wikilink")
     -   公開日: 2026-11-17
-    -   視聴数: 3,169,846
-    -   **いいね数: 21,853**
+    -   視聴数: 3,179,265
+    -   **いいね数: 21,914**
     -   出演者: 菊地直子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs石丸伸二】緊急生配信②経済、TOKYO、そして民主主義の行方【元三菱東京UFJアナリスト】](/rehacq_fan/ids/zZ13VzNu83s "wikilink")
     -   公開日: 2024-07-10
@@ -82,8 +82,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 山岸美喜, 竹田恒泰, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【Google賞金4.5億】睡眠革命！「朝型がいい」はウソ!?最新研究【柳沢正史】](/rehacq_fan/ids/IWqndzRAJnQ "wikilink")
     -   公開日: 2023-11-07
-    -   視聴数: 2,556,476
-    -   **いいね数: 28,865**
+    -   視聴数: 2,572,028
+    -   **いいね数: 28,904**
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs近藤大介②】激動する中国政治_習近平の権力構造と地政学リスクとは？【ReHacQ中国経済SP】](/rehacq_fan/ids/ubUYvwixxCg "wikilink")
     -   公開日: 2025-10-09
@@ -162,8 +162,8 @@
     -   出演者: 堀大輔, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【岡田斗司夫vs後藤達也】ひろゆきとホリエモンも尊敬！価値観が変わる「評価経済社会」とは【緊急出演】](/rehacq_fan/ids/oHDV4qfKJSw "wikilink")
     -   公開日: 2024-08-08
-    -   視聴数: 2,040,933
-    -   **いいね数: 28,340**
+    -   視聴数: 2,046,579
+    -   **いいね数: 28,341**
     -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【自律神経ケア】原因不明の不調のカギは「自律神経」！？今日からできるリセット術とは？【小林弘幸順天堂大学教授＆松丸友紀&ReHacQ】](/rehacq_fan/ids/y0QYGfiKyj8 "wikilink")
     -   公開日: 2025-12-22
@@ -232,8 +232,8 @@
     -   出演者: [呉座勇一](/rehacq_fan/people/呉座勇一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](/rehacq_fan/ids/CepOZXVtsCo "wikilink")
     -   公開日: 2023-10-25
-    -   視聴数: 1,757,123
-    -   **いいね数: 23,577**
+    -   視聴数: 1,766,207
+    -   **いいね数: 23,626**
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink")
 1.  [【坂上忍vsひろゆきvs箕輪厚介】炎上は恐れない！？芸歴56年…“ヒール”の流儀・生き様を語る！【ReHacQ】](/rehacq_fan/ids/FXER_XtqCkY "wikilink")
     -   公開日: 2026-05-03

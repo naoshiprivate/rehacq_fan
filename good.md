@@ -97,8 +97,8 @@
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink")
 1.  [【Google賞金4.5億】睡眠革命！「朝型がいい」はウソ!?最新研究【柳沢正史】](/rehacq_fan/ids/IWqndzRAJnQ "wikilink")
     -   公開日: 2023-11-07
-    -   視聴数: 2,556,476
-    -   **いいね数: 28,865**
+    -   視聴数: 2,572,028
+    -   **いいね数: 28,904**
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](/rehacq_fan/ids/hio2XdBPW5Y "wikilink")
     -   公開日: 2024-02-24
@@ -107,8 +107,8 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【岡田斗司夫vs後藤達也】ひろゆきとホリエモンも尊敬！価値観が変わる「評価経済社会」とは【緊急出演】](/rehacq_fan/ids/oHDV4qfKJSw "wikilink")
     -   公開日: 2024-08-08
-    -   視聴数: 2,040,933
-    -   **いいね数: 28,340**
+    -   視聴数: 2,046,579
+    -   **いいね数: 28,341**
     -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](/rehacq_fan/ids/iDPwEX2A73Y "wikilink")
     -   公開日: 2024-07-18
@@ -182,8 +182,8 @@
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](/rehacq_fan/ids/CepOZXVtsCo "wikilink")
     -   公開日: 2023-10-25
-    -   視聴数: 1,757,123
-    -   **いいね数: 23,577**
+    -   視聴数: 1,766,207
+    -   **いいね数: 23,626**
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン・サックス】年収3億だけど「二度と戻りたくない」外資系投資会社で感じた限界とは？【ReHacQ】](/rehacq_fan/ids/dKXQC1J0VLw "wikilink")
     -   公開日: 2025-07-29
@@ -220,16 +220,16 @@
     -   視聴数: 876,132
     -   **いいね数: 22,016**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【緊急出演！独占告白】元指名手配犯 菊地直子！17年の逃亡…なぜ？！地下鉄サリン事件後逃げたワケは？逮捕の経緯は？無罪確定でも…【ReHacQ高橋弘樹vs元オウム真理教信者】](/rehacq_fan/ids/1CqVQj5yKkk "wikilink")
+    -   公開日: 2026-11-17
+    -   視聴数: 3,179,265
+    -   **いいね数: 21,914**
+    -   出演者: 菊地直子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
     -   公開日: 2025-08-09
     -   視聴数: 2,307,955
     -   **いいね数: 21,901**
     -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【緊急出演！独占告白】元指名手配犯 菊地直子！17年の逃亡…なぜ？！地下鉄サリン事件後逃げたワケは？逮捕の経緯は？無罪確定でも…【ReHacQ高橋弘樹vs元オウム真理教信者】](/rehacq_fan/ids/1CqVQj5yKkk "wikilink")
-    -   公開日: 2026-11-17
-    -   視聴数: 3,169,846
-    -   **いいね数: 21,853**
-    -   出演者: 菊地直子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸新党は？記者会見】なぜテレ朝に激怒？謎だらけ新党の全容は？【ReHacQSP】](/rehacq_fan/ids/lM0cVpbgv5w "wikilink")
     -   公開日: 2025-01-15
     -   視聴数: 630,371
@@ -347,8 +347,8 @@
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆきvs国民民主党】衝撃的!日本倍増計画とは?【玉木雄一郎の野望 episode2】](/rehacq_fan/ids/EYKExpig3-4 "wikilink")
     -   公開日: 2023-05-28
-    -   視聴数: 1,154,763
-    -   **いいね数: 18,792**
+    -   視聴数: 1,155,692
+    -   **いいね数: 18,788**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【ReHacQ生配信】日本保守党にガチ質問...衆院選2026【百田尚樹vs高橋弘樹】](/rehacq_fan/ids/cYLcT1fhacw "wikilink")
     -   公開日: 2026-02-04
