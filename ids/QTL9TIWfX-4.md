@@ -3,4 +3,4 @@
 -   公開日: 2026-01-07
 -   視聴数: 101,857
 -   **いいね数: 1,218**
--   出演者: 加藤文元, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [加藤文元](/rehacq_fan/people/加藤文元 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
