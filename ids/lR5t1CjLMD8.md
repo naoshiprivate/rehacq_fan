@@ -1,6 +1,6 @@
 ### [【ダイエットvs食事】血糖値急上昇の危険…甘い物でもヤバさが違う？食の常識を疑え！【ReHacQ＆井上咲良】](https://www.youtube.com/watch?v=lR5t1CjLMD8)
 [![](https://img.youtube.com/vi/lR5t1CjLMD8/sddefault.jpg)](https://www.youtube.com/watch?v=lR5t1CjLMD8)
 -   公開日: 2026-11-18
--   視聴数: 245,227
--   **いいね数: 1,777**
+-   視聴数: 245,970
+-   **いいね数: 1,783**
 -   出演者: 井上咲良, 田中越郎
