@@ -32,8 +32,8 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急出演！独占告白】元指名手配犯 菊地直子！17年の逃亡…なぜ？！地下鉄サリン事件後逃げたワケは？逮捕の経緯は？無罪確定でも…【ReHacQ高橋弘樹vs元オウム真理教信者】](/rehacq_fan/ids/1CqVQj5yKkk "wikilink")
     -   公開日: 2026-11-17
-    -   視聴数: 3,234,134
-    -   **いいね数: 22,134**
+    -   視聴数: 3,259,613
+    -   **いいね数: 22,283**
     -   出演者: 菊地直子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高市早苗vs高橋弘樹】中国の脅威から守れ！高市早苗のガチ政策トーク60分【ReHacQ】](/rehacq_fan/ids/mj4kztKExdo "wikilink")
     -   公開日: 2024-09-23
@@ -367,8 +367,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ReHacQ生配信】まったり緊急生配信【高橋弘樹vs今野忍】](/rehacq_fan/ids/3KdKk_NdJo "wikilink")
     -   公開日: 2026-02-13
-    -   視聴数: 1,330,786
-    -   **いいね数: 12,313**
+    -   視聴数: 1,338,494
+    -   **いいね数: 12,315**
     -   出演者: [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs小西洋之】改憲の論点は？…「サルと同じ」発言の真相【なんで更迭されたんですか？】](/rehacq_fan/ids/h11UzRqjXyM "wikilink")
     -   公開日: 2023-08-20
