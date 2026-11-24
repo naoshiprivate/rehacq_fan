@@ -15,16 +15,16 @@
     -   視聴数: 3,880,048
     -   **いいね数: 55,278**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+1.  [【緊急出演！独占告白】元指名手配犯 菊地直子！17年の逃亡…なぜ？！地下鉄サリン事件後逃げたワケは？逮捕の経緯は？無罪確定でも…【ReHacQ高橋弘樹vs元オウム真理教信者】](/rehacq_fan/ids/1CqVQj5yKkk "wikilink")
+    -   公開日: 2026-11-17
+    -   視聴数: 3,444,416
+    -   **いいね数: 23,269**
+    -   出演者: 菊地直子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](/rehacq_fan/ids/eOz1CzMBmuQ "wikilink")
     -   公開日: 2023-11-25
     -   視聴数: 3,426,356
     -   **いいね数: 25,994**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【緊急出演！独占告白】元指名手配犯 菊地直子！17年の逃亡…なぜ？！地下鉄サリン事件後逃げたワケは？逮捕の経緯は？無罪確定でも…【ReHacQ高橋弘樹vs元オウム真理教信者】](/rehacq_fan/ids/1CqVQj5yKkk "wikilink")
-    -   公開日: 2026-11-17
-    -   視聴数: 3,400,087
-    -   **いいね数: 22,975**
-    -   出演者: 菊地直子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](/rehacq_fan/ids/hio2XdBPW5Y "wikilink")
     -   公開日: 2024-02-24
     -   視聴数: 3,303,968
