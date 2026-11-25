@@ -1,6 +1,6 @@
 ### [【辻元清美vs西田亮介】政府広報のあり方を徹底激論！なぜそんなに高い？使い道は？【ReHacQ】](https://www.youtube.com/watch?v=7pigwfUK1v8)
 [![](https://img.youtube.com/vi/7pigwfUK1v8/sddefault.jpg)](https://www.youtube.com/watch?v=7pigwfUK1v8)
 -   公開日: 2026-11-25
--   視聴数: 25,568
--   **いいね数: 586**
+-   視聴数: 79,512
+-   **いいね数: 762**
 -   出演者: 
