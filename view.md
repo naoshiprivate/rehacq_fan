@@ -492,8 +492,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [阿部欣司](/rehacq_fan/people/阿部欣司 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆき&石丸伸二&後藤達也&今野忍】祝！200万人突破…今後どうする！？生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/D4p8Q5KoTWY "wikilink")
     -   公開日: 2026-11-21
-    -   視聴数: 1,209,368
-    -   **いいね数: 9,502**
+    -   視聴数: 1,210,724
+    -   **いいね数: 9,511**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsボビー・オロゴン】兄弟34人！父のスパルタ教育とは？【ガチの一夫多妻制】](/rehacq_fan/ids/hvJ0lBxFILU "wikilink")
     -   公開日: 2024-08-04
