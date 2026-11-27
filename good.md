@@ -117,8 +117,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [鈴木宗男](/rehacq_fan/people/鈴木宗男 "wikilink")
 1.  [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](/rehacq_fan/ids/iDPwEX2A73Y "wikilink")
     -   公開日: 2024-07-18
-    -   視聴数: 1,831,780
-    -   **いいね数: 28,018**
+    -   視聴数: 1,833,804
+    -   **いいね数: 28,015**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【緊急生配信】兵庫県・百条委員会にて秘密会音声データ流出のすべて「私がやった…なぜなら」【日本維新の会・増山誠vsReHacQ高橋弘樹】](/rehacq_fan/ids/LyTuLE37l4A "wikilink")
     -   公開日: 2025-02-19
