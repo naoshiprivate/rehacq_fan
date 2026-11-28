@@ -1,6 +1,6 @@
 ### [【独占告白！本人出演】元死刑囚・袴田巌⋯47年7カ月の獄中生活⋯姉・ひで子が語る！事件から58年で無罪判決なぜ？逮捕に至った経緯は？【ReHacQ高橋弘樹vs冤罪】](https://www.youtube.com/watch?v=ir4kcyHXZXI)
 [![](https://img.youtube.com/vi/ir4kcyHXZXI/sddefault.jpg)](https://www.youtube.com/watch?v=ir4kcyHXZXI)
 -   公開日: 2026-11-27
--   視聴数: 336,153
--   **いいね数: 5,076**
+-   視聴数: 345,107
+-   **いいね数: 5,122**
 -   出演者: 袴田ひで子, 袴田巌, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
