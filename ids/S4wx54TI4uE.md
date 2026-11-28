@@ -3,4 +3,4 @@
 -   公開日: 2024-12-19
 -   視聴数: 72,285
 -   **いいね数: 1,186**
--   出演者: 中空麻奈, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+-   出演者: [中空麻奈](/rehacq_fan/people/中空麻奈 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
