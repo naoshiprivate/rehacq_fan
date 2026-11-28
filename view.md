@@ -360,6 +360,11 @@
     -   視聴数: 1,373,245
     -   **いいね数: 21,353**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vs秦始皇帝】新解釈キングダム！春秋戦国時代の史記はウソ！？秦王・嬴政の正体とは？史実での李信とは？【ReHacQvs鶴間和幸】](/rehacq_fan/ids/vutUxeLPgTg "wikilink")
+    -   公開日: 2026-10-06
+    -   視聴数: 1,366,006
+    -   **いいね数: 5,956**
+    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 鶴間和幸
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
     -   視聴数: 1,348,733
@@ -407,8 +412,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), 林下清志
 1.  [【ひろゆき&石丸伸二&後藤達也&今野忍】祝！200万人突破…今後どうする！？生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/D4p8Q5KoTWY "wikilink")
     -   公開日: 2026-11-21
-    -   視聴数: 1,272,777
-    -   **いいね数: 9,777**
+    -   視聴数: 1,274,496
+    -   **いいね数: 9,786**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [今野忍](/rehacq_fan/people/今野忍 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](/rehacq_fan/ids/CxDT2FaGi8o "wikilink")
     -   公開日: 2025-07-09
@@ -430,11 +435,6 @@
     -   視聴数: 1,265,730
     -   **いいね数: 11,522**
     -   出演者: 澤木一貴, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
-1.  [【高橋弘樹vs秦始皇帝】新解釈キングダム！春秋戦国時代の史記はウソ！？秦王・嬴政の正体とは？史実での李信とは？【ReHacQvs鶴間和幸】](/rehacq_fan/ids/vutUxeLPgTg "wikilink")
-    -   公開日: 2026-10-06
-    -   視聴数: 1,265,291
-    -   **いいね数: 5,511**
-    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 鶴間和幸
 1.  [【藤田晋が緊急出演】「人生は不平等、だから…」メディア最後の出演！全ビジネスパーソンに伝えたい事【ReHacQ高橋弘樹】](/rehacq_fan/ids/kT34SGVBs6Y "wikilink")
     -   公開日: 2025-12-13
     -   視聴数: 1,254,274
